@@ -4,6 +4,7 @@ const path = require('path');
 const rootDir = path.resolve(__dirname, '..');
 const sourcePath = path.join(rootDir, 'recipes.md');
 const outputPath = path.join(rootDir, 'data', 'recipes.json');
+const recipesDir = path.join(rootDir, 'recipes');
 
 function trimAndNormalize(value) {
   return value.replace(/\s+/g, ' ').trim();
@@ -238,6 +239,84 @@ function parseRecipes(markdown) {
   return recipes.filter((recipe) => recipe.title && recipe.title.length > 1);
 }
 
+function toSlug(value, maxLength = 60) {
+  const slug = (value || '')
+    .toLowerCase()
+    .replace(/[^a-z0-9]+/g, '-')
+    .replace(/^-+|-+$/g, '') || 'recipe';
+
+  return slug.slice(0, maxLength).replace(/-+$/g, '');
+}
+
+function extractRecipeParts(recipe) {
+  const lines = (recipe.body || '')
+    .split(/\n+/)
+    .map((line) => line.trim())
+    .filter(Boolean);
+
+  const ingredientLines = [];
+  const procedureLines = [];
+
+  for (let i = 1; i < lines.length; i += 1) {
+    const line = lines[i].replace(/^[-*]\s*/, '').trim();
+    if (!line) {
+      continue;
+    }
+
+    if (isIngredientLike(line)) {
+      ingredientLines.push(line);
+      continue;
+    }
+
+    if (/^(yield|makes|serves|servings?):/i.test(line)) {
+      procedureLines.push(line);
+      continue;
+    }
+
+    procedureLines.push(line);
+  }
+
+  return {
+    title: recipe.title || 'Untitled Recipe',
+    author: recipe.author || 'Unknown Author',
+    ingredients: ingredientLines.length ? ingredientLines : ['No ingredients listed.'],
+    procedure: procedureLines.length ? procedureLines : ['No procedure provided.']
+  };
+}
+
+function recipeToMarkdown(recipe) {
+  const { title, author, ingredients, procedure } = extractRecipeParts(recipe);
+  const ingredientList = ingredients.map((item) => `- ${item}`).join('\n');
+  const procedureList = procedure
+    .map((item, index) => `${index + 1}. ${item}`)
+    .join('\n');
+
+  return `# ${title}\n\nAuthor: ${author}\n\n## Ingredients\n${ingredientList}\n\n## Procedure\n${procedureList}\n`;
+}
+
+function writeRecipeFiles(recipes) {
+  fs.mkdirSync(recipesDir, { recursive: true });
+
+  const usedNames = new Set();
+
+  for (let index = 0; index < recipes.length; index += 1) {
+    const recipe = recipes[index];
+    let fileName = `${toSlug(recipe.title)}.md`;
+    if (usedNames.has(fileName)) {
+      let suffix = 2;
+      let candidate = `${toSlug(recipe.title, 45)}-${suffix}.md`;
+      while (usedNames.has(candidate)) {
+        suffix += 1;
+        candidate = `${toSlug(recipe.title, 45)}-${suffix}.md`;
+      }
+      fileName = candidate;
+    }
+
+    usedNames.add(fileName);
+    fs.writeFileSync(path.join(recipesDir, fileName), recipeToMarkdown(recipe), 'utf8');
+  }
+}
+
 if (!fs.existsSync(sourcePath)) {
   console.error(`Missing source file at ${sourcePath}`);
   process.exit(1);
@@ -247,4 +326,5 @@ const markdown = fs.readFileSync(sourcePath, 'utf8');
 const recipes = parseRecipes(markdown);
 fs.mkdirSync(path.dirname(outputPath), { recursive: true });
 fs.writeFileSync(outputPath, JSON.stringify(recipes, null, 2));
-console.log(`Built ${recipes.length} recipes into ${outputPath}`);
+writeRecipeFiles(recipes);
+console.log(`Built ${recipes.length} recipes into ${outputPath} and ${recipesDir}`);
