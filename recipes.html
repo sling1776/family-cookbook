@@ -1,0 +1,63 @@
+<!DOCTYPE html>
+<html lang="en">
+  <head>
+    <meta charset="UTF-8" />
+    <meta name="viewport" content="width=device-width, initial-scale=1.0" />
+    <title>Recipe Search | Family Recipe Archive</title>
+    <meta name="description" content="Search and filter the family recipe archive by categories, family names, and tags." />
+    <link rel="stylesheet" href="assets/styles.css" />
+  </head>
+  <body>
+    <header>
+      <nav class="nav" aria-label="Main navigation">
+        <a href="index.html" class="brand">
+          <span class="brand-mark">🍽️</span>
+          Family Recipe Archive
+        </a>
+        <div class="nav-links">
+          <a href="index.html">Home</a>
+          <a href="recipes.html">Recipes</a>
+          <a href="family.html">Family</a>
+          <a href="about.html">About</a>
+        </div>
+      </nav>
+    </header>
+
+    <main>
+      <section class="blog">
+        <div class="section-header">
+          <h2>Recipe search</h2>
+          <p>Search by family name, category, holiday, ingredient, or keyword.</p>
+        </div>
+
+        <div class="filter-bar">
+          <input id="search-input" type="search" placeholder="Search recipes..." aria-label="Search recipes" />
+          <select id="category-filter" aria-label="Filter by category">
+            <option value="All">All categories</option>
+          </select>
+          <select id="person-filter" aria-label="Filter by family member">
+            <option value="All">All family members</option>
+          </select>
+          <select id="tag-filter" aria-label="Filter by tag">
+            <option value="All">All tags</option>
+          </select>
+        </div>
+
+        <div class="count-row">
+          <span id="recipe-count">0 recipes found</span>
+          <a href="index.html" class="button-link">Back to home</a>
+        </div>
+
+        <div id="recipe-list" class="recipe-grid"></div>
+      </section>
+    </main>
+
+    <div id="recipe-detail-dialog" class="detail-dialog" aria-live="polite">
+      <div class="detail-panel">
+        <div id="detail-body"></div>
+      </div>
+    </div>
+
+    <script src="assets/site.js"></script>
+  </body>
+</html>

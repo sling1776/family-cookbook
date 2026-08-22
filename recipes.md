@@ -1,0 +1,14239 @@
+Cheese Ball Dip –Angela Olsen
+1/2 cup milk
+1/2 cup mayo  
+Mix together then add:
+1 pkg. dry ranch dressing mix
+8oz. cream cheese
+8oz. shredded fine cheddar cheese
+Form into a ball shape and serve with crackers.
+
+3-in-one Cheese Ball –Liz Bunderson
+Yield: 3 cheese balls
+1- 8 oz. package of cream cheese, softened
+4 cups shredded cheddar cheese, room temperature
+2 Tbsp. milk
+2 Tbsp. minced onion
+2 Tbsp. Worcestershire sauce
+coarsely cracked black pepper
+½ cup crumbled blue cheese
+minced fresh parsley
+¼ tsp. garlic powder
+finely chopped pecans
+assorted crackers
+In a mixing bowl, beat cream cheese, cheddar cheese, milk, onion and Worcestershire sauce until mix is fluffy. If a smoother spread is desired, process in a food processor until creamy. Divide into thirds (about 1 cup each). Shape first portion into a ball; roll in cracked pepper. Add the blue cheese to the second portion; mix well. Shape into a ball; roll in parsley. Add garlic powder to the remaining portion; mix well. Shape into a ball; roll in nuts. Cover and refrigerate. Let stand at room temperature 1 hour before serving time. Serve with crackers.
+
+Cheese Ball - Sammi Jo Stewart
+2 (8oz.) cream cheese
+2-3 tsp. Bon appetite
+1/4 tsp. dry mustard
+6 green onions
+Shape and roll in parsley flakes and slivered almonds.  Enjoy!
+
+Shrimp Cheese Ball - Marjean Spencer "I didn't like cheese balls until this recipe came along" ... Bonnie Chantry
+2 large pkgs. cream cheese
+1 jar Kraft Old English cheese
+½ cup grated cheddar cheese
+1 tsp. lemon juice
+¼ - ½ tsp. onion juice
+¼ - ½ tsp. dried chives
+1 tsp. dry parsley
+1 Tbsp. mayonnaise
+1 can (4.25oz) shrimp
+Mix together well and form into ball, roll in chopped nuts.  Freezes well.
+
+Wheat Hot Roll mix –Jill Olsen
+9 cups whole wheat flour
+8 cups white flour
+4 tsp. salt
+1 cup instant nonfat milk powder
+1 cup brown sugar
+Combine flours, salt and milk. Stir with wire whisk until evenly distributed. Press brown sugar through a coarse sieve. Stir brown sugar into flour mixture. Store in refrigerator 10-12 weeks or in freezer for 6 months. 
+Wheat Thin Crackers 
+3 cups wheat mix 
+5 Tbsp. vegetable oil
+1 cup water
+Preheat oven to 350°. Combine wheat mix, oil and water. Stir with a fork until blended. Knead dough only until smooth, about 3 min. Divide dough into 4 pieces. Roll out dough 1 piece at a time to a 16 x 12 rectangle, 1/16 thick. Place dough on an un-greased baking sheet. Use a pastry cutter or a tailors tracing wheel to mark cutting lines on dough, 2 " apart. Prick each cracker several times with a fork. Sprinkle lightly with salt. Bake 10-20 min. Cool and break apart.
+
+“Ryleigh’s Cackleberries” aka Pickled Eggs –Kadie Allred
+2 cups vinegar
+1 ¾ cups water
+1 Tbsp. salt
+¼ cup pickling spice
+Add ingredients and boil. Dump over peeled hard-boiled eggs and add food coloring. (Best to put eggs in a jar first then dump liquid on top) Put lid on jar and let ‘em pickle for about 4 days.
+Blue Cheese Date Wraps- Amy Badger – Justin’s mom, Cathi made these for a family Christmas party one year and I think I ate a whole platter full of them.
+12 bacon strips
+36 pitted dates
+2/3 cup crumbled blue cheese
+Cut each bacon strip into thirds. In a large skillet, cook bacon in batches over medium heat until partially cooked but not crisp. Remove to paper towels to drain; keep warm. Carefully cut a slit in the center of each date; fill with blue cheese. Wrap a bacon piece around each stuffed date; secure with wooden toothpicks. Place on ungreased baking sheets. Bake at 375° for 10-12 minutes or until bacon is crisp. Yield: 3 dozen.
+
+Chicken Appetizers - Diane Anderson
+Chopped meat from 1 chicken
+1 cup mayonnaise
+1 stalk celery
+2 Tbsp. parsley
+1 medium onion
+salt
+pepper
+onion salt
+1 loaf white bread
+3 carrots
+Cut up chicken and place in large pan. Cover with water.  Trim leafy part of celery and chop fine.  Add to water.  Season with salt, pepper and onion salt. Cook on low heat until done. (Chicken should fall off the bone.)  Remove from heat.  Drain chicken - Save broth for chicken soup later.  Let the chicken cool while you chop celery, parsley, and onion into fine pieces.  Chop chicken the same way.  Combine all in large bowl.  Add mayonnaise and season to taste with salt, pepper and onion salt.  Set aside. Trim crust from bread.  Roll each slice flat.   Put chicken spread in middle of bread and roll bread up around it from corner to corner.  Put toothpick in the end to hold the bread closed.  Add the carrots on top for color.  (Shave carrots so they are thin.  Twist to make carrot curl and secure with same toothpick.)  Good luck.  Makes as many sandwiches as bread slices in the loaf.
+Cordon Bleu Melts - Amy Badger – My good friend Kelly Keesecker made these for my baby shower while I was pregnant with Catarina.  I was grateful to be “eating for two” as I ate my share of these tasty treats.
+1 loaf baguette bread, sliced 1” pieces
+¾ cup (4oz.) chopped deli baked ham
+1 green onion, thinly sliced
+4oz. cream cheese, softened (1/2 brick)
+1 tsp. Dijon mustard
+1 cup (4oz.) shredded Swiss cheese, divided
+Preheat oven to 350º.  Finely chop deli ham. Combine with sliced onion, cream cheese, and mustard.  Mix well.  Stir in ¾ cup of the Swiss cheese.  Place small scoop of ham mixture on the center of each slice of bread.  Spread mixture to edge of bread.  Bake on cookie sheet for 15 to 18 minutes.  Sprinkle with remaining cheese and bake for 1 to 2 more minutes or until cheese melts.  Serve immediately. Yield: 20 appetizers
+
+Vegetable Dip - Marjean Spencer
+1 cup sour cream
+1 cup mayonnaise
+1 Tbsp. bon Appétit
+1 Tbsp. chives
+1 Tbsp. dill weed
+Mix together and chill.
+
+Spinach Dip – Sue Reber 
+1 10-oz frozen chopped spinach, thawed and water pressed out
+1 cup chopped water chestnuts
+3-4 green onions chopped fine
+1 pkg dry vegetable soup mix (or onion)
+1 cup sour cream
+1 cup mayonnaise
+Mix and refrigerate several hours.  Serve with fresh vegetables.
+
+Jarvis' Favorite Dip (Charlee's if you eliminate the shrimp) – Jill Olsen
+Stir together one package of cream cheese and one large cottage cheese. Season with Garlic Salt, Seasoning Salt and Accent (all of these are optional, just season to taste). Add in one can of shrimp (or clams).
+
+Shrimp Dip - Angela Olsen
+1- 8oz. cream cheese
+1/3 cup mayonnaise
+juice from ½  lemon
+Mix and add:
+1 bunch green onion
+1 can shrimp
+Chill and serve
+
+Meat Dip - Alice Chantry
+1- 8oz. cream cheese
+1 cup sour cream
+Mix together until smooth.  Add crab or shrimp or even tuna.  Great with crackers or even veggies.
+
+Simple Dip for Kids- Catarina Badger – This is one of my favorite after-school snacks.
+1 cup cottage cheese
+1 Tbsp. dry onion soup mix
+Saltines
+Stir the cottage cheese and onion soup mix until well blended.  Scoop up onto saltines.
+
+Artichoke & Spinach Dip –Kadie Allred
+1 can drained artichokes, chopped
+1 pkg. frozen spinach, chopped
+8oz. cream cheese
+8oz. sour cream
+3/4 cup shredded parmesan cheese
+8oz. Monterey Jack Cheese
+1/2 onion finely chopped & sautéed
+red pepper flakes, to taste
+mozzarella cheese, to taste
+Cook spinach according to directions on pkg. and drain.  Mix with artichokes and remaining ingredients.  Put in greased 1 qt. dish and bake at 325° for 20-30 minutes.  Top with  mozzarella cheese for last few minutes.
+
+Vegetable Pizza - Sue Reber
+1 pkg. crescent rolls
+6 oz. cream cheese
+1/3 cup mayonnaise
+1½ tsp. ranch dressing mix
+Break apart package of crescent rolls.  Fit together to form a rectangle.  Pinch seams together.  Prick dough with fork to allow steam to escape.  Bake 350° oven for 8-10 minutes until golden brown.  Cool on cooling rack.
+Filling: blend together the cream cheese, mayo and dressing mix. Spread on cooled crust.  Cut into squares to be served as an appetizer.
+Topping: Dice vegetables such as cucumbers, carrots, broccoli and red pepper into small pieces and sprinkle on filling.  Sprinkle with grated mild cheddar cheese if desired.
+
+Tostaditas  - Sue Reber – For when you want homemade tortilla chips and are willing to brave the splattering hot grease to get them.
+Corn or flour tortillas
+Oil
+Heat oil, enough to cover pan about 1/4 inch. 
+Add a little salt to the oil.  It will give the tortilla a salty taste.  Cut tortillas into pie shape, or strips.  Fry for about a minute until crisp.  When all fried sprinkle lightly with salt.  Serve as a snack or as accompaniment to chile con queso or guacamole or refried beans.  
+
+Refried Beans - Sue Reber
+A favorite dinner in St. George – with homemade flour tortillas
+2 cups dried pinto beans
+6 cups water
+1 cup coarsely chopped onions
+2 med. tomatoes, coarsely chopped
+½ cup oil
+1 tsp. salt
+Combine beans, water, ½ cup onions, ½ cup tomatoes and 1 Tbsp oil in heavy saucepan. Bring to boil then turn to simmer. Cook 1 1/2 hours.  Add salt and continue simmering for 30 minutes.  Drain cooked beans, reserving some liquid to the side. In heavy skillet melt 2 Tbsp shortening, cook ½ cup onions till soft. Add tomatoes and stir for 2-3 minutes.  Reduce heat to low. Add about ½ cup beans, mash flat with fork and stir in 1 Tbsp fat. Repeat with 1 cup beans and 1 Tbsp fat until all the beans are mashed.  The mixture should be moist and creamy.  If it appears dry, beat in some of the cooking liquid.  
+
+
+
+Rachel’s Famous Bean Dip -
+Rachel Mitchell -
+1- 16oz. can refried beans
+½ cup salsa
+½ cup shredded cheese
+1/4 cup sour cream
+Heat refried beans in microwave.  Stir in cheese and microwave to melt cheese. Stir in salsa and sour cream and serve with chips.
+
+Jared’s Bean Dip - Jared Reber-For bean dip that feels a bit more like South America, and a little less like Mexico, use black beans instead of pinto beans.
+Prepare the beans following the directions on the package.  When I mash the beans I do so only briefly, letting the beans retain some of their shape.  I don't know why, I just like it better that way.  Black beans usually need some spicing up, so I sprinkle a teaspoon of chili powder through the beans as I briefly mash.  I usually follow with a layer of ground beef or ground turkey, using half a package of taco seasoning when I brown the meat.  
+Next I mix an appropriate amount of sour cream with sliced olives and diced green pepper.  One small can of diced olives and half of a large green pepper are usually good amounts.  Spoon that mixture out over everything else and then sprinkle liberally with cheese.  Adding a layer of guacamole (when avocados are in season and not so ridiculously expensive), after the meat and before the sour cream mixture, can work well also.  Bean dips are pretty difficult to screw up so I recommend doing something a little bit different every once in a while.  Next time I am thinking about mixing diced onions in with the olives and green pepper.  Broken up corn chips might make a fun layer too.
+
+Chili Con Queso - Barbara Olsen
+2 Tbsp. oil
+1 cup chopped onion
+2 small garlic cloves
+1- 4oz. can chopped green chilies
+1 cup stewed tomatoes
+8 oz. Monterey Jack cheese, shredded
+8 oz. long horn cheese, shredded
+1 cup sour cream
+Sauté onion sand garlic in oil.  Add chili and tomatoes.  Lower heat.  Add cheese and cook until melted.  Stir in sour cream.  Do not boil. Makes 4 cups. Serve warm with chips.
+
+Mexican Dip - Tawna Marsh
+"This recipe brings fond memories of motor home trips."...Bonnie Chantry
+1 lrg. can refried beans mixed with 
+½ pkg. taco seasoning
+1 pint sour cream
+2-3 mashed avocado, add a little salt
+chopped tomatoes
+chopped green pepper
+chopped green onions
+chopped black olives
+grated cheese
+In a dripper pan make layers of each ingredient as listed.  Eat with corn chips. Variations include adding shredded lettuce, salsa, or to make it a main dish meal add seasoned ground beef with the refried beans.
+
+Touchdown Taco Dip – Amy Badger –For a main dish add cooked ground beef to the beans.  My family loves any food that is eaten on a tortilla chip. My son Stephen was horrified to learn he couldn’t eat tortilla chips while he had orthodontic extenders on his teeth.
+1- 16oz. can refried beans  
+1- 8oz. pkg. cream cheese, softened  
+1 cup sour cream  
+2 Tbsp. taco seasoning mix  
+2 cloves garlic, pressed  
+½ cup cheddar cheese, shredded  
+1 can pitted ripe olives  
+1 medium tomato, seeded and chopped  
+2 green onions, chopped  
+Fresh cilantro
+Tortilla chips
+Spread the refried beans in a 9” square baking dish. In a mixing bowl, combine cream cheese, sour cream, taco seasoning, and garlic. Mix well with electric mixer. Spread cream cheese mixture on top of refried beans. Sprinkle with cheddar cheese, olives, tomatoes, onions and cilantro on top.  Bake at 350° for 15 minutes.  Serve hot with tortilla chips!
+
+Sammi’s Favorite Dip - Jill Olsen – “Sammi’s favorite is now a Badger family favorite and it is always present whenever we have a UFC party”...Amy Badger
+2 lbs. sausage
+1 pt. sour cream
+8 oz. cream cheese
+5-6 tomatoes
+1 onion diced small
+1- 19 oz. diced chili peppers
+1- 19 oz. diced olives
+Brown and drain sausage.  Mix all but sour cream in crock pot and cook on low heat 3 to 4 hours.  Take lid off last hour.  Add sour cream 30 minutes before serving. Eat with tortilla chips.
+
+Chili Cheese Chip Dip –Sammi Jo Stewart
+1- 8 oz. pkg. cream cheese
+1 can of chili
+1-2 cups grated cheese
+Spread cream cheese in the bottom of an oven or microwave safe dish. Pour 1 can of the chili of your choice on top. Sprinkle grated cheese on top. Bake or microwave until the cheese is melted. Enjoy with tortilla chips!
+
+Nacho Cheese Sauce –Sue Reber
+2 Tbsp. butter
+2 Tbsp. flour
+1/8 tsp. salt
+3/4 cup milk
+1/3 cup grated cheese
+1/3 cup processed cheese, cubed
+½ cup salsa, optional
+1 Tbsp jalapeno peppers, optional
+Melt butter in a 4 cup glass measuring cup or bowl. Microwave on high for 25 seconds.  Stir in flour, until well blended.  Add salt and milk stir until well blended. Microwave on high for 2-3 minutes or until mixture thickens. Stir every 30 seconds. When mixture is thickened, stir in cheeses until it melts.  Microwave on high for 30 more seconds.  Let stand for 2 minutes. Can stir in ½ cup salsa and jalapeno  or serve on the side.  Serve with tortilla chips.  
+
+
+
+Microwave Pizza Nachos - Liz Bunderson
+1- 8 oz. corn tortillas chips
+1 cup pizza sauce
+1 1/3 cup mozzarella or Jack cheese
+1/4 cup pepperoni
+1/4 cup diced green chilies
+1 Tbsp. thinly sliced green onions
+1/4 cup sour cream
+½ cup guacamole
+On large microwave safe platter, arrange chips.  Pour pizza sauce over chips.  Sprinkle with cheese, pepperoni, olives and chilies.  Microwave on high for 2 ½-3 minutes or until cheese is melted.  Sprinkle with green onions.  Garnish with sour cream and guacamole. 4 servings
+
+Kristin's Salsa – Chrissy Probst
+1 can black beans, drained
+1 can corn, drained
+2 or 3 tomatoes, chopped (you can also use tomatillos if preferred)
+1 bunch green onions, chopped
+1 bunch cilantro, chopped
+Small red onion, chopped
+1/4 green pepper-chopped
+Zesty Italian dressing (to taste)
+Mix all ingredients together and serve with chips.  Enjoy!
+
+Ready-To-Serve Homemade Salsa –Sue Reber
+1- 28oz can chopped tomatoes
+2  green onions
+¼ bunch cilantro, chopped
+¼  green bell pepper, chopped
+1/3 cup onion, chopped
+1 tsp. salt
+½ tsp. garlic powder
+Chop green onions, cilantro, green peppers, and onions.  Put tomatoes in blender.  Add chopped vegetables, salt and garlic powder.  Blend on pulse a few times until mixed but still chunky.  Store in fridge.
+
+
+
+
+Salsa –Becky Concoby- I like to blend everything in the blender so it is smooth.  My kids will actually eat it that way.
+2 cans Western Family chopped tomatoes with lime and cilantro
+2 chopped anaheim peppers
+2 chopped jalapeño peppers seeds removed
+2 large teaspoons chopped garlic (I buy the Wal-Mart brand pre-chopped in a bottle; I can't survive with out it in my fridge).
+1 large red onion chopped 
+1 bunch of cilantro
+1 tsp. salt or to taste
+juice from 1 lime, about 2 Tbsp.
+
+Black Bean Corn Salsa –Jill Olsen
+1 can black beans (rinsed)
+1 can Shopeg corn 
+2 cubed avocados
+3 diced tomatoes
+1 tsp. garlic salt (or 2 garlic cloves)
+1/4 to 1/3 cup cilantro
+Juice of 1 lime
+Salt & pepper to taste
+Italian dressing (add as much as you want)
+
+Cowboy Salsa – Amy Badger – This is from my dear friend Jeanne Lawyer.  We both moved to El Paso around the same time and both helped each other adjust to this unique part of Texas.
+1 can corn, drained 
+1 can black beans, drained
+3 or 4 green onion, sliced
+OR 2/3 of a purple onion, chopped
+7 Roma tomatoes, seeded and diced
+OR 2 cans diced tomatoes, drained
+1 cup cilantro, chopped
+Juice of one lime
+Mix all together and let sit for at least ½ hour.
+
+Game Day Guacamole - Liz Bunderson
+3 ripe avocados
+3 Tbsp. lemon juice
+2 medium tomatoes, seeded and chopped
+1- 4 oz. can diced green chilies
+3 Tbsp. cilantro, chopped
+2 cloves garlic, pressed
+Peel and pit avocado.  Combine all ingredients until well blended.  Serve with tortilla chips.
+Ripening tip:  Place avocado in a paper bag with an apple for 2-3 days at room temperature.
+
+Cinnamon Tortilla Chips with Strawberry Salsa –Sue Reber
+8 large flour tortillas
+water
+2 Tbsp. sugar
+1 tsp. Cinnamon
+non stick cooking spray (or parchment paper)
+Strawberry Salsa
+1 Granny Smith apple
+1 kiwi fruit
+½ medium orange
+½ of a 10 oz. package frozen, sweetened slice strawberries
+*Mango if desired
+Preheat oven to 475°. Combine sugar and cinnamon in a small bowl and set aside.
+Brush tortillas with water, using a pastry brush.  Sprinkle with cinnamon and sugar mixture.
+Cut each tortilla into wedges.  If not using parchment paper, spray pan.  Place wedges on baking sheet without overlapping and bake 5-7 minutes or until golden brown.  Cool.  Peel and chop apple, kiwi, and orange.  Chop partially thawed strawberries.  Put all fruit in a cereal bowl. Fruit should be finely chopped such as in a salsa, not a fruit salad.  Mangos may also be added if desired. Serve with cinnamon chips as a low-fat snack.
+
+Jennifer's Guacamole –Liz Bunderson -
+I got this simple recipe from my next door neighbor. I quite like it.
+2-3 avocados
+small onion
+juice from 1/2 lime
+salt to taste
+Blend all together in salsa maker or blender.  Serve with tortilla chips.
+
+
+
+
+
+
+
+Lemonade  Apples – Sue Reber
+6 Granny Smith apples, peeled, cored, and sliced
+2 Tbsp. sugar
+3 Tbsp. lemon juice, bottled or fresh
+In a medium bowl, mix sliced apples, sugar, and lemon or lime juice.  Chill until ready to serve.  This is also makes a great kid-friendly snack. Put prepared apples in Ziploc bags and refrigerate for a healthy, but sweet snack.
+Serves 6.
+
+Warm Butterscotch Dip for Fruit – Amy Badger – This dip is a fun alternative to caramel dip for apples.  Eating it warm with fruit is the best.
+1- 4 oz. cook-before-serving butterscotch pudding mix –NOT INSTANT
+1- 14 oz. can of sweetened condensed milk
+1 ½ cups of milk
+In a medium sauce pan combine pudding mix and both milks.  Cook and stir until thickened and bubbly: cook 2 minutes more.  Serve warm with apple slices, banana slices, pear slices or your favorite fruit
+
+Caramel Fruit Dip – Sue Reber
+1 (8 oz) cream cheese softened
+½ cup brown sugar
+¼ cup caramel ice cream topping
+In a small bowl, bet cream cheese and brown sugar until smooth.  Add caramel topping; beat until blended.  Serve with fruit.  Refrigerate leftovers.   Makes 1½ cup.
+
+Fresh Fruit Dip - Jill Olsen
+1 pint marshmallow cream
+1- 8 oz. cream cheese
+Cream together.  Use as dip for your choice of fruits - apples, banana, watermelon balls, or any other fruit. Variation: Add a few teaspoons of maraschino cherry juice for a lovely pink cherry dip.
+
+
+
+
+
+
+Low Fat Fruit Dip - Sarah Manis
+1- 8 oz. lite Cool Whip
+3/4 cup orange juice
+1/4 cup Karo syrup
+1 Tbsp. corn starch
+Boil corn starch, Karo syrup and orange juice until thick.  Let cool then add cool whip.  Mix well and chill.
+
+Amy’s Fruit Dip - Amy Badger
+1- 8 oz. container cool whip, thawed
+1 small yogurt (I like strawberry cheesecake or strawberry white chocolate)
+Mix together.
+
+Laurie’s Fruit Dip - Laurie Fryatt
+½ cup brown sugar
+1- 8oz. cream cheese
+Goes great with sour apples
+
+Yummy Fruit Dip –Sue Reber
+1- 8 oz. cream cheese
+1- 8 oz. cool whip
+1 small pkg. vanilla instant pudding
+¼ cup milk 
+Mix all together. (May need a little more milk for desired consistency.)  Serve with fresh fruit
+
+Coconut Fruit Dip-Amy Badger-I love having things to dip my fruit in.  
+1 can (8 oz.) crushed pineapple, undrained
+3/4 cup fat-free milk
+1/2 cup (4 oz.) fat-free sour cream
+1 tsp. coconut extract
+1 pkg. (3.4 oz.) instant vanilla pudding mix
+In a blender, combine the first five ingredients; cover and process for 1 minute or until smooth. Serve with fruit. Store in the refrigerator.
+
+Banana Treat - Laurie Fryatt
+Roll 1 inch slices of banana in yogurt, then roll in nuts, coconut, crushed cookies or crushed cornflakes.  Freeze then serve.
+
+
+
+
+Birdseed - Grandma Grace - This “wheat treat” was served in nut cups at several Chantry weddings.
+1 qt soft wheat - either soak for 48 hours -  changing water once or slow boil until double in bulk about 1 ½ - 2 hours.  Drain and spread out to dry rest of moisture.  Fry small amount of wheat at a time in hot deep fat for 2-3 minutes. Don't burn or get too dark.  Light tan is just right. Roast 2 cups raw peanuts in 200° oven for ½ hour or until you can just see the oil coming on nuts.  Add to wheat.  You can add 1 cup sunflower seeds.  1 cup salted peanuts. Season lightly with onion salt or garlic salt.  Plain wheat can be popped in small amount of hot fat stirring so it won't burn.  This can be used in place of the deep fat fried wheat.  Rice can also be popped in hot oil and added.  If you don't have soft wheat, use what you have.
+
+Personal Size Chex Mix – Emily Hammerstad
+2 cups Corn Chex
+1 cup Rice Chex
+½ cup pretzels
+½ cup chips
+2 Tbsp. butter
+2 tsp. Worchester Sauce
+½ tsp. salt
+¼ tsp. Garlic Powder
+Scant Onion Powder
+Preheat oven to 250°.  Combine all ingredients in a bowl and spread evenly on a baking sheet.  Bake for 1 hour, flipping every 15 minutes.
+
+Can’t Leave ‘Em Alone Nuts – Liz Bunderson
+½ cup water 
+1 cup sugar
+¼ cup brown sugar
+5 Tbsp. cinnamon
+2 1/3 cups almonds or other nuts
+In a heavy pan bring water to a boil.  Add in sugars and return to a boil.  Add cinnamon and nuts and stir constantly until all liquid has cooked out.  Pour nuts on a greased cookie sheet in a single later.  Bake at 325° for 15 minutes.  Cool.  Best when stored uncovered.
+
+
+
+South of the Border Popcorn -
+Bonnie Chantry
+1 cup shredded Colby or Jack cheese
+2 Tbsp. melted butter
+1 tsp Taco seasoning
+2 quarts popped popcorn
+
+No-Bake Granola Balls-Amy Badger
+1/2 cup creamy peanut butter 
+1/2 cup honey 
+1/2 cup granola 
+1/2 cup crispy rice cereal 
+1/2 cup raisins 
+1/2 cup crushed graham crackers 
+Heat peanut butter and honey in a pan over low heat until creamy. Remove from heat and pour into a bowl to cool. Add granola, cereal, raisins and graham cracker crumbs to the peanut butter mix, and stir it all together. Roll into balls and set on wax paper. Refrigerate at least one hour before eating. Makes 12 servings.
+
+Jerky - Jill Olsen
+1- 16 oz soy sauce
+3 Tbsp. Worcestershire sauce
+1 ½ Tbsp. liquid smoke
+1 tsp. scant garlic salt
+1 tsp. onion salt
+Tabasco - 10 shakes
+pepper to taste
+Cut deer meat into ½ inch thick strips, marinate overnight (shake container occasionally) Pound out, re-pepper and dry 6-8 hours or more if necessary.
+
+Olsen Snack Factory – Barbara Olsen
+-Spread cream cheese generously over bagel and warm in microwave for 30 seconds.
+-Spread cream cheese on Townhouse cracker and add thin slice of Granny Smith apple
+-Spread cream cheese on thinly sliced ham.  Place whole green onion on one end and roll up.  Cut in 3” pieces.
+-Mix chopped green onions and celery in softened cream cheese and spread on ham. Roll up and cut into 3” pieces.
+
+
+After School Snack - Julie Chantry - With teenagers at home and on the run, after school snacks must be a dinner substitute at times, so we try to keep these in our freezer.
+-Mix salsa and refried beans, put on a tortilla shell and top with shredded cheese.  Fold over ends and roll up.  Wrap individually and freeze (Shells roll better if warmed first.)  Cook in microwave or toaster oven
+-On English Muffin top as you would your pizza.  Freeze in freezer bags or individually.  Cook in toaster oven.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Root Beer - Grandma Grace
+1 bottle root beer extract
+4 lbs. sugar
+4 gallons cold water
+5 lbs. dry ice
+Pour bottle of extract over sugar, add water and stir well.  May want to dissolve the sugar in warm water.  The rest of the water needs to be cold as the dry ice does not cool. Add dry ice and let it work for a half hour.
+
+Bottled Root Beer - Grandma Walker - Those who had the opportunity to drink some of Grandma’s Root Beer will appreciate the memories.  
+1 bottle root beer extract.  
+Pour over 4 lbs. sugar.  
+Mix well.  Dissolve this mixture in 4 ¾ gallons of lukewarm water.  Put ½ yeast cake in a cup of lukewarm water and let stand five minutes.  If weather is over 90° use less yeast if under 70° double the quantity of yeast.  Add yeast to mixture and stir well.  Bottle immediately.  Fill bottles to within ½ inch of the top.  Place bottles on their side.  Cover so draft can’t hit them.  Should be ready in two or three days.  Keep them in a cool place.
+
+Raspberry Slush - Jill Olsen
+2 cups sugar (1 ½ cup if raspberries are sweetened)
+3 ½ cups water
+Bring to boil and cool.  Add:
+6 oz undiluted orange juice
+1 pkg. of frozen raspberries
+1 can of crushed pineapple -optional
+Mix together, stirring occasionally while freezing.  Take out a few hours before using.
+
+Slush for 50 - Bonnie Chantry - This green concoction has been used at several of the Chantry wedding reception.
+2 pkg. lime Jell-O
+3 cups sugar
+1- 46oz. pineapple juice
+1 can crushed pineapple
+4 mashed bananas
+3 bottles of Sprite (2 liter size)
+Dissolve Jell-O with 1 cup boiling water.  Add sugar and 7 cups warm water.  Stir.  Add pineapple juice and 5 cups cold water.  Add pineapple and bananas.  Freeze 2 days before needed (or longer). Set out of freezer for several hours before serving.  Serve slush mixture covered with Sprite.  
+
+Slush - Angela Olsen
+1 liter 7-up
+1- 32 oz pineapple juice
+1 1/2 gallon vanilla ice cream
+1 1/2 gallon orange sherbet
+Combine and serve.
+
+Raspberry Frappe - Sue Reber 
+Served at Amy & Justin Badger's reception
+½ gallon raspberry sherbet
+2 liter 7-Up
+Soften sherbet then mix in with 7-Up.  Looks elegant and tastes great.
+
+Russian Tea Punch - Grandma Reber
+2 cups sugar
+2 cups water
+2 quarts orange juice
+3/4 cup lemon juice
+1 tsp. vanilla
+1 tsp. almond flavoring
+Boil sugar and water.  Add rest of ingredients.  Everyone asks "what is your secret ingredient?"
+
+Holiday Punch - Bonnie Chantry
+2 pkgs. Kool-Aid (unsweetened)
+3 qts. water
+2 cups sugar
+1 46oz. can of pineapple juice
+1 6oz. frozen lemonade concentrate
+1 qt. Sprite
+Mix together and serve.
+
+Party Punch - Trisha Olsen
+1 qt. apricot nectar
+3 pkgs. orange punch powder
+3 cups sugar
+3 qts. water
+Combine ingredients (add more water, if desired) Add 7-Up just before serving.
+
+Relief Society Punch - Barbara Olsen
+5 pkgs. cherry punch powder
+5 pkgs. orange punch powder
+1- 46oz. can orange juice 
+1- 46oz. can pineapple juice 
+1 large mashed banana
+8 cups sugar
+Mix thoroughly, add 4 gallons water.  Juice can be warmed a little to dissolve sugar.  5 gallons
+
+Banana Fruit Cocktail  - Marjean Spencer  
+Ryan really likes this one.
+Syrup:
+4 cups sugar
+7 cups water
+pinch of salt
+Heat to boil.  Cool.  Mix with fruit and freeze.
+Fruit:
+2 small cans undiluted orange juice
+6 Tbsp. lemon juice
+6 bananas sliced
+2 cans (20 oz) crushed pineapple with juice.
+Serve with 7-Up.
+
+Lemonade for one - Clint Fielding
+Juice of 1 lemon
+3/4 cup water
+2 Tbsp. sugar
+Put sugar in a glass.  Add ice water, stir until sugar is dissolved.  Add lemon juice and serve.  
+
+Lemonade for Many - Clint Fielding
+3/4 cup sugar
+½ cup lemon juice
+4 cups water
+Boil sugar and 2 cups water for 3 min. Cool, add lemon juice and water.  Pour over ice.
+
+Brazilian Lemonade –Emily Hammerstad
+3 limes
+3 Tbsp. sweetened condensed milk
+½ cup sugar
+3 cups water
+handful ice
+Cut limes in half and then into 8ths. Place in blender with other ingredients.  Blend in short fast spurts for just a few times.  Make sure you don't do too much or it will taste like the rind of the lime.  Strain the drink and serve with ice.
+Cherry Limeade – Liz Bunderson
+serves 10-12
+12 oz. limeade concentrate
+1 to 2 liters 7-Up
+maraschino cherry juice
+pebble ice
+Stir all together in a punch bowl and enjoy!
+
+Shirley Temple - Jared Reber -Using the makings for mixed drinks, without the alcohol, is a great  way to make wonderful party beverages.  My favorite is grenadine syrup, which is used to make a drink commonly referred to as the "Shirley Temple."  
+Blend a bunch of ice in a blender, or if you like just take a big bag of ice and beat it with a kitchen mallet on the porch for two or three minutes.  Fill glasses full of the shaved/cracked ice stuff. Pour in about two fingers worth of the grenadine syrup over the ice.  Of course you won't be able to measure two fingers worth because it will be dripping over the ice you just put in there.  Just approximate.  Fill the rest of the glass with 7-Up or sparkling water.  The drink has a bit of a watermelon and pomegranate flavor.  Note: By leaving out the liquor you can remember how good it tastes the next morning. 
+
+Orange Julius - Grandma Grace
+1- 6 oz. can frozen orange juice concentrate 
+1 cup cold water 
+1 cup cold milk 
+½ cup sugar 
+1 tsp. vanilla 
+14 ice cubes (1 tray)
+Put all but ice in blender container. Blend, adding ice cubes a few at a time, until there are no more chunks of ice. Makes 1 quart.
+
+Strawberry Colada  - Tawna Marsh
+3 cups crushed ice
+1 1/2 cups pineapple juice
+½ cup cream of coconut
+2/3 cup frozen strawberries
+Blend in blender.  Garnish with strawberries
+
+
+
+Summertime Brazilian Avocado Shake –
+Jon Marsh
+1/2 avocado
+1 1/2 cups milk
+1/2 cup ice
+3 Tbsp. sugar
+Add all ingredients into a blender & blend on high for 1 minute. Add more sugar to taste.
+
+Fruit Smoothie – Sammi Jo Stewart - This is my breakfast or bedtime snack!  I make it different every time and it always turns out yummy!
+1 cup vanilla yogurt 
+(Dannon Light and Fit is my favorite)
+1 handful of fresh spinach
+1/2 of a frozen banana
+a little milk or orange juice (your preference-creamy or zingy) Blend together in blender.
+ Note: I always use these ingredients and then add any fruit or veggies I have. Super healthy and super tasty!
+
+Peach Cooler - Jared Reber – Almond extract is my secret ingredient to delicious smoothies.
+2 cups milk
+1 egg
+1 peach, cut up
+1 Tbsp. sugar
+1 tsp. almond flavoring
+Blend till smooth.
+
+Creamy Peach Freshener - Tawna Marsh
+Put together in blender:
+1 cup fresh or bottled peaches 
+OR any fruit you like
+2 cups milk
+1 scoop vanilla ice cream
+4-5 ice cubes
+½ tsp. vanilla
+Blend until ice cubes are gone.
+Can add an egg and 1/4 cup wheat germ.
+
+Kid’s Fruit Coolers  - Alice Chantry
+DW & Eliza love to help make these.
+1 banana					
+6 strawberries
+10 grapes
+8 cubes ice
+Blend fruit in blender, then add ice a couple at a time, till they are all crushed.  Put some in cups then add Sprite and serve.
+
+“Peanut Butter Mood” Protein Shake – Justin Badger – Tastes like the shake at Jamba Juice for those of us who don’t live by one.
+2 scoops chocolate protein (apprx. 1/3 cup)
+2 cups skim milk
+two handfuls of ice
+2 Tbsp. creamy peanut butter
+1 slightly ripe banana (don’t use a brown banana, it just doesn’t taste right in this drink)
+Blend on high in a blender.  Enjoy at night in the place of some fattening dessert.
+
+Chocolate Frosty – Landon Reber - This recipe tastes likes a Wendy's Frosty.
+1 cup of milk
+1/2 cup of Nesquik Cocoa Mix, the kind with the bunny on the container
+2 really, really large scoops of vanilla ice cream
+Blend them all up in the blender until thick but pretty smooth. Note: You can use Hershey's syrup if you don't have Nesquik Cocoa Mix.
+
+Diet Milk Shakes - Grandma Grace – “Grandpa Fay told me he thought 1% milk was just white water.  I asked him what he thought skim milk was, and he said it wasn’t even worth considering.  I guess he didn’t mention that to Grandma Grace.” …Amy Badger.
+1 cup skim milk
+½ tsp. flavoring
+artificial sweetener
+2 ice cubes
+Blend for about 30 seconds or until frothy.  then if desired add unsweetened frozen strawberries or any fresh fruit. 
+
+Diet Fruit Drink - Grandma Grace - Created by Grandma for diabetics in the family.
+2 ½ cups milk
+1 small can frozen orange juice 
+OR 3 bananas
+1 tsp. vanilla 
+artificial sweetener, to taste
+1/3 tray of ice cubes
+Mix in blender.
+Eggnog - Sue Reber - Cooking gives this a real mellow flavor.
+1/3 cup sugar
+2 egg yolks
+1/4 tsp. salt
+4 cups milk
+2 egg whites
+3 Tbsp. sugar
+1 tsp. vanilla
+½ cup whipping cream, whipped
+ground nutmeg
+Beat 1/3 cup sugar into egg yolks.  Add salt, stir in milk.  Cook over medium heat stirring constantly, till mixture coats spoon.  Cool.  Beat egg whites till foamy.  Gradually add 3 Tbsp. sugar, beating to soft peaks.  Add to mixture then mix thoroughly.  Add vanilla and flavoring.  Chill 3-4 hours.  Pour into punch bowl or cups.  Dot with "island" of whipped cream, dash with nutmeg.  Serves 6-8.
+
+Wassail - Janine Hinkle
+Spice bag:
+2 sticks of cinnamon
+1 piece ginger
+8 allspice berries
+10 whole cloves
+Syrup:  
+2 cups sugar
+1 quart of water
+Boil 5 minutes and turn off heat.  Put spice bag in for 1 hour.  Stir occasionally
+Add:  1 qt. cider or apple juice
+2 cans frozen orange juice or 10 oranges
+1 can lemonade concentrate or 8 lemons
+Heat but do not boil.  If too strong, add a little more water.
+
+
+
+
+
+
+
+
+
+
+
+
+Spiced Hot Punch - Sue Reber – An Avon Open House at our home wouldn’t be the same without this simmering on the stove.
+6 quarts water
+3 ½ cups sugar
+2 sticks cinnamon
+1 tsp. cloves
+1 large can pineapple juice
+1 small can orange juice 
+3/4 cup lemon juice
+2 tsp. vanilla
+1 tsp. almond flavoring
+Boil water, sugar and spices for 5 minutes then add the juices and warm to drinking temperature. Add flavorings. Better made the day before.
+
+Hot Apple Cider Nog - Clint Fielding
+2 eggs, beaten
+½ cup sugar
+1 cup apple juice or cider
+½ tsp. salt
+½ tsp. cinnamon
+1/8 tsp. nutmeg
+3 cups milk, scalded
+½ cup whipping cream, whipped
+Combine eggs, sugar, cider, salt and spices.  Add scalded milk gradually; heat, stirring constantly.  Serve hot or chilled.  Pour into mugs, top with whipped cream.  Makes 6 servings.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Grandma Grace’s Basic White Bread - Grandma Grace
+1 cup milk, heated 
+OR 1/3 cup powdered milk and 3/4 cup water
+1 Tbsp. shortening (or oil)
+1 Tbsp. sugar
+1 tsp. salt
+1 tsp. dry yeast
+2-3 cups flour
+Mix first 5 ingredients until all dissolved.  Add flour and mix well. When stiff, knead well.  Form into a loaf and bake 375° for 30-40 minutes.  Increase proportions for number of loaves you wish to make.  For 4 loaves use 2 Tbsp. yeast.
+
+Fielding’s Whole Wheat Bread 
+Grandma Grace - Made from our own stone ground whole wheat flour.
+½ Tbsp. yeast in 1/4 c. warm water
+3 Tbsp, oil
+3 Tbsp. honey
+1 Tbsp. salt
+2 ½ cup scalded milk (or warm water)
+1 egg, beaten
+1 cup potato flakes
+6 ½ cups whole wheat flour
+Mix as usual.  Let stand for a few minutes then knead and knead!  Let rise until "ripe". About 50 minutes.  Knead down and let rise for 30 minutes. Knead down and let rise for 20 minutes.  Divide into two balls and let relax for 10 minutes.  Form 2 loaves and put in tins.  Let rise ONLY to top of pan.  Bake 35 min. at 450° (if your oven will allow it without burning).
+
+Whole Wheat Bread - Sue Reber - Good tasting bread that uses all wheat flour, no white and not too sticky to knead.   
+5 cups hot water
+2 Tbsp. yeast in ½ cup warm water
+2/3 cup oil
+2/3 cup honey
+3 tsp. salt
+12 cups whole wheat flour
+Mix all but flour with mixer or with dough hook.  Add 6 cups flour.  Mix and let rest 10 minutes. Then add additional 6 cups flour and mix well.  Let rise, about one hour.  Put on floured board and knead.  Can let it rise again if have time.  Make into loaves.  Let rise no more than 1/3 in bulk (about 30 min.).  Bake at 350° for 40 minutes.
+
+The Most Wonderful Wheat Bread You Have Ever Tasted – Amy Badger – My friend Kellie Braun made this bread for me and I thought I was in heaven.  I have made it several times as gifts for others and they all agree it is the most wonderful wheat bread they ever tasted either.
+6 to 7 cup whole wheat flour
+2 Tbsp. Vital wheat gluten 
+3 to 4 Tbsp. honey, can add additional one
+1 ½ Tbsp. salt
+1 tsp. to 1 Tbsp cinnamon to taste
+1 tsp. to 1 Tbsp. maple flavoring (I use 1 Tbsp.)
+2 Tbsp. shortening
+3 Tbsp. yeast
+2 ¼ cups very warm water
+1 cup cooked wheat kernels
+¼ cup cooked wheat kernels for topping
+Put 3 ½ cups flour and dry ingredients in Bosch or Mixing aid.  Add shortening and maple flavoring.  Add water.  Mix for about 1 minute until smooth.  Add cooked cracked wheat.  Add remaining flour. Mix dough for about 3 minutes or knead dough for about 10 to 12 minutes.  Spray bowl with Pam; add bread and spray with Pam.  Cover and let double for about 1 hour.  Punch down and shape into two round pheasant style loaves.    Put on to greased cookie sheet with seam side down.  Push the ¼ cup of wheat kernels lightly onto the to top and sides of the loaves.  Cover with plastic wrap sprayed with Pam and cloth over it to keep in heat.  Let rise until double.  Move oven rack to low position so that tops are in the center of the oven.  Bake at 425º for 25 to 30 minutes or browning on top.  When you pull bread out of oven, allow to cool on its side so that it will not fall.  Brush with honey butter while still warm.
+
+
+
+
+
+
+Homemade Brown Bread –Jill Olsen
+1 1/2 cups boiling water
+1 cup old fashioned oats
+2 Tbsp. shortening
+2 tsp. salt
+1 package of dry yeast
+3/4 cup warm water
+1/2 cup sugar
+1/4 cup packed brown sugar
+1/4 cup molasses
+4 3/4 to 5 1/4 cups flour
+melted butter or margarine
+In a bowl combine the first four ingredients. cool to 110-115°. In a mixing bowl dissolve yeast in warm water. Sprinkle with sugar. Add oat mixture, brown sugar, molasses and 3 cups flour: mix well. Add enough remaining flour to form a soft dough. Turn onto a floured surface and knead until smooth and elastic about 6-8 min. Place in a greased bowl; turn once to grease top. Cover and let rise in a warm place until doubled, about 1 hour. Punch down. Divide in half; shape into loaves. Place in two greased loaf pans. Cover and let rise until doubled. about 30-45 min. Bake at 375° for 30-35 minutes or until golden brown. Remove from pans; cool on wire racks. Brush tops with butter. Makes 2 loaves.
+
+Original Bread - Janine Hinkle -I love making wheat bread. This recipe just evolved over the years.  Hope you'll try it & enjoy the results.  
+3 cups wheat flour
+3 cups Quaker Oats
+6 cups white flour
+1 Tbsp. salt
+2 Tbsp. yeast
+Mix all together. 
+Then add:
+2/3 cup oil
+2/3 cup honey or sugar (honey tastes best)
+5 cups hot tap water
+Mix and knead only slightly.  Let rise.  Punch down and divide into 4 loaves and place into bread pans.  Let rise until double in bulk.  Bake at 350°.  When you smell the bread baking set the timer for 5 more minutes.  (Don't laugh, it works for me)
+
+Bread in 2 Hours - Diane Anderson
+4 cups warm water
+4 Tbsp. yeast in ½ cup warm water
+½ cup honey
+1 Tbsp. salt
+2 Tbsp. oil
+12 cups flour
+Mix together let rise half hour.  Form into loaves and put in pans.  Let rise half hour.  Bake at 400° for half hour.  4 loaves
+
+Egg Bread - Amy Badger –This is my favorite loaf of homemade bread.  It smells delicious and melts in your mouth. Makes a 1 ½ lb. loaf in the bread machine
+¾ cup milk 
+2 eggs
+3 cups bread flour
+1 ½ tsp. salt
+3 Tbsp. butter or margarine
+¼ cup sugar
+2¼ tsp. yeast
+Place all ingredients into bread pan, select Light Crust & regular setting and push Start.
+Note:  Heat up a slice for 10 seconds in the microwave to make it taste melt in your mouth smooth even two or three days after baking.
+
+Swiss Bread – Chrissy Probst - This is the Swiss Bread recipe that is used for the bread sold at Swiss Days in Midway.  We got to be a part of making bread for Swiss Days when we lived in Midway, Utah.  I find that if I keep my yeast in the freezer, it lasts longer.  This recipe makes wonderful scones as well.
+Mix and let work:
+2 Tbsp. yeast
+1 cup lukewarm water
+3/4 cup sugar
+Add:
+1 1/2 cups powdered milk
+4 cups warm water
+2 Tbsp. salt
+4 eggs
+1/2 cup butter
+about 10 cups flour (can mix wheat/white)
+Mix and let raise about 1 hour.  Punch down and let rest 5-10 minutes.  Mold into loaves or braid it.  Bake at 350° for 30 minutes.
+Brazilian Bread - Janine Hinkle
+I tried this recipe from the old family cookbook because I know a lot of people who have gone to Brazil on missions (including Daddy Doug) I've made this for ward socials - was a big hit.  
+3 cups water
+2 Tbsp. yeast 
+2 Tbsp. sugar
+4 tsp. salt
+1/4 cup shortening
+8 cups flour
+Mix and knead; let bread rest ten minutes.  Repeat five times.  Place on cookie sheet sprinkled with corn meal.  Slash top on angle.  Butter the top.  Put damp cloth on top.  Make pleats in towel to allow for rising.  Let rise 1½ hours.  Bake 400° for 30- 35 minutes.  Put flat pan of water in oven to make crustier.   Note: The original recipe called for 4 Tbsp salt and 4 Tbsp sugar.  This makes a very salty bread - tastes like pretzels and makes a good "sopping bread".  We like it with less salt and sugar.
+
+Re-fried Bean Bread –Jill Olsen
+2 cups lukewarm milk
+4 1/2 tsp. yeast OR 2 packages
+2 cups re-fried beans
+2 Tbsp. sugar 
+2 Tbsp. salt
+2 Tbsp. shortening
+4-5 cups flour
+Dissolve yeast and sugar in warm milk. Mix beans, salt, shortening and 1 tsp. flour.
+Add yeast and milk. Mix well. Add flour a little at a time. Knead dough. Place in a greased bowl. Cover with a damp cloth. Let rise until doubled. Punch down, and form into 2 loaves. Bake at 350° for 30-40 min.
+
+Herbed Tomato Bread-Amy Badger – This recipe was the first unique bread that I ever tried in my bread machine.  The positive results led me to try lots of other fun and different bread machine recipes. Makes a 1 ½ lb. loaf.
+½ cup plus 2 Tbs. warmed milk
+1-6oz can tomato paste
+1 egg
+2 Tbsp. olive OR vegetable oil
+½ tsp. salt
+2 Tbsp. minced fresh parsley
+OR 1 Tbsp. dried parsley
+1 Tbsp. sugar
+2 tsp. dried minced onion
+½ tsp. garlic powder
+½ tsp. dried tarragon
+3 cups bread flour
+2 ¼ tsp. active dry yeast
+Place ingredients into bread machine pan.  Select basic bread setting and 1 ½ pound size loaf.  Check dough after 5 minutes of mixing; add 1 to 2 Tbsp. of flour if sticky or 1 to 2 Tbsp. water if too dry.  To make without a bread machine, Mix all ingredients until dough forms, knead well, about 10 minutes.  Let rise for 1 hour, or until doubled in size.  Punch down and form into loaf. Let rise until almost even with top of pan.  Bake in loaf pan for 50 to 60 minutes at 350º.
+GARLIC CHIVE SPREAD:
+½ cup butter or margarine, softened
+1 Tbs. minced chives
+1 garlic clove, minced or
+1 tsp. garlic powder
+Mix together and serve with tomato bread.
+
+French Bread - Becky Concoby
+2 Tbsp. yeast dissolved in ½ cup tap water
+3 Tbsp. sugar
+1/4 cup oil
+2 cups hot water
+1 Tbsp. salt
+6 cups flour
+1 egg 
+sesame seed
+Mix yeast and ½ cup water and let rest.
+Add sugar, oil, hot water, salt and 3 cups flour.  Mix well, and then add 3 more cups water.  Let rest for 4 ten minute periods.  Punch down after each 10 minute periods. Roll out like a cinnamon roll.  Place on greased sheet. Let rise 15-20 min.  Slash with knife.  Brush with beaten egg and add sesame seeds. Bake at 375° for 30 min. Two loaves.
+
+
+
+
+
+No-Fail French Bread –Rachel Mitchell
+2 Tbsp. yeast
+1 Tbsp. sugar
+½ cup warm water
+2 cups hot water
+½ cup oil
+2 Tbsp. sugar
+1 Tbsp. salt
+6 cups flour
+In a small bowl stir and set aside: yeast, 1 Tbsp. sugar and ½ cup warm water.  In large bowl combine 2 cups hot water, oil, 2 Tbsp. sugar and salt.  Add yeast mixture which should be rising.  Stir in 3 cups of flour gradually, then add 3 more cups and stir well.  Leave the spoon in the batter and let rest for 10 minutes.  Repeat stirring the batter every 10 minutes for 1 hour (5 times). Turn out on floured surface.  Knead only long enough that the dough can be handled.  Divide in half.  Roll each piece into a 12” roll like for cinnamon rolls.  Place on a greased cookie sheet.  If desired, wet the top with warm water and sprinkle with sesame or poppy seeds.  Make 3 diagonal slashes across the top.  Let rise 3- minutes to 1 hour until double in size.  Bake at 400° for 15 minutes and then reduce heat to 350° for 15 minutes until done.  Note: Can also be used for hot dog or hamburger buns
+
+Garlic Bread - Jill Olsen
+Cut French bread lengthwise, spread with butter, sprinkle with garlic.  Spread with mayonnaise, top with grated cheddar and Monterey Jack cheese.  Sprinkle with Parmesan and paprika.  Cover with foil and bake.  Uncover and broil to toast.
+
+Tawna's Thanksgiving Hot Rolls – Tawna Marsh - I use a Bosch mixer with the dough hook
+1 quart hot water
+3 Tbsp yeast
+1/2 cup sugar
+1/2 cup melted butter
+1 cup instant dry milk
+1 Tbsp salt
+3 eggs
+10-12 cups flour, divided
+Add all the ingredients with only 4-5 cups of flour and mix to combine, scraping the sides of the bowl.  Gradually add the rest of the flour 1 cup at a time until just barely not sticky.  The amount of flour you add will depend on how much moisture is in the flour and in the air.  Let the mixer go on low for 10 minutes to knead the dough.  Prepare pans by coating them generously with butter.  Spread a few tablespoons of oil on the counter and dump the dough out after it has kneaded.  Rub the oil on your hands and pinch off a chunk of dough.  Squeeze a ball of dough between your thumb and forefinger about the size of a ping pong ball.  Place on buttered pan, cover with a cloth and let raise until double. (30-60 minutes depending on the temperature of the room)  Bake at 375° for 15 minutes.  Brush butter generously on top of hot rolls.  Serve while warm with butter!  This recipe usually makes one cookie sheet and one 9x13” pan of rolls.  The yummy secret to this recipe is being VERY generous with the butter!!  At Thanksgiving, butter is our friend!  This recipe was originally Grandma Barbara's bread recipe that I just changed up by adding more sugar, changing the oil to butter and adding eggs.  Eggs make the rolls more "cake-like."
+
+Hot Rolls - Grandma Grace via Aunt Joyce via Bonnie - At the dinner table when asking for a roll, be prepared to catch, for Grandma would throw it to you. A memory of Grandma - the aroma of hot rolls, the taste and the family tradition of throwing rolls at the table.
+Soften 2 Tbsp. yeast in ½ cup warm water
+Meanwhile, beat 3 eggs
+Add ½ cup shortening
+1/3-1/2 cup sugar
+Cream, like for a cake.
+Add 1 tsp. salt 
+and 1 cup flour
+Add yeast mixture and mix.
+Add 1 cup flour and beat
+Add 1 cup warm milk and beat again
+Add enough flour to make soft dough
+Let rise till double, beat down and let rise again.  Form into rolls, let rise 1 hour.  Bake 400° for 12-15 minutes.
+Basic Roll Dough - Marjean Spencer
+1 pkg. dry yeast dissolved in ¼ cup warm water
+1 cup milk, scalded
+1/4 cup sugar
+1/4 cup shortening
+1 tsp. salt
+3 ½ cup sifted flour
+1 egg
+Soften yeast in warm water (110°).  Combine milk, sugar, shortening and salt; cool to lukewarm.  Add 1½ cups of flour; beat well.  Beat in yeast and eggs.  Gradually add remaining flour to form soft dough, beating well.  Place in greased bowl, turning once to grease surface.  Cover and let rise till double (1 ½ - 2 hours).  Turn out on lightly floured surface and shape as desired.  Cover and let shaped rolls rise till double.  (30-45 minutes).  Bake on greased baking sheet or in greased muffin tins at 400° for 12-15 minutes
+
+Bread Sticks - Garth & Ruby Fielding
+Use the above basic roll recipe.  Put dough on greased cookie sheet. Press or roll out into the pan like pizza dough.  With sharp knife cut across the dough into desired size of bread stick without cutting all the way through the dough.  Score for sticks then cover with a layer of melted butter.  Top with Parmesan cheese, Mrs. Dash sprinkles, garlic salt or powder, corn meal, Italian seasoning or any desired topping.  Let rise then bake at 400° for 18 minutes.  
+
+Dinner Rolls - Sue Reber - Recipe from Karen Brown who was the official roll maker in the Grant 2nd Ward in Salt Lake.
+2 cups warm water
+1/3 cup shortening
+1/3 cup sugar
+2 ½ tsp. salt
+1 egg
+2/3 cup dry milk
+2 Tbsp. dry yeast
+Mix together and add 5-6 cups flour.  Mix and knead to a slightly sticky dough.  Let stand until it triples in size.  Punch down and shape into rolls.  Rise to double in size and bake at 350 for 12 minutes.  These rolls can be shaped and placed on baking pans, covered and frozen.
+All-Bran Dinner Rolls - Bonnie Chantry-
+These were a favorite dinner roll for the missionaries in Athens Greece.  Shirlyn Frost made them regularly to share with the missionaries who came into the office.  Shirlyn and her husband Ken were the office couple.
+Mix and set aside:
+2 cups warm water
+3 Tbsp. dry yeast
+Mix and let cool:  
+2 cups boiling water
+1 cup All Bran
+When bran mixture cools, add yeast mixture.
+Then add:
+1 cup oil
+½ cup sugar
+4 eggs, beaten
+10-12 cups flour
+Mix to a good SOFT dough consistency.  Let rise, knead down and let rise again and punch down again.  Mold into a ball shape.  Put in greased dripper pan and let rise again.  Bake 350° for 20 minutes.
+
+Honey Pan Rolls – Amy Badger -This is one of Justin’s favorites.
+1 cup warm milk (70° to 80°) 
+1 egg & 1 egg yolk (save white for glaze) 
+1/2 cup vegetable oil
+2 Tbsp. honey
+1-1/2 tsp. salt
+3-1/2 cups bread flour
+2-1/4 tsp. active dry yeast
+GLAZE: 
+1/3 cup sugar
+2 Tbsp. butter, melted
+1 Tbsp. honey
+1 egg white
+In bread machine pan, place the first eight ingredients in order. Select dough setting (after 5 minutes of mixing; add water or flour if needed.) When cycle is completed, divide dough into 24 balls. Place 12 balls each in two greased 8-in. baking pans. Cover and let rise in a warm place until doubled, about 30 minutes. For glaze, combine sugar, butter, honey and egg whites; drizzle over dough. Bake at 350° for 20-25 minutes or until golden brown. 
+
+Parker House Rolls - Grandma Grace via Aunt Zeona via Bonnie
+½ cup canned milk scalded in 2 cups hot water (or 2 ½ cups milk)
+Add ½ cup sugar, cool to lukewarm
+Add 3 pkg. yeast.  
+Let yeast rise
+Add:  3 tsp. salt
+1/4 tsp. mace (optional)
+½ cup cooking oil
+4 beaten eggs
+Enough flour to make a heavy sponge.  Rise until light.  Roll 1/4 inch think, cut with round cutter and fold. Place on greased baking sheet. Let rise again. Bake 400° for 10-12 minutes.
+Notes from Bonnie Chantry: Watching Grandma Grace make her Parker House Rolls was an adventure and no one can do it like she did.... you'll see why! In the early years she would use the hot water and the 1/2 c. of Sego evaporated milk  (which is not sweetened condensed milk), mainly because she didn't like the smell of the fresh milk from cows. Like me the smell of the separating the cream from the milk in a separator would make her nauseated.  In those early years, one always scalded the milk before using it to kill anything that might be growing in it.  In later years she would either use "store bought" milk or her diluted Sego still heating it even though unneeded. She added the sugar to the milk while it was still very warm so that the sugar would melt before it was cool enough to add the yeast cakes... for there was no dry yeast at the time.  Later in life she used the dry yeast that we now have.  1 cake of yeast was = to 1 T. of dry yeast. Then she let the yeast begin to work in the liquid.  After it was bubbly, she would add the salt, melted shortening until vegetable oil came along.  The eggs were beaten as if you wanted to make a fluffy omelet.  She stirred in enough flour to make a heavy sponge (translation:  slightly sticky bread dough or regular roll dough) Let this mixture rise until light.  She would push her finger into the dough to see when it was ready.  If her finger mark  left the dough indented it was ready to roll out but, if it pushed back out then it still needed to rise some more.  After rolling out the dough to about 1/4 inch thick she would use a glass rim to cut out the round rolls.  In later years she would dip each circle of dough in melted butter and place it on a slightly greased baking sheet.  Each roll was folded in half and allowed to rise again.  Folding them makes it easy to open the roll to add butter (if you wanted more than it already had) and jam. When it has almost doubled in bulk bake at 400° oven for 10-12 minutes until the rolls are a golden brown.
+
+Crescent Rolls - Sue Reber
+2 Tbsp. yeast
+3/4 cup warm water
+3/4 cup buttermilk or sour milk
+3/4 cup sour cream
+5 ½ cups flour
+½ cup shortening
+2 Tbsp. sugar       
+2 tsp. baking powder
+2 tsp. salt
+Dissolve yeast in warm water.  Add 2 ½
+cups flour and rest of ingredients. Blend on
+low.  Stir in remaining flour and knead for 5 
+min. Divide dough into 3 parts.  Roll dough 
+into 12 inch circle about ½ inch thick.  
+Spread with soft butter.  Cut into 16 wedges.  Roll up, beginning at rounded edge.  Place rolls with point underneath, on greased baking sheet.  Curve slightly, brush with butter.  Let rise 1 hour before baking.  Heat oven to 375°.  Bake rolls 20-25 min.  Makes 48 rolls.
+
+Linz’s Yummy Rolls – Kadie Allred
+1 dozen frozen rolls
+1/3 c margarine (melted)
+2 tsp parsley
+¾ cup parmesan cheese
+1 tsp. garlic powder
+1 tsp. salad supreme seasoning
+Mix all ingredients together except rolls. Spread on top of frozen rolls, then let rise & bake according to directions on bag.
+
+
+
+
+
+Pumpkin Knot Rolls –Amy Badger –After Halloween we cook up our decoration pumpkins and love making recipes like this one in November.
+4 ½ tsp. active dry yeast
+1 cup warm milk (110° to 115°)
+1/3 cup butter or margarine, softened
+1/2 cup sugar
+1 cup cooked or canned pumpkin
+3 eggs
+1-1/2 tsp. salt
+5-1/2 to 6 cups all-purpose flour
+1 Tbsp. cold water
+In a mixing bowl, dissolve yeast in warm milk. Add the butter, sugar, pumpkin, 2 eggs, salt and 3 cups flour. Beat until smooth. Stir in enough remaining flour to form a soft dough.  Turn onto a lightly floured surface; knead until smooth and elastic, about 6-8 minutes.  Place in a greased bowl, turning once to grease top. Cover and let rise in a warm place until doubled, about 1 hour.  Punch dough down. Turn onto a lightly floured surface; divide in half. Shape each portion into 12 balls. Roll each ball into a 10-in. rope; tie into a knot and tuck ends under. Place 2 in. apart on greased baking sheets. Cover and let rise until doubled, about 30 minutes.  In a small bowl, beat water and remaining egg. Brush over rolls.  Bake at 350° for 15-17 minutes or until golden brown. 
+Yield: 2 dozen.
+
+Soft Pretzels – Sue Reber - We fell in love with these big pretzels while living in New Jersey.  Add a squirt of mustard.  Or melt a slice of cheese on it.
+1Tbsp. yeast
+2 Tbsp. oil
+1 cup warm water
+2 tsp. sugar
+1 tsp. salt
+2 ½ cups flour
+1 egg white beaten with 1 tsp water
+1 Tbsp. coarse salt
+Combine yeast, warm water, sugar, salt and oil.  Let sit for five minutes.  Stir in flour.  Knead for 6-8 minutes until dough is smooth and elastic, adding more flour if dough is sticky.  Preheat oven to 400°.  Grease baking sheet.  Cut dough into 8-10 equal pieces.  On a lightly floured surface, roll each piece into a long rope about 15 inches long. Twist into pretzel shape. Allow to rise 5-10 minutes.  Meanwhile, bring a pan of water to boil.  One at a time place a pretzel in boiling water for 30 seconds.  Remove, drain on cooling rack. Brush with mixture of beaten egg and water.  If desired, sprinkle with coarse salt, sesame seeds or cinnamon & sugar.  Bake on greased baking sheet at 400° for 10-15 minutes
+
+Bagels - Laurie Fryatt - My former roommate’s brother-in-law offered to pay rent for a space in the mall if I wanted to go into business, selling these. 
+4 ½ cups flour
+2 Tbsp. yeast
+3 Tbsp. sugar
+1 Tbsp. salt
+1 1/2 cups warm water
+Combine 1 1/2 cups flour and yeast.  Add water, sugar, salt.  Beat on low for 10 minutes.  Beat on high 3 min.  Add enough flour to make a stiff dough, knead for 8-10 minutes.  Let rest for 15 minutes.  Divide dough into 12 portions.  shape into balls and pres hole in center.  Let rise about 20 minutes.  At this point you can bake or boil...For chewy bagels boil for 7 min.  this is like frying donuts in grease except you are using water that has a little sugar in it. 1 gallon to 1 Tb sugar.  Bagel should rise to the top of the water by this time.  Bake on lightly greased cookie sheet at 350° for 30-35 minutes.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Pita Bread – Amy Badger-After Justin came home from Iraq, middle eastern food became one of our favorites.  I love being able to make these at home & eat them with lots of hummus.
+1 ¼ cups water
+3 cups all-purpose flour
+1 tsp. salt
+1 Tbsp. oil
+1 ½ tsp. sugar
+2 tsp. yeast
+Put all ingredients in the bread pan of your bread machine, select dough setting, and push start.  When the dough cycle ends the dough will have risen.  Pull out dough and roll & stretch into a 12-inch rope.  Divide into 8 pieces.  Roll each piece into a 6 to 7 inch circle.  Set aside on a lightly floured countertop; cover with a towel.  Let pitas rise for about 30 minutes until slightly puffy.
+To bake: Position oven rack in middle of oven; preheat to 500 degrees.  Place 2 to 3 pitas on a wire cooling rack.  Place cooling rack directly on over rack; bake pitas 4 to 5 minutes until puffed and tops begin to brown.  Remove from oven and immediately place pitas in a sealed brown paper bag or cover them with a damp kitchen towel until soft.  May be stored in a plastic bag in the fridge for several days or in the freezer for 1 to 2 months.
+
+Perfect Pizza Dough –Liz Bunderson
+Makes 1 ½ lbs. dough
+1 cup warm water
+1 tsp. sugar
+1 ¼-oz. packet active dry yeast (1 Tbsp.)
+3 Tbsp. olive oil, plus extra for coating
+2 ½ cups flour, plus extra for dusting
+1 tsp. salt
+Place ¼ cup of the warm water in a small bowl.  Stir in the sugar until dissolved, then sprinkle the yeast onto the surface of the water.  Let the yeast float there for 1 minute, then stir it into the water.  Let the yeast “proof” for 10 minutes.  It should bubble a bit; if it doesn’t, the yeast is outdated and inactive.  Pour the yeast mixture into a large bowl, then stir in the remaining water and the olive oil, flour, and salt.  With a wooden spoon, mix the dough until it forms a ball.  On a lightly floured surface, knead the dough for 10 minutes or until it is smooth and elastic. Coat the inside of a glass bowl with olive oil.  Press the ball of dough into the bottom of the bowl, then flip it over so the oiled side is on top.  Cover the bowl with plastic wrap, then let the dough rise in a warm place until it has doubled in bulk, about 1 ½ hours.
+To freeze pizza dough, punch down once it has risen, place it in a ziplock bag, and freeze it.  When you need it, thaw it early in the day, then shape it once it is no longer cold.  To freeze individual crusts, roll the dough and freeze the rounds on baking sheets, then remove and place them in plastic bags.  When it is time to assemble the pizzas, simply apply the toppings to the frozen disks.  Hint: If your punched-down dough resists stretching at first, let it rest 5 minutes for the gluten to relax, then try again.
+
+Braided Breadsticks – Liz Bunderson
+Makes 24
+Perfect Pizza Dough
+Butter for coating
+1/3 cup grated parmesan cheese
+1 tsp. dried oregano
+½ tsp. dried basil
+½ tsp. dried dill
+½ tsp. garlic salt
+2 Tbsp. Olive oil
+Punch down the risen dough and knead it a few times.  Butter a baking sheet and set it aside.
+Shape the dough into a log and cut it into 24 pieces.  Roll each piece into a ball, then roll the ball into a rope 8 inches long.  With the heel of your hand, flatten the rope so it is 1 inch wide.  Leaving ½ inch at the top, cut the dough into three lengthwise strips (the strips will remain attached at the top).  Braid the strips, then press the ends together.  On a plate, combine the cheese, herbs, and garlic salt.  With a pastry brush, coat the top and sides of the breadsticks with olive oil.  One at a time, roll the breadsticks in the cheese-herb mixture and gently press down to help it adhere.
+Heat the oven to 400°.  Place the breadsticks on the baking sheet and let them rise for 20 minutes, then bake them for 8 minutes or until the breadsticks are golden.  Cool on a wire rack.  Serve warm.
+Soft Italian Breadsticks - Amy Badger-  
+I love recipes that use my bread machine. I ended up making flat bread a few times when I forgot to add the yeast, so now days I have a sticker on my bread machine that says ADD YEAST so I can’t forget.
+1 cup warm water
+3 Tbs. butter softened
+1-1/2 tsp. salt
+3 cups bread flour
+2 Tbs. sugar
+1 tsp. Italian seasoning
+1 tsp. garlic powder
+2-1/4 tsp. active dry yeast 
+Add all ingredients to bread machine pan in order.  Select dough setting.  Check after 5 minutes of mixing: add 1 to 2 Tbs. of flour or water if needed. When cycle is completed turn dough onto a lightly floured surface: divide in half.  Cut each portion into 12 pieces; roll each into a 4-6 in. rope.  Place 2 in. apart on greased baking sheets. Cover and let rise in a warm place until doubled, about 20 minutes.   Bake at 350 for 15-18 minutes . Immediately brush with butter and sprinkle with Parmesan cheese.  
+
+Bread Sticks - Suzanne Reber
+1 1/2 cups warm water
+1 Tbsp. yeast
+2 Tbsp. sugar
+3 cups flour
+½ tsp. salt
+garlic salt
+1 stick margarine
+Parmesan cheese
+Dissolve yeast in water and sugar.  Add flour & salt.  Knead 3 minutes.  Let rest 10 minutes.  Melt margarine on cookie sheet.  Roll out on floured surface just smaller than cookie sheet.  Cut dough into strips with pizza cutter and roll in melted margarine.  Sprinkle with garlic salt & Parmesan cheese.  Let rise for 10-20 minutes.  Bake at 375° for 20 minutes.  
+
+Rhodes Bread Sticks - Jill Olsen
+Cut bread into pieces and roll into "snakes” Dip in butter and garlic salt.  Put into 9x13” pan.  Sprinkle with Salad Supreme.  Bake 400° for 10-12 minutes.
+Butter Dips – Sue Reber –This is a great quick bread stick when you don’t have time for your dough to rise.
+1/4 cup butter
+1 1/4 cups flour
+2 tsp. sugar
+2 tsp. baking powder
+1 tsp. salt
+2/3 cup milk
+Heat oven to 450̊.  Melt butter in oven using 9x9” pan.  Remove from oven. Measure dry ingredients, add milk, and stir just until dough forms.  Knead lightly about 10 times.  Roll into 8” square cut in half into 9” strips.  Dip each strip into melted butter, then arrange in 2 rows in pan.  Bake 15-20 minutes or golden brown.
+
+Classic Focaccia with Cheese – Liz Bunderson
+Makes 2 Focaccia
+Perfect Pizza Dough
+1 Tbsp. minced fresh rosemary, OR ¾ tsp. dried rosemary, crumbled
+Olive oil for coating or cornmeal for dusting
+4 Tbsp. Olive oil
+Salt
+½ cup grated Parmesan cheese
+Punch down the risen dough, sprinkle it with rosemary, and knead it a few times. Divide dough in half.  For each focaccia, flatten one portion into an oval, and then roll it until it is about 10 inches long and 8 inches wide.
+Place focaccia on a lightly oiled baking sheet or a pizza peel sprinkled with cornmeal.  Let rise for 20 minutes.  Heat the oven to 400°.  After the dough has risen, use your fingers to poke dimples all over it.  Brush half of the olive oil onto the surface of the dough.  Season with a sprinkling of salt.  Sprinkle on half of the Parmesan cheese.
+Bake about 12-15 minutes or until the crust is golden. Serve warm.
+
+
+
+
+
+
+
+Rosemary Focaccia Bread - Grace Ann Skousen - This recipe is from a popular Italian restaurant in Austin, Texas. Instead of buttering the bread, you tear it and dip it in a dish of olive oil that has freshly ground pepper in it. Great with all Italian dishes.
+1 pkg. active dry yeast
+½ cup plus 2 Tbsp. warm water
+1 1/2 cups flour
+3/4 tsp. salt
+3 Tbsp. chopped fresh rosemary 
+OR 1 Tbsp. dried rosemary
+Olive oil
+Fresh ground black pepper
+Preheat oven to 450°. Dissolve yeast, and then add flour and salt.  Mix well for about 10-15 minutes until satiny and elastic.  Let rise double in bulk.  Spread out like thick pizza dough.  Poke dimples in dough with fingers.  Drizzle olive oil over dough.  Sprinkle rosemary and pepper over olive oil and bake 15 minutes.
+
+Pull Apart Biscuits – Sue Reber
+1 can refrigerator biscuits
+1/3 cup brown sugar
+½ tsp. cinnamon
+2 Tbsp. butter
+1 Tbsp. water
+In a round microwave dish, mix together sugar, cinnamon, butter and water.  Cook 1 minute on high in the microwave. Cut biscuits into fourths. Put on top of the brown sugar mixture and microwave 3 more minutes on high.  Turn upside down on a plate and serve.
+
+Basic Sweet Dough – Amy Badger -This soft and pliable dough is suitable for all sorts of shapes from braids to cinnamon rolls to monkey bread.  Soft dough is the secret to tender bread.  I like it for orange rolls as well.
+¾ cup warm water
+2 tsp. sugar
+1 Tbsp. active dry years
+½ cup all purpose flour
+¾ cup plain yogurt
+½ cup (1 stick) butter, softened
+2 large eggs, lightly beaten
+½ cup sugar
+2 tsp. salt
+2 tsp. vanilla or other flavoring
+4 ½ to 5 ½ cups flour (I use whole wheat)
+Combine warm water, 2 tsp. of sugar, yeast and ½ cup flour. Cover and set aside for 10 minutes.  In mixing bowl combine yogurt, butter, eggs, sugar, salt, vanilla, and yeast mixture.  Add flour one cup at a time until dough comes away cleanly from sides of bowl.  Knead about 5 minutes.  Let rise until double. Punch down and use for your favorite recipe.
+
+Bread Machine Cinnamon Rolls –Amy Badger – The pudding in this mix makes for a very soft and sweet roll.
+1 cup warm milk (70° to 80°)
+1/4 cup water (70° to 80°)
+1/4 cup butter, softened
+1 egg
+1 tsp. salt
+4 cups bread flour
+1/4 cup instant vanilla pudding mix
+1 Tbsp. sugar
+1 Tbsp. active dry yeast
+FILLING:
+1/4 cup butter, softened
+1 cup packed brown sugar
+2 tsp. ground cinnamon
+FROSTING:
+4 oz. cream cheese, softened
+1/4 cup butter, softened
+1-1/2 cups confectioners' sugar
+1-1/2 tsp. milk
+1/2 tsp. vanilla extract
+In bread machine pan, place first nine ingredients. Select dough setting (check dough after 5 minutes; add water or flour if needed). When cycle is completed, turn dough onto lightly floured surface. Roll into a 17-in. x 10-in. rectangle. Spread with butter; sprinkle with brown sugar and cinnamon. Roll up, jelly-roll style, starting from a long side; pinch seam to seal. Cut into 21 slices. Place 12 slices, cut side down, in a greased 13-in. x 9-in. baking pan and nine rolls in a 9-in. square baking pan. Cover; let rise in a warm place until doubled, about 45 minutes. Bake at 350° for 20-25 minutes or until golden brown.. In a mixing bowl, beat frosting ingredients. Frost warm rolls. Store in refrigerator.
+Cinnamon Rolls – Gayle Anderson - Gayle’s husband Scott was the bishop when Grandpa Fay died - his Grandma Ruby and our Grandma Dahlia are sisters. 
+1 cup sugar
+½ cup warm water
+1/3 cup yeast
+6 eggs
+1 cup oil
+1 Tbsp. salt
+1 quart milk, scalded and cooled
+12 cups flour
+1 tsp. vanilla
+Filling:
+3 sticks butter, room temperature
+3 cups sugar
+3 Tbsp. cinnamon
+Frosting:
+1 (2 lb.) pkg. confectioner’s sugar
+1 stick butter
+½ cup water
+Dissolve the yeast in the sugar and warm water.  Add 6 eggs, oil and salt.  Mix in flour alternately with scalded milk.  Add all the milk and add extra flour until the dough pulls away from the sides of the bowl.  Mix at least 5 minutes.  Let rise until double - 1-1/2 hours.  Mix dough again for about 5 minutes.  Divide into third.  Roll out each third into a rectangle about 15x20 inches.  Mix 1 cup sugar, 1 stick warm butter & 1 Tbsp. cinnamon in a paste.  Spread on dough and roll from the small end.  Cut roll into 12 pieces & place on a very well greased cookie sheet.  Repeat with two other balls of dough.  Let raise until doubled - 1-1/2 hours.  Bake for 16-18 minutes in 350° oven.  To glaze frost while warm.  To frost wait until cool.
+
+Cinnamon Rolls - Laurie Fryatt - I made these rolls and took them to work my boss asked me if I had made the roll and thought I was a professional.
+Scald:		
+2 ½ cups milk
+Dissolve 2 Tbsp. yeast 
+in ½ cup warm water.
+Beat together:
+1 cup sugar
+1 1/2 tsp. salt
+2 eggs
+6 Tbsp. shortening
+Add scalded milk.  Slowly add 6-7 cups flour.  Add yeast.  Let raise.  Roll out with butter, brown sugar, nuts and cinnamon.  Roll up like jelly roll.  Let rise 1 hour.  Bake at 375°  for 15 min. Note: I have even frozen the cinnamon rolls before letting them raise 1 hour, then when I want fresh rolls I thaw, raise, & bake.
+
+Cinnamon Twists - Grandma Grace -
+“I asked mom if we could serve these at my wedding.  She considered the cost of the sour cream and said NO.  A few days later Nadine Marvin called saying they had a lot of cream from their cow that was going sour, could we use it.  I got my cinnamon twists!” - Sue Reber
+1 cup sour cream
+1 Tbsp. shortening
+3 Tbsp. sugar
+1 Tbsp. yeast dissolved in 2 Tbsp. water
+1 tsp. salt
+1 tsp. baking powder
+½ tsp. soda
+1 large egg
+2 Tbsp. butter
+1/3 cup brown sugar
+1 tsp. cinnamon
+Warm sour cream, shortening and sugar; cool to lukewarm and add yeast, salt, soda, baking powder, egg, stir until yeast is dissolved.  Add 3 cups flour.  Turn dough onto floured board and knead.  Let rest ten minutes.  Roll out 1/4 inch thick in oblong shape.  Spread with softened butter.  Sprinkle one half of the dough with brown sugar and cinnamon. Fold the uncovered side over the sugar covered side. Cut into strips inch wide and 4 inches long. Twist. Put on greased cookie sheet.  Cover and let rise one hour.  Bake at 375° for 10-12 minutes or until golden brown.  Frost while warm with powdered sugar glaze. 
+GLAZE:
+ 1 cup powdered sugar
+1/4 cup hot water
+1/4 tsp. vanilla
+Sprinkle top with chopped nuts
+
+Rhodes Caramel Rolls - Jill Olsen
+2 loaves frozen dough
+1 cup brown sugar
+½ cup margarine
+2 Tbsp. milk
+½ tsp. cinnamon
+1 large pkg. vanilla pudding, not instant
+Grease loaves with shortening, thaw but do not rise.  Works well to let thaw in fridge overnight.  Grease 9x13” pan.  Tear one loaf in small pieces into pan.  Melt margarine; add sugar, dry pudding mix, milk and cinnamon.  Beat till smooth, pour over torn bread.  Tear other loaf and put on top, filling holes.  Raise 2-3 hours.  Bake 300° for about 30 minutes.  Cool for 15 minutes and turn out on wax paper.
+
+Monkey Bread - Sammi Jo Stewart
+1/2 cup butter
+3/4 cup brown sugar
+1 cup marshmallows
+Melt together. (You can add 1/2 cup whipping cream, I never do.)  Grease Bundt pan and arrange 16 frozen rolls.  Pour syrup evenly over rolls. Rise overnight in fridge.  Bake at 325° for 25-30 minutes. Turn upside down on platter; syrup will run over rolls. Cool.
+
+Monkey Bread - Suzanne Reber- Amy Reber's roommate at Snow College, Suzanne Sessions gave her this recipe...now she is Jared's wife.
+½ cup butter
+½ cup brown sugar
+½ tsp. cinnamon
+8-10 frozen Rhodes rolls
+Melt butter, add brown sugar and cinnamon. Arrange rolls in single layer in bread pan.  Pour butter mixture over rolls.  Cover pan with saran wrap sprayed with Pam.  Let rise 3-4 hours.  Bake at 300° for 20-25 minutes. Cool 10 minutes and turn out on waxed paper.
+
+Orange Knots –Liz Bunderson -This is a Rhodes roll recipe. My kids inhaled them. I thought they were quite tasty myself.
+12 Rhodes Dinner Rolls, thawed but still cold
+1 orange rind, grated
+½ cup sugar
+¼ cup butter, melted
+Citrus glaze:
+1 cup powdered sugar
+1 Tbsp. butter, melted
+3 Tbsp. orange juice
+½ tsp. vanilla extract
+Mix grated orange rind with sugar. Roll each roll into a 9-inch rope. Tie in a loose knot. Roll each knot in melted butter and then in rind/sugar mixture. Place on baking sheet sprayed with cooking spray. Cover with plastic wrap and let rise until doubled in size. Remove wrap. Bake at 350° F 15-20 minutes. Remove from baking sheet and place on a cooling rack. Brush with citrus glaze while still warm.
+
+Celestial Cornbread - Trisha Olsen - While your cornbread is in the oven, sit, relax and think about the wonderful gifts you have been given and how much you are blessed to know the recipe to Celestial Cornbread.
+½ cup butter, melted
+½ -2/3 cup sugar
+2 eggs
+1 cup buttermilk
+½ tsp. baking soda
+1/4 tsp. salt
+1 cup cornmeal
+1 cup flour
+Beat butter, sugar and eggs well.  Add buttermilk, Mix in dry ingredients.  Pour into an 8” square greased pan.  Bake at 375° for 30 minutes.  
+
+Northern Cornbread –Becky Concoby
+3/4 cup sugar
+1/4 cup shortening
+2 eggs
+1 cup cornmeal
+1½ cup flour
+1 tsp. salt
+2½ tsp. baking powder
+1¼ cup milk
+Cream sugar and shortening.  Add eggs and cornmeal. Sift dry ingredients and add alternately with milk.  Bake at 375 for 20 to 30 minutes for bread or 10 minutes for muffins.
+
+
+Moist Cornbread –Amy Badger –This recipe is from my good friend Julia Ferguson who loved the idea of a dinner exchange group and worked with me to make it happen.
+3 large eggs, beaten
+1-1/2 cups canned cream corn
+1-1/2 cups (14 oz) sour cream
+3/4 cup corn oil
+1-1/2 cups yellow self-rising corn meal mix, slightly packed
+3/4 tsp. salt
+1/2 tsp. baking powder
+Nonstick cooking spray
+3 Tbsp. melted butter 
+Preheat the oven to 425°F. In a large mixing bowl, beat the eggs slightly. Stir in the sour cream, cream corn, and oil, and then add the corn meal mix, salt, and baking powder. Stir well to combine the ingredients.  Spray a 10" cast iron skillet with nonstick cooking spray and pour in the batter. Heat the skillet on the stovetop over medium-high heat for 1 minute, then place into the upper third of the oven. Immediately reduce the oven to 375°F and bake 35-40 minutes.  To finish, turn on the broiler and brown the top of the cornbread.
+
+Flour Tortilla - Tiffanie Olsen
+1 cup flour
+1 1/2 Tbsp. shortening
+½ tsp. salt
+1/4 cup water
+1/4 tsp. baking powder
+Combine flour, baking powder and salt. Work shortening in like pie crust. Add water and mix. Roll into 8 inch circles. Heat skillet to medium heat. Fry tortillas with no grease, turning over when side is flecked with brown.
+
+Danish Ebelskivers - Becky Concoby
+4 eggs separated
+1 Tbsp. sugar
+2 cups cake flour
+½ tsp. salt
+1 tsp. baking powder
+2 cups milk
+1/4 cup melted butter
+Heat Ebelskiver pan on stove.  Put 1 tsp. oil in each hole.  Pour enough batter in each hole to fill, about 1/4 in from top.  Let cook until done on that side.  Turn with a toothpick or fork.  When done remove from pan.  Serve with powdered sugar or jam.
+
+Mama’s Dumplings - Grandma Grace
+1 egg beaten
+2/3 cup milk
+1 1/2 cup flour
+1 1/2 tsp. baking powder
+½ tsp. salt
+Mix together. Drop dough by spoonfuls onto hot meat or vegetables in boiling stew or soup stock.  Cover. Cook for 8-10 min. Serve at once.
+
+Crêpes - Sue Reber
+1½ cups flour
+1 Tbsp. sugar
+½ tsp. baking powder
+½ tsp. salt
+2 cups milk
+2 eggs
+½ tsp. vanilla
+2 Tbsp. melted margarine
+Measure flour, sugar, baking powder and salt into bowl.  Stir in remaining ingredients.  Beat until smooth. For each crêpe, lightly butter skillet; heat over medium heat until butter is bubbly.  Pour 1/4 cup batter into skillet.  Rotate pan until batter covers bottom.  Cook until light brown; turn and brown on other side.  Spread on thin layer of jam and roll up.  Sprinkle with powdered sugar.  Makes 12 crêpes
+
+Sopapillas - Grandma Grace
+4 cups flour
+1 1/2 tsp. salt
+1 tsp. baking powder
+1 Tbsp. sugar
+1 Tbsp. shortening
+1 Tbsp. yeast in 1/4 cup warm water
+1 1/4 cup scalded milk, cooled. Mix ingredients and knead 15-20 times.  Let rest 10 minutes.  Roll out 1/4 inch thick.  Cut into 2” squares.  Fry in deep fat 425°.
+
+
+Fry Bread - Emma Largo – “This fry bread brings back memories of motor home trips and learning the words & actions to “Oh Great Eagle”. I tried making these once and made the mistake of kneading the dough for several minutes like yeast dough.  They were like fried rocks. The next time I tried a dozen turns or so of kneading and they were much better.  Only Emma could tell you exactly how much to knead.” –Amy Badger
+2 cups flour
+1 Tbsp. baking powder
+1 tsp. salt
+Warm water
+Mix together with enough water to make a soft dough.  The success is in the kneading according to Emma's mother. Pinch off a 2 inch ball, flatten to 1/4 inch and fry in hot grease.  Can be served as a scone or the basis for Navajo taco. 
+
+Best Ever Banana Bread - Ruby Fielding
+5 large bananas
+4 eggs well beaten
+1 cup shortening
+2 cups sugar
+3 ½ cup flour
+2 tsp. soda
+1 tsp. salt
+1 cup chopped walnuts
+Beat bananas to a liquid, add eggs.  In separate bowl cream shortening thoroughly.  Add sugar and beat until fluffy.  Add banana mixture.  Combine dry ingredients and blend into batter.  Stir in walnuts.  Bake in 2 well greased loaf pans at 300° for 1 1/4 hours or until firm to touch.  Makes 2 loaves.
+
+Banana Bread –Kadie Allred
+3 ripe bananas
+1 cup sugar
+½ cup shortening
+2 cups flour
+1 tsp. baking soda
+¼ tsp. salt
+1 tsp. vanilla
+1 Tbsp. milk
+2 eggs
+Chocolate chips (optional)
+Mash up bananas. Mix in sugar and shortening. Add flour, baking soda, & salt. Then vanilla, milk, & eggs. Add chocolate chips or nuts. Bake at 350 degrees. Loaves-45 mins. Cupcakes-15 mins.
+
+Nick’s Banana-Nutty Bread –
+Nick Hammerstad
+1¼ cup sugar
+½ cup butter
+2 eggs
+1½ cup smashed banana
+½ cup buttermilk
+1 tsp. vanilla
+2½ cups flour
+1 tsp. baking soda
+1 tsp. salt
+ Preheat oven to 350°.  In a large bowl cream the butter and sugar.  Add the eggs and continue stirring. Then beat in the buttermilk, vanilla and bananas.  Once they are all combined add the rest of the ingredients and finish mixing.  Pour finished product into 2 greased loaf pans and bake for 60 minutes.
+
+Banana or Zucchini Bread - Derlene Olsen
+Mix well: 1 cup sugar
+½ cup shortening
+Add: 3 mashed bananas OR grated zucchini
+Add:  2 cups flour
+1 tsp. baking soda
+1/4 tsp. salt
+1 tsp. vanilla
+1 Tbsp. milk
+2 eggs
+½ cup nuts
+Mix well and bake at 350° for 45 minutes.
+
+
+
+
+
+
+
+
+
+
+
+
+Zucchini Bread –Liz Bunderson
+2 loaves
+3 eggs, beaten ‘til light and fluffy
+1 cup oil (can use 1/2 oil 1/2 applesauce or all applesauce)
+2 cups sugar
+3 cups flour
+1 tsp. baking soda
+1/4 tsp. baking powder
+1 tsp. salt
+1/4 tsp. nutmeg
+1/4 tsp. cloves
+3 tsp. cinnamon
+2 cups zucchini, grated
+3 tsp. vanilla
+chocolate chips
+Beat together eggs, oil, and sugar.  Sift together flour, baking soda, baking powder, salt, and spices.  Mix with egg mixture.  Add zucchini and vanilla.  Pour into greased and floured or greased and sugared pans.  Sprinkle chocolate chips on top the using a knife gently push chips into batter just until covered. (If you mix them in the batter they sink to the bottom and if you leave them exposed on top they burn.) Bake at 350° for 45 minutes.  For mini loaves fill 3/4 full and bake 25-30 minutes.
+
+Zucchini Blueberry Bread -Amy Badger
+3 eggs
+2 cups sugar
+1 cup oil
+1 1/2 tsp. vanilla
+1 tsp salt
+1 cup white flour
+1 cup wheat flour
+1 1/4 cups fresh blueberries
+2 cups grated zucchini
+1 Tbsp. cinnamon
+1/2 tsp. baking soda
+1 1/2 tsp. baking powder
+Beat first four ingredients with a mixer until thick and well combined. Combine remaining dry ingredients and carefully blend into wet ingredients with spoon --do not over mix. Carefully fold in blueberries. Pour batter into two greased bread pans or four mini loaf pans. Bake at 350° for an hour (30 minutes for the smaller pans) or a toothpick comes out clean.
+Carrot Bread - Amy Badger – This recipe is from my Grandma Reber. As newlyweds, the Army set us to DLI in Monterey, CA.  We lived 5 minutes from Grandma Reber and I learned lots of cooking hints from her during that time.
+(Hint: Double recipe will make 3 small loaves)
+2 cups flour
+2 tsp. baking soda
+2 tsp. cinnamon
+½ tsp. salt
+Sift above ingredients.
+Add the following:
+1 cup cooking oil
+1 tsp. vanilla
+1 1/2 cup sugar
+2 cups grated carrots
+½ cup chopped nuts
+½ cup coconut
+3 eggs, well beaten
+Sift dry ingredients, make well in dry ingredients.  Combine eggs, oil, vanilla, sugar, carrots, and nuts in smaller bowl.   Pour into dry ingredients well and mix.  Pour into loaf tins which have been oiled and waxed paper on bottoms.  Let stand 20 minutes before baking.  Bake 350̊ for 50-60 minutes.  Cool before slicing.
+
+Pumpkin Bread - Alecia Bales
+2 cups flour
+2 tsp. baking powder
+½ tsp. salt
+½ tsp. ginger
+1/4 tsp. baking soda
+1/4 tsp. cloves 
+1 cup brown sugar
+1/3 cup shortening
+2 eggs
+1 cup pumpkin
+1/4 cup milk
+Beat sugar, shortening, and eggs.  Add pumpkin and mix well.  Add remaining ingredients.  Pour batter into greased loaf pan.  Bake 350° for 55-60 minutes.  Cool in pan 10 minutes.  Remove from pan.  Cool.
+
+
+
+Pumpkin Ribbon Bread –Amy Badger
+6 oz. reduced-fat cream cheese
+1/4 cup sugar
+1 Tbsp. all-purpose flour
+2 egg whites
+BATTER:
+1 cup pumpkin
+1/2 cup unsweetened applesauce
+1 egg
+2 egg whites
+1 Tbsp. canola oil
+1-2/3 cups all-purpose flour
+1-1/4 cups sugar
+1 tsp. baking soda
+1/2 tsp. salt
+1/2 tsp. ground cinnamon
+1/2 tsp. ground cloves
+1/3 cup chopped walnuts
+For filling, combine the cream cheese, sugar, flour and egg whites in a bowl; set aside. 
+In a bowl, beat the pumpkin, applesauce, egg, egg whites and oil. Combine the flour, sugar, baking soda, salt, cinnamon and cloves; add to pumpkin mixture. Stir in walnuts. 
+Divide half of the batter between two 8-in. x 4-in. loaf pans coated with cooking spray. Spread each with filling; top with remaining batter. 
+Bake at 350° for 40-45 minutes or until a toothpick inserted near the center comes out clean. Cool for 10 minutes before removing from pans to wire racks to cool completely. Refrigerate leftovers. Yield: 2 loaves 
+
+Pumpkin-Pecan Friendship Bread – Amy Badger – When we lived in Alaska; I seemed to get some Friendship bread or a starter every other week.  Needless to say we made a lot of good friends while serving at Fort Wainwright in Fairbanks.
+3 cups chopped pecans, divided 
+1 can (16oz) solid-pack pumpkin
+1 cup Starter (recipe follows)
+4 eggs
+½ cup vegetable oil
+2 tsp. vanilla
+3 cups all-purpose flour
+1 cup granulated sugar
+1 cup packed light brown sugar
+4 tsp. ground cinnamon
+2 tsp. baking powder
+1 tsp. baking soda
+1 tsp. ground nutmeg
+1 tsp. ground ginger
+1 tsp. ground cloves
+Preheat oven to 350°F. Grease and flour 2 
+(9 ½ x4-inch) loaf pans. Set aside.
+Toast 2 cups of pecans. Combine pumpkin, Starter, eggs, oil and vanilla in large bowl. Combine remaining ingredients in separate large bowl until well blended. Stir into pumpkin mixture just until blended. Stir in toasted pecans. Spoon batter evenly into prepared pans. Sprinkle reserved pecans evenly over batter. Bake 1 hour or until toothpick inserted into centers comes out clean. Yield: Makes 2 loaves
+Starter
+Yield: Makes about 4 cups
+1 cup sugar
+1 cup all-purpose flour
+1 cup milk
+Directions:
+Combine all ingredients in large resealable food storage bag. Knead bag until well blended. Let bag stand at room temperature 5 days. Knead bag 5 times each day.
+On day 6: Add another cup sugar, 1 cup flour and 1 cup milk. Knead bag until well blended. Let stand at room temperature 4 days. Knead bag 5 times each day.
+On day 10:  Pour 1 cup Starter into each of 3 bags. Reserve remaining 1 cup Starter for recipe. Give remaining bags of Starter with recipe as gifts.
+
+Apricot Bread - Angela Olsen
+1 3-oz orange Jell-O
+1 lemon Duncan Hines cake mix
+6 eggs
+3 Tbsp. flour
+1 cup apricot nectar
+½ cup oil
+Bake at 350° for 30 minutes. While hot from oven pour sauce over bread and cool in pan
+Sauce:  ½ cup lemon juice, ½ cup orange juice 1 cup powdered sugar. Serve chilled. Makes 4 small loaves.
+
+Coconut Bread-Amy Badger-As a child I hated anything with coconut.  As an adult I LOVE things with coconut.  I try and remind my kids about this when they think they hate things and are unwilling to try new foods.
+4 eggs
+2 cups sugar
+2 tsp. coconut flavoring
+1 cup oil
+3 cups flour
+½ tsp. baking soda
+½ tsp. baking powder
+½ tsp. salt
+1 cup buttermilk
+1 cup flaked coconut
+GLAZE:
+1 cup sugar 
+½ cup water
+2 Tbsp. margarine
+1 tsp. coconut flavoring
+Beat eggs.  Add sugar, coconut flavoring and oil.  Sift dry ingredients and add to egg mixture.  Fold in buttermilk and shredded coconut.  Pour into 2 greased loaf pans.  Bake at 325° for 75 minutes.  Or smaller loaf pans for 35 to 45 minutes.  In saucepan, combine sugar, water, and margarine for glaze.  Boil for 5 minutes.  Remove from heat and add coconut flavoring.  Pour over bread as soon as it comes from the oven.  Note: For a simple glaze, you can microwave ½ cup of canned cream cheese frosting and add ½ tsp. of coconut extract.
+
+Muffins - Julie Chantry - I almost always use 100% whole wheat flour.  It's good to start with just part whole wheat flour and gradually add more until your body can handle an all whole wheat bread.  If you are watching your weight or cholesterol level the more fiber you add to your diet the faster you will reach your level.
+1 3/4 cups flour
+1/3 cup sugar
+2 tsp. baking powder
+1 egg -beaten
+3/4 cup milk
+1/4 cup cooking oil
+1/4 tsp. salt
+In a mixing bowl combine flour, sugar, baking powder and salt. Make a well in the center. Combine egg, milk, and oil; add all at once to flour mixture. Stir just till moistened- batter should be lumpy. Lightly grease muffin cups or line with paper baking cups; fill 2/3 full.  Bake at 400° about 20 min. or until golden.  Makes 10 to 12 muffins.
+Variations:
+BLUEBERRY : Prepare as above except fold 3/4 cup fresh or frozen blueberries, if desired, 1 tsp of finely shredded lemon peel.
+CRANBERRY: Prepare as above, except combine 1 cup coarsely chopped cranberries and 2 tbsp of additional sugar. 
+JELLY:  Prepare as above, except do not use baking cups.  Fill muffin 1/3 full with batter, top with 1 tsp. jelly, jam, or preserves, top with enough batter to fill cup 2/3 way full.
+BANANA: Prepare as above, except reduce milk to ½ cup: Add 2/3 cup mashed banana and ½ cup chopped nuts to flour mixture with the egg mixture.  Do not use baking cups.
+PUMPKIN: Prepare as above, except add 
+1 tsp  of ground nutmeg, and  1/8 tsp ground cloves to flour mixture.  Add ½ cup canned pumpkin to egg mixture.  Stir 1/4 cup chopped nuts to batter. No baking cups.
+OATMEAL:  Prepare as above, except reduce flour to 1 1/3 cups and add 3/4 cup rolled oats.
+
+Feather Light Muffins – Sammi Jo Stewart
+1/3 cup shortening
+1/2 cup milk
+1/2 cup sugar
+1 1/2 cup flour
+1 egg
+1/2 cup sugar
+1 ½ tsp. baking powder
+1 tsp. cinnamon
+1/2 tsp. salt
+1/4 cup melted butter
+1/4 tsp. ground nutmeg
+Cream shortening, sugar and egg. Add baking powder, salt and nutmeg. Mix well. Alternately add flour and milk.  Fill greased muffin tins 2/3 full.  Bake at 325° for 20-25 minutes.  Let cool a few minutes.  Combine sugar and cinnamon.  Dip muffin tops in butter then sugar mixture.  Serve warm.
+
+Hannah Muffins – Chrissy Probst –
+Here is a great breakfast muffin recipe that we affectionately call, "Hannah Muffins" because they are 7 year old Hannah's favorite.
+3 cups flour                              
+2 eggs
+3 tsp. baking powder               
+1 cup milk
+1 tsp. salt                              
+1 cup butter
+1/2 tsp. ground cinnamon         
+1 1/2 cup sugar, divided
+1 cup sugar                             
+3 tsp. cinnamon
+2/3 cup shortening
+Lightly grease 12 muffin cups.  Stir together flour, baking powder, salt, and cinnamon or nutmeg.  Set aside.  In a separate bowl, cream together 1 cup sugar and shortening, add eggs; mix well.  Add flour mixture and milk alternately to creamed mixture, beating well after each addition.  Fill prepared muffin cups 2/3 full.  Bake at 350° for 20-25 minutes or until golden. Dip baked muffins in melted butter, coating thoroughly, then coat with cinnamon-sugar mixture made from ½ cup sugar and cinnamon combined.  Eat.  Enjoy!
+
+Bran Muffins –Chrissy Probst
+6 cups All-Bran Cereal
+2 cups boiling water 
+Pour water over cereal and let sit for 5-10 minutes.  Then add:
+2 ½ cups sugar
+1 cup oil
+4 beaten eggs
+2 cups milk plus 2 Tbsp. lemon juice
+5 cups flour
+2 tsp. soda
+2 tsp. baking powder
+1 tsp. salt
+Bake at 375° for 20 minutes.  Can freeze mixture or refrigerate for up to 3 weeks.  
+
+Bran Muffins – Amy Badger – My friend Jen Arbon gave me this recipe for a healthier muffin with whole wheat flour and less fat.
+3 cups bran flakes (soak in milk first)
+1 cup milk 
+½ cup applesauce
+1 ½ cup brown sugar
+2 eggs
+1 fat free Yoplait yogurt - French vanilla
+2 ½ cups whole wheat flour
+2 ½ tsp. baking soda
+1 tsp. salt
+Mix together wet ingredients.  In separate bowl, mix together dry ingredients.  Make a well in dry ingredients and add wet ingredients.  Mix just until all ingredients are wet.  Fill muffin tins 2/3 of the way full. Bake at 350° for 20-25 minutes.
+
+Oatmeal Muffins  - Grandma Grace
+Combine:
+1 cup quick Quaker oats
+1 cup buttermilk 
+OR 1 cup milk mixed with 1 Tbsp. vinegar
+1 egg, well beaten
+½ cup brown sugar
+Sift together:
+1 cup flour
+1 tsp. baking powder
+1 tsp. salt
+½ tsp. baking soda
+Add to wet ingredients and stir.  DO NOT BEAT!  Add: 1/3 cup oil and stir. Fill muffin tins ½ to 2/3 full. Bake 20 minutes at 400°.
+
+Orange Pecan Muffin  - Angela Olsen
+3/4 cup butter
+1 cup sugar
+2 eggs
+1 cup buttermilk
+2 cup flour
+1 tsp. baking soda
+2 navel oranges
+½ cup chopped pecans
+Cream butter and sugar, add eggs and beat.  Dissolve soda in buttermilk.  Add dry ingredients; grated rind of 2 oranges and add with pecans.  Put in muffin tin.  Bake at 400° for 20 minutes.  Mix juice of oranges and 1 cup brown sugar.  Pour over hot muffins immediately.  Take out of pan.  This glaze makes it real rich.  Muffins are real good too without the glaze.  Makes 12 muffins.
+
+Squash Muffins –Liz Bunderson
+Makes 1 dozen
+1 lb. yellow summer squash, chopped
+1/2 cup butter, melted
+1 egg
+1 1/2 cups flour
+1/2 cup sugar
+2 tsp. baking powder
+1/2 tsp. salt
+In a saucepan, bring squash to a boil. Reduce heat, cover, and simmer for 5 minutes. Drain the squash and mash it in a bowl. Add the butter and egg. In another bowl, sift together the flour, sugar, baking powder, and salt. Stir in the squash mixture. Fill greased muffin cups 3/4 full and bake at 375° for 20 minutes.
+
+Zucchini Chip Muffins –Amy Badger
+1/2 cup butter, softened
+1/2 cup vegetable oil
+1-3/4 cups sugar
+2 eggs
+1/2 cup milk
+1 tsp. vanilla extract
+2-1/2 cups all-purpose flour
+1/4 cup baking cocoa
+1 tsp. baking soda
+1/2 tsp. salt
+1/2 tsp. ground cinnamon
+2 cups shredded zucchini
+1/4 cup miniature semisweet chocolate chips
+1/4 cup chopped pecans
+In a large mixing bowl, cream the butter, oil and sugar until light and fluffy. Beat in the
+eggs, milk and vanilla. Combine the flour, cocoa, baking soda, salt and cinnamon; gradually add to creamed mixture. Fold in zucchini and chocolate chips. Fill greased or paper-lined muffin cups two-thirds full. Top with pecans. Bake at 375° for 20-25 minutes or until a toothpick inserted in muffin comes out clean. Cool for 10 minutes before removing from pans to wire racks to cool completely. Yield 2 dozen.
+
+Berry Cheesecake Muffins –Amy Badger
+1/3 cup butter, softened
+3/4 cup sugar
+2 eggs
+1-1/2 cups all-purpose flour
+1-1/2 tsp. baking powder
+1 tsp. ground cinnamon
+1/3 cup milk
+Cream Cheese Filling:
+6oz. cream cheese, softened
+1/3 cup sugar
+1 egg
+3/4 cup fresh raspberries
+3/4 cup fresh blueberries
+Streusel Topping:
+1/4 cup all-purpose flour
+2 Tbsp. brown sugar
+1/2 tsp. ground cinnamon
+1 Tbsp. cold butter
+In a large mixing bowl, cream butter and sugar. Add eggs; beat well. Combine the flour, baking powder and cinnamon; add to creamed mixture alternately with milk. Fill greased or paper-lined muffin cups one-third full. For filling, in a small mixing bowl, beat cream cheese, sugar and egg until smooth. Fold in the berries. Drop a rounded tablespoonful into the center of each muffin. For topping, combine the flour, brown sugar and cinnamon in a small bowl; cut in butter until crumbly. Sprinkle over batter. (Muffin cups will be full.) Bake at 375° for 25-30 minutes or until a toothpick comes out clean. Cool for 5 minutes before removing from pans to wire racks. Serve warm. Refrigerate leftovers. Yield: 21 muffins.  
+
+Blue Berry Crumb Muffins – Sue Reber
+Makes 24 muffins
+1 ¾ cup frozen blue berries
+3 cups flour
+1 Tbsp. baking powder
+2 eggs
+1 tsp. vanilla
+½ cup + 2 Tbsp. butter
+2 cups sugar
+1 cup evaporated milk
+Mix flour, sugar, and baking powder together then cut ½ cup butter into mixture. Set aside 1 cup Mix, add eggs, vanilla and beat until smooth. Fold in berries and spoon mix into greased or lined muffin cups. Melt 2 Tbsp. butter and add to reserved cup of mix, put on top of muffins. Bake 20-30 minutes at 350°.
+
+Canyon Potatoes – Grace Fielding – This recipe was a staple item when we lived up Payson Canyon and made this side dish for breakfasts while camping in the canyon.  
+2-3 pre-cooked potatoes, peeled
+2-3 slices bacon
+½ cup chopped onion
+Cook bacon on griddle, add onions and cook.  Add cut potatoes and heat thoroughly.  Season with salt and pepper.
+
+Farmer’s Casserole - Amy Badger –Justin asked me to quit making soggy bread casseroles for breakfast and stick with this one with hash browns instead of bread. 
+NOTE:  Half the recipe and make in an 8x8 inch square dish for only 6 servings.
+6 cups frozen shredded hash brown potatoes 
+1-1/2 cups (6oz)  shredded Pepper Jack cheese 
+2 cups diced cooked ham 
+1/2 cup sliced green onions 
+8 beaten eggs OR 2 cups egg product 
+2-12oz. cans (1-1/2 cups each) evaporated milk 
+1/4 tsp. salt 
+1/4 tsp. pepper 
+Grease a 9x13 baking dish. Arrange potatoes evenly in the bottom of the dish. Sprinkle with cheese, ham, and green onion. In a large mixing bowl combine eggs or egg product, milk, salt, and pepper. Pour egg mixture over potato mixture in dish. Bake, uncovered, in a 350° oven for 65 to 75 minutes or until center appears set. Let stand 5 minutes before serving. Makes 12 servings. Make-Ahead Tip: The night before, prepare casserole. Cover and chill. To serve, bake as directed except decrease baking time to 55 to 60 minutes. 
+
+Fabulous Breakfast Casserole - Sammi Jo Stewart
+8 slices of bread without the crust
+2 cups grated cheese
+1 lb. sausage or ham (I like ham, it's not as greasy)
+Beat together:
+8 eggs
+1 1/2 cups milk
+3/4 tsp. dry mustard
+dehydrated onion
+Break up the bread in a greased 9X13 pan.  
+Sprinkle meat and cheese on top. Pour egg mixture over everything. Cover and chill overnight. Bake at 350 for 1 hr. 15 min.
+Note: The recipe I have has you pour cream of mushroom soup (can of soup mixed with 1/2 can milk) on top just before you bake it. 
+We prefer it without this step but you just might like it!
+
+Mini Sausage Quiche –Amy Badger
+Crust:
+1 cup butter, softened 
+6 oz. cream cheese, softened 
+2 cups flour 
+Mix together, divide and roll into 48 balls. Refrigerate balls 1 hour. Press into mini muffin pans with a mini-tart shaper.
+Filling:
+½ pound pork sausage 
+3 strips cooked bacon, crumbled 
+2 Tbsp. finely chopped onion 
+2 Tbsp. fresh chopped chives 
+4 eggs, lightly beaten 
+1 cup cottage cheese 
+1 cup cheddar cheese 
+1 cup mozzarella cheese 
+1/3 cup grated parmesan cheese 
+Brown sausage and onion.  Stir in chives and bacon.  Fill each muffin cup with about 1/2 tsp.  sausage mixture. Combine eggs and cheeses.  Spoon over sausage mixture. Bake at 375° for 20-25 minutes.  Cool for 5 minutes.  Serve warm.
+
+Camel’s Eyes– Sue Reber – This was one of the kid’s favorite & easy breakfast foods..
+For one serving:
+1 egg
+1 piece of bread
+butter
+On a cutting board, butter both sides of your favorite bread.  Use an approximately 3 inch round glass to cut a hole in the middle of the bread.  Put on a heated griddle pan or skillet and crack egg in the hole. Let cook for a couple minutes and flip.  While this is cooking put the cut out circle on the skillet or griddle to toast.  Remove from skillet and serve.
+Ham & Cheese Omelette Roll –Amy Badger – This makes a very pretty omelette that is ready for everyone all at once.  I served it for dinner when friends were over and they were all impressed with how pretty it looks.
+4oz. cream cheese, softened
+3/4 cup milk
+2 Tbsp. all-purpose flour
+1/4 tsp. salt
+12 eggs
+2 Tbsp. Dijon mustard
+2-1/4 cups shredded cheddar cheese, divided
+2 cups finely chopped fully cooked ham
+1/2 cup thinly sliced green onions
+Line the bottom and sides of a greased 15-in. x 10-in. x 1-in. baking pan with parchment paper; grease the paper and set aside. In a small bowl, beat cream cheese and milk until smooth. Add flour and salt; mix until combined. In a large bowl, beat the eggs until blended. Add cream cheese mixture; mix well. Pour into prepared pan. Bake at 375° for 30-35 minutes or until eggs are puffed and set. Remove from the oven. Immediately spread with mustard and sprinkle with 1 cup cheese. Sprinkle with ham, onions and 1 cup cheese. Roll up from a short side, peeling parchment paper away while rolling. Sprinkle top of roll with the remaining cheese; bake 3-4 minutes longer or until cheese is melted. Yield: 12 servings.
+
+Light Wheat Biscuit Mix-Amy Badger
+You need a very large bowl to make this mix, & a clean container to put it in when it's done
+5 cups unbleached white flour
+4 cups whole wheat flour
+1-1/2 Tbsp. salt
+4 Tbsp. baking powder
+2 cups solid vegetable shortening 
+Measure your flours into your large bowl.  Add the salt and baking powder. Mix well.  After the salt and baking powder are evenly distributed throughout the flour, add the shortening.  Mix the flour and shortening together until the entire mixture is light and crumbly.  Try not to over-mix.  You will want small lumps to remain, about the size of peas or dried beans.  When the mixture is evenly mashed together, and it actually resembles biscuit mix you can stop.  Transfer the biscuit mix to a resealable container.  
+Yield: 10-1/2 cups of biscuit mix. 
+Use within 6 to 8 weeks if refrigerated or within 6 months if stored in the freezer
+This recipe can be used in any recipe calling for biscuit mix or Bisquick baking mix. 
+Pancakes :
+2 cups whole wheat biscuit mix
+2 eggs
+1 cup of milk
+Blend well and fry on griddle.
+Waffles: 
+2 cups wheat biscuit mix
+2 eggs
+1 cup milk
+2 Tbsp. oil
+Biscuits:
+3 cups wheat biscuit mix
+1 cup milk
+Mix together and knead 8 to 10 times.  Pat down flat and cut into squares. Bake at 450° for 8 to 10 minutes.
+
+Swedish Pancakes or (Flenchies)
+Grandma Walker learned Swedish from her Swedish grandparents.  Dave Marsh's  family called them Flenchies.  Also called Icelandic Pancakes or Rolled-Up Pancakes, take your pick!
+3 eggs 
+2 cups milk 
+2 Tbsp. melted margarine 
+1/4 tsp. salt 
+1-1/2 cups flour
+Beat eggs until thick and lemon-colored. Beat in milk, margarine, and salt until smooth. Add flour, and beat again until smooth. Brush hot griddle with margarine or spray with non-stick cooking spray. For each pancake, pour about 1/4 cup batter onto griddle and spread quickly with the back of a wooden spoon to make a thin round cake. Turn when underside is browned. These don't take long because they're so thin. May be sprinkled with sugar or spread with fruit sauce, jam, or syrup, then rolled. Makes about 15 - 8” pancakes.
+
+Rolly Pancakes – Jill Olsen - This came from Barbara but it is now the standard breakfast for Charlee and her friends. I've figured out the different amounts, depending on how many I'm feeding.
+4 c. flour & milk, 6 eggs, salt =13 pancakes
+2 2/3c. flour & milk, 4 eggs, salt = 10 pancakes
+2 c. flour and milk, 3 eggs, salt = 6 pancakes
+2/3 c. flour and milk, 1 egg, salt = 2 pancakes
+Mix the flour and milk first, then the eggs. Pour onto the center of a hot griddle and then tip the pan around to thin out the batter for a crepe type pancake. Top with butter, powdered sugar, syrup, or jam, roll up and enjoy.
+
+Oatmeal pancakes –Jill Olsen
+1/2 cup old fashioned oatmeal
+1/4 cup low-fat cottage cheese or tofu
+4 egg whites
+1/4 tsp. cinnamon
+1/4 tsp. nutmeg
+1 tsp. vanilla
+Mix ingredients in a blender until smooth. Pour onto griddle, cook till golden brown
+
+Never Fail Light Pancakes – Bonnie Chantry 
+Sift together:
+2 cups flour
+2 tsp. baking powder
+1 tsp. salt
+1 Tbsp. sugar
+3/4 tsp. soda
+Add:  2 cups buttermilk (or regular milk with a little lemon juice)
+2 eggs
+1 cup melted margarine
+Mix and cook on heated griddle
+Note: For a healthier version try it with 1 cup whole wheat flour & 1 cup white flour & 1 cup applesauce in place of the melted butter. They taste great either way.
+
+Shelly’s Sweet Hot Cakes - Nate Reber - 
+Our neighbor, Shelley Waasdorp, served these for breakfast.  Nate enjoyed many breakfasts at the Waasdorp home.
+1 cup whole wheat
+1 cup milk
+1 egg
+1 Tbsp. baking powder
+½ tsp. sugar
+3-4 drops vanilla
+½ tsp. salt
+1/4 cup oil
+Mix eggs, liquid, add dry ingredients and oil.  Can omit oil. Bake on well-greased griddle
+
+Whole Wheat Pancakes - Sue Reber -
+These pancakes have a nutty texture
+Process in blender:
+1 cup wheat (the whole kernel wheat)
+1 cup milk - until well chopped  
+Then add:   1/3 cup oil
+2 tsp. baking powder        
+2 Tbsp. sugar
+1 tsp. salt
+2 eggs
+Fry on heated grill.
+
+German Pancakes - Michael Fielding
+6 eggs
+1cup flour
+1cup milk
+1/2 cup sugar
+1stick butter
+Preheat oven to 400°.  Beat eggs, flour, milk and sugar together.  Place the stick of butter in a square glass pan and let it melt under the oven vent.  Once the oven is preheated cook for 15-20 minutes.  Till it looks done.
+
+Stuffed French Toast –Liz Bunderson
+8 pieces bread
+1 -8oz tub cream cheese
+3 eggs
+3 Tbsp. Raspberry jam
+1 cup Milk
+Butter to taste
+Dash of cinnamon
+Syrup to taste
+Beat cinnamon, eggs, and milk until frothy. Mix cream cheese and jam together. Spread cream cheese filling on 1 slice of bread and top with another like a sandwich. Dip into egg mixture and then cook in greased frying pan until set and golden brown. YUM!
+
+
+Baked Cinnamon French Toast -
+Barbara Olsen
+12 slices cinnamon bread, divided
+1/4 cup butter or margarine, softened
+9 eggs
+1 quart milk
+2 cups whipping cream 
+1 cup sugar
+4-1/2 tsp. vanilla 
+Line the bottom of a greased 9x13” baking dish with six slices of bread.  Butter remaining bread; place with butter side up over bread in pan.  In a mixing bowl, beat eggs.  Add milk, cream, sugar, and vanilla; mix well.  Pour over bread; let stand for 15 minutes.  Place the dish in a larger pan to a depth of 1 inch.  Bake, uncovered, at 375° for 40 minutes or until a knife inserted near the center comes out clean.  Let stand for 10 minutes before serving.  Top with preserves and whipped cream, if desired.   Yield: 6 servings
+
+Fabulous French Toast - Amy Badger
+This recipe is from Justin’s mom, Cathi Hatch, who is an incredible cook.  It is still one of Justin’s favorite breakfast meals.
+4 large croissants, split into two
+3 eggs
+¼ cup half & half
+1 tsp. vanilla
+zest of one orange
+Mix the eggs, milk, vanilla, and zest to make a batter.  Dip the croissant slices into batter and cook on griddle until done on both sides.  Top with powdered sugar and enjoy.
+
+Waffles – Sue Reber
+1 cup flour					
+1 egg white, stiffly beaten
+1 ½ tsp baking powder	
+1 egg yolk
+1/4 tsp salt					
+1 cup milk
+3 Tbsp oil
+Lightly grease griddle and plug in to preheat. Separate the egg. In a small mixing bowl beat egg whites until stiff peaks form. Set aside.  Mix together dry ingredients in mixing bowl.  Combine egg yolk, oil and milk in a small bowl.  Add all at once to dry ingredients. Stir just until moistened.  Gently fold beaten egg whites into mixture. Do not over mix.  Pour approximately 1/3 cup batter onto the griddle. Bake until steaming stops.  Remove carefully.
+
+Waffles - Trisha Olsen
+2 eggs
+2 cup flour
+½ cup margarine or butter (melted)
+1 3/4 cup milk
+1 Tbsp. sugar
+4 tsp. baking powder
+½ tsp. salt
+Heat waffle iron.  Beat eggs, until fluffy; beat in remaining ingredients just until smooth. 
+Blueberry waffles: Sprinkle 2 to 4 tablespoons fresh or frozen blueberries (thawed and well drained) over batter immediately after pouring batter onto the waffle iron.
+
+Waffles - Tawna Marsh
+2 eggs
+2 cups buttermilk
+2 cups flour
+2 tsp. baking powder
+1 tsp. soda
+½ tsp. salt
+6 Tbsp. shortening
+Beat eggs, beat in remaining ingredients until smooth.  Bake in hot waffle iron
+
+Bacon Waffles - Alice Chantry -My kids love these for breakfast or dinner. 
+½ pound bacon cooked and drained
+Add bacon to waffle batter and cook normally.  
+
+Dutch Baby - Tawna Marsh
+1/4 cup butter melted
+6 eggs
+1 1/2 cup milk
+1 1/2 cup Bisquick
+Blend eggs 1 minute.  Add Bisquick and blend for 20 seconds.  Add butter to mixture.  Bake at 425° for 18-25 minutes.  Toppings:  powdered sugar, yogurt, jam and syrup.  Mixture can be cut in half.
+
+
+Kentucky Biscuits –Liz Bunderson
+Makes 12 biscuits
+2 cups flour
+2½ tsp. baking powder
+½ tsp. baking soda
+Dash of salt
+1 Tbsp. sugar
+½ cup butter, margarine or shortening
+¾ cup buttermilk
+1 Tbsp. melted butter
+Flour, optional
+Mix flour, baking powder baking soda, salt and sugar in a mixing bowl. Cut in butter with pastry blender until mixture resembles coarse crumbs. Add buttermilk. Mix quickly to make a soft dough. Turn out onto lightly floured surface. Knead a few times to make a soft dough, don’t over knead or the biscuits will turn hard and dry. Roll out to a 6x6 inch square. Place on ungreased baking sheet. With knife, cut dough into 12 even portions. Do not separate. Bake at 400° until golden, about 15 minutes. Brush with melted butter and dust with flour if desired, when biscuits come out of the oven. Serve piping hot with butter, jam and /or honey.
+
+Baking Powder Biscuits – Amy Badger
+2 cups all purpose flour
+1/2 tsp. salt
+1/2 tsp. sugar
+1 Tbsp. baking powder
+1/4 cup butter or shortening
+Cut in butter until mixture is coarse crumbs.  Add: 3/4 cup milk.  Stir till mixed.  Knead gently on floured board.  Cut with round cutter.  Bake 450° for 12 minutes.
+
+Biscuits & Gravy - Liz Bunderson
+Use any biscuit recipe you have.  I use
+Bisquick and its recipe.  For the gravy use:
+3-4 Tbsp. bacon or sausage grease, shortening or butter.
+1/4 cup flour
+Stir and cook ‘til a little bit browned
+Add 2-3 cups milk
+Cook on medium heat until thickened.  (Start gravy then start biscuits.)  Also good on bread broken in small pieces.
+Mormon Gravy - Grandma Grace - Use this for the breakfast dish of biscuits and gravy.
+4 Tbsp. meat drippings (bacon, ham, sausage, or shortening)
+Heat in frying pan and add
+3 Tbsp. flour
+This is the critical part of making the gravy.  If you don't brown the flour in the drippings you have white sauce instead of gravy.  Watch it closely and do not let it brown too much, so stir constantly.  When it is lightly brown set the pan off the heat and stir in 2 cups milk. Return to the heat and stir until thick and smooth.  Salt and pepper to taste.  Good on mashed potatoes, corn bread.  Good with crisp bacon or sausage.
+
+Sawmill Gravy - Tawna Marsh
+1/4 cup cold bacon grease
+2/3 cup flour
+1 1/2 cups milk, heated
+2 tsp black pepper
+2 tsp salt
+Melt grease in heavy saucepan over medium heat. Sprinkle in flour, whisking constantly.  Cook about 1 minute, then whisk in hot milk, pepper and salt.  Cook and stir 5 minutes (It will keep several days in the refrigerator, but you may need to add a bit of milk to thin it out when reheating.)  Yield: about 2 3/4 cups
+
+Granola  - Liz Bunderson
+5 cups any rolled cereal (oats, 6 grain, etc.)
+1 cup dry powdered milk
+1 cup coconut
+1 cup sunflower seed
+1 cup chopped walnuts
+1 cup chopped pecans
+Combine well
+Heat and mix together:
+1 cup honey
+½ cup canola oil
+2 Tbsp. cinnamon
+1 tsp. nutmeg
+pinch allspice
+Pour over cereal mixture, blending well.  Then place mixture on baking sheet in 225° oven for 1 1/2 hours stirring every 15 minutes.  Cool well and place in air tight container.
+
+Peanutty Granola – Amy Badger
+8 cups oats
+1 ½ cups brown sugar
+1 ½ cup wheat germ
+1 cup cashew pieces
+1 cup slivered almonds
+1 cup shredded coconuts
+½ cup sunflower seeds
+½ cup water
+½ cup oil
+½ cup peanut butter
+½ cup honey
+2 tsp. vanilla
+1 cup raisins or Craisins
+Grease 2 cake pans.  In a large bowl mix oats, brown sugar, wheat germ, cashew pieces, almonds, coconut and sunflower seeds; set aside.  In a medium saucepan, mix water, oil, peanut butter, honey and vanilla.  Heat to boiling – stir well.  Pour over oat mixture and stir well coating everything. Bake at 200º for 1 hour, stirring 3 times.  Cool.  Add raisins.  Store cover in airtight container.
+
+Peanut Butter & Jelly Oatmeal – Amy Badger – This oatmeal is what got my kids started eating oatmeal for breakfast.  It is Stephen’s request most mornings.
+2 cups milk
+1 cup quick-cooking rolled oats
+¼ cup packed brown sugar OR 2 Tbsp. honey
+¼ cup peanut butter 
+Toppings:
+Your favorite jelly
+Sliced bananas
+Milk or cream
+In a saucepan, bring milk just to a boil; stir in rolled oats.  Cook and stir about 1 minute.  Remove from heat; stir in brown sugar OR honey and peanut butter.  Cover and let stand a few minutes.  Spoon into bowls.  Add 1 tsp. jelly in center of oatmeal.  Arrange banana slices around jelly in like flower petals.  Serve warm with milk or cream if desired.
+
+Turkey Sausage – Amy Badger-Our family started eating healthier and this has been a way to get my craving for sausage at breakfast time  without all the fat.
+1 lb. ground lean turkey
+2 egg whites, lightly beaten
+1 cup onion, finely chopped
+½ cup seasoned bread crumbs
+½ cup dried apples, snipped into pieces
+OR 1 cup fresh apple, finely shredded
+4 Tbsp. fresh parsley, chopped
+1 tsp. kosher or sea salt
+1 tsp. ground sage
+½ tsp. ground nutmeg
+½ tsp. black pepper
+¼ tsp. cayenne pepper
+Mix all ingredients together.  Form into patties and cook in frying pan or griddle until no longer pink in center.
+Optional: For a Texas style sausage, omit the apple and last 6 spices; instead add the following:
+½ cup diced green chilies
+1 clove garlic, minced
+4 Tbsp. cilantro, snipped into pieces
+2 Tbsp. cider vinegar
+2 tsp. chili powder
+
+Poached Eggs in Milk - Barbara Olsen
+Use large enough pan to hold eggs without crowding.  Use heavy pan so they won't scorch.  Use ¾ to 1 cup milk for each egg.  Heat milk, but don't let boil.  Break egg into bowl and slide into hot milk one at a time.  Reduce heat and let cook to desired doneness.  Cook 3-5 minutes.  Put egg on top of buttered toast in bowl and pour milk over it.
+
+Boiled Eggs - Grandma Grace
+Place eggs in cool water
+Add 1 tsp salt
+Bring to a boil.  Simmer 8-10 minutes.  Remove from heat.  Drain.  For fast cooling, refill with cold water.  Let cool 5 minutes.
+
+Soft Cooked Eggs 
+Have a kettle full of boiling water, remove from heat.  Place eggs in kettle, cover.  Remove eggs at the end of 7-10 minutes depending upon the degrees of cooking desired. The factors influencing this process are amount of water, number of eggs, temperature of eggs and depth of kettle.
+Hard Cooked Eggs 
+Prepare as for soft cooked eggs, but let them simmer for 25-30 minutes.  Cool eggs quickly by plunging them into cold water to prevent the blackened surface of the yolks. 
+
+Vanilla Buttermilk Syrup –Tawna Marsh-Excellent on French Toast, pancakes, waffles or as an ice cream or bread pudding sauce.
+1 ½ cup sugar
+¾ cup buttermilk
+½ cup butter
+2 Tbsp. Karo or corn syrup
+1 tsp. baking soda
+2 tsp. vanilla extract
+Directions:
+Combine sugar, buttermilk, butter, Karo and baking soda.  Heat on medium heat until hot and melted. DO NOT HEAT TO A BOIL. Remove from heat and add vanilla extract.
+
+Simple Maple Syrup –Sue Reber 
+1 cup sugar
+1/2 cup water
+Boil, stirring often until mixture becomes clear.   
+Add 1 ½ tsp maple flavoring.  That’s it!
+
+Heavenly Syrup- Amy Badger-This is simply known as “White Syrup” in our home.  It makes anything for breakfast taste divine.
+1 cup heavy whipping cream
+1 cup sugar
+1 cup light corn syrup
+1 tsp coconut extract
+1 tsp almond extract
+Bring sugar & corn syrup to a boil, stirring often.  Remove from heat, stir in whipping cream and extracts. Serve warm.
+
+Home-Style Syrup –Becky Concoby
+1 1/2 cups sugar
+2/3 cup corn syrup
+1/2 cup water
+1 tsp. vanilla
+5oz. evaporated milk
+1/2 tsp. butter flavoring
+1/2 tsp. almond extract
+Boil first 4 ingredients for 2 minutes, stirring constantly. Remove from heat and add milk and flavorings.
+
+Buttered Toast - Tawna Marsh
+1.  Take 2 pieces of bread and place in toaster (set medium light, or dark according to taste.)
+2.  When toast is ready, remove and butter.
+3.  Serve with jam or jelly of your choice.
+4.  Enjoy!
+Note: For more toast, use more bread.
+
+Ten Tips for Making Pancakes: 
+1. Make them any time of day.  Don’t forget that pancakes make a great lunch or dinner meal as well as breakfast.  Try a variety of flavors, add-ins, and toppings to make it fun.
+2. Don't over mix. Mixing develops the gluten in the batter. Mix the dry ingredients together to dispense the leavening throughout the flour. Mix the recipe's wet ingredients together in another bowl. Pour the wet ingredients into the bowl with the dry ingredients and mix until just moistened. There will still be lumps. That's okay-they'll cook out.
+3. Get the batter the right consistency. The batter should be runny enough that it will spread on the griddle. If it is too runny, the pancakes will be crepe-like. As you progress through the batch, the batter will tend to become thicker as the leavenings work. Add a little more water or milk as needed but remember to stir minimally.
+4. Prepare the griddle. Very lightly grease the griddle with a little shortening or with an aerosol can of vegetable oil.  
+5. Get the griddle hot enough. Set the griddle on high or medium-high heat. When the griddle is hot enough, water droplets will dance on the surface. After putting batter on the griddle, turn the heat to medium.
+6. Cook uniform-sized pancakes. Use a 1/3-cup measure for medium-sized pancakes and a 1/2-cup measure for larger pancakes. 
+7. Cook it right. You can tell when it's time to turn the pancake by watching the bubbles form and watching the edges of the pancakes. The bubbles tend to cook into little craters and the edges will be dry-looking when the pancake is ready to turn. A little practice makes perfect.
+8. Keep your pancakes hot. Pancakes are best if steaming hot. As you take the pancakes off the grill, cover them lightly with aluminum foil. If it's going to be more than a few minutes before they are eaten, stick the loosely covered plate in an oven heated to 275 degrees. For a special touch, heat the empty plates in the oven before serving.
+9. Keep that leftover batter.   Store it for up to several days in the refrigerator.  If it gets a little thick, revive it with a little milk and 1/2 teaspoon baking powder for each cup of batter.   (Don't over-stir it.)  
+10. Freeze extra pancakes.  Place them in a single layer on a baking sheet and freeze.  Once frozen, place them in freezer plastic bags and keep them for four to six months in the freezer
+WAFFLE TIPS AND IDEAS:
+Fluffier Waffles: For a fluffier and lighter homemade waffle, try separating the eggs. Beat your egg whites until stiff and then fold them into the batter with a light hand. You can try this with any waffle recipe that calls for whole eggs and see if you like the result. It will change the texture somewhat, but you may like the result even better than the original recipe. 
+Flavor: To add some flavor to your breakfast or brunch waffles, try adding a teaspoon of cinnamon and/or almond or vanilla to the batter. 
+Nuts: Like nuts in your waffles? Make sure they are very finely chopped so they will be evenly distributed in the waffle. Better yet, buy ground pecans or walnuts in the baking section of your grocery store. They give the great flavor of nuts, but are hardly noticeable in the waffle once it is baked. 
+Buttermilk: Have a great recipe for buttermilk waffles, but you don’t keep fresh buttermilk around? Try buttermilk powder instead. It has the same flavor and texture as fresh buttermilk, but keeps for quite a long time in the refrigerator. Or if you are in a pinch and don’t have any fresh or powdered buttermilk around, try adding 1 Tablespoon of vinegar to 1 Cup of milk in your waffle recipe. 
+Leftover Batter: Have leftover batter? If you don’t want to fry all of the batter that day, most pancake and waffle batters can be kept in the refrigerator for 1 to 2 days in a tightly sealed container. Lightly stir the batter with a whisk before using. 
+Adding Chips and Fruits: If you decide to use a waffle recipe that calls for chocolate chips or dried fruits, be aware that the waffles may stick because of those items melting on the hot waffle iron surface. A quick wipe with vegetable oil on a paper towel to wipe off any gooeyness between waffles will keep the problem from getting worse the more waffles you bake. 
+Waffle Batter: Be precise in measuring your ingredients, as it will affect the consistency of your waffle batter. You want to have a slightly thick batter that is still pourable. It should not be thin or runny. If it is, add flour carefully in rounded teaspoons until a good consistency is reached. If the waffle batter is too thick and will not pour out of the ladle well, add milk 1 Tablespoon at a time until it is thin enough to pour. Try not to over mix the batter. To pour the batter onto the waffle maker, use a measuring cup or ladle. 
+Oddly Shaped Waffles: If your waffle shapes are turning out lopsided first make sure you are pouring enough batter in. If so, then try pouring the batter just slightly to the back from the center of the waffle iron. When you close the lid on the waffle iron, it pushes the batter forward and will turn out a more uniformly shaped waffle. 
+Poor Texture: Are your waffles coming out tough and rubbery? Your waffle iron probably isn't hot enough. Your iron may need extra time to get hot enough before baking and in between each waffle. If this continues to be a problem, consider purchasing a new waffle maker.
+BREAKFAST LISTS – 
+A good breakfast should provide
+Fruit                                                                                                                Grain                                                     Protein                                                       Veggie (if your lucky)
+Examples:
+Cracked wheat cereal                                 orange slices                                                        toast & cheese slices
+Fried potatoes & bacon                                          scrambled eggs                                                apple juice
+Cinnamon toast                                               eggnog                                                                       apple slices
+Cooked rice with raisins, brown sugar and milk
+Bran muffin                                                         boiled eggs	                                                grapefruit halves
+Blender pancakes                                                  milk                                                                            orange slices
+Bowl of fruit (applesauce, pears, or peaches)    peanut butter toast                                          milk
+Waffles                                                                  fruit slices in syrup                                                               ham slices
+Hash brown potatoes                                          sausage patties  
+Scones                                                                   fruit jam                                                        milk                                                               ham slices
+Egg on a raft                                                        bacon                                                         tomato juice
+Pancakes                                                            sausage                                                       scrambled eggs                                                  milk
+BREAKFAST LIST OF FOOD OPTIONS:
+Eggs - omelet, soft cooked, hard cooked, deviled, poached, fried, scrambled, mixed in with fried potatoes, casseroles, and quiche.
+Breads - toast, English muffin, bagels, raisin toast, biscuits and variations, muffin, pancakes, waffles, scones, Mountain pancakes, Swedish pancakes, French toast, rolls-cinnamon or others, crepes.
+Cereals - cold, pioneer or cracked wheat, oatmeal, cream of wheat, corn meal mush, granola.
+Meats - Ham, sausage, bacon, Canadian bacon.
+Beverages - milk, juice, cocoa, Pero, eggnog, smoothies, Orange Julius. 
+
+Fruits and juices - Orange, Tang, lemon, lime,  apple, grape, pineapple, grapefruit, tomato, apricot nectar, V-8 juice, applesauce, fruit cocktail, strawberries, raspberries, cantaloupe, melon, banana, orange slices, pears, peaches, grapefruit sections, fruit combinations, apples, plums, cherries, berries, orange slices & coconut, hot applesauce with Red Hots, orange sections with pomegranate seeds, melon balls.
+Breakfast sandwich variations – sandwiches on toast, bagels, biscuits, English muffins, or in pitas or tortilla (breakfast burrito).  Can include eggs, meat and cheese.
+Milk gravy on bread or biscuit – sausage gravy, bacon gravy, milk gravy, cheese sauce, etc. on top of bread, toast, biscuit, English muffin, or your favorite type of bread.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Grandma’s Plain Cake - Grandma Walker - Barbara uses this recipe to make strawberry shortcake
+½ cup shortening
+1 cup sugar
+2 eggs 
+2 cups flour less 2 Tbsp. 
+2 Tbsp. cornstarch
+(Mixing 1 Tbsp. of cornstarch to make the full cup makes the equivalent of cake flour.)  
+2 tsp. baking powder
+2/3 tsp. salt 
+1 cup milk
+1 tsp. flavoring
+Cream shortening with sugar.  Add eggs and beat.  Add sifted ingredients alternately with the milk and flavoring.  Bake 325° for 30 minutes.
+
+Sponge Cake - Aunt Zeona Walker
+8 egg whites
+¼ tsp. salt
+½ tsp. cream of tartar
+Beat until stiff. In separate bowl mix the following:
+8 egg yolks, beaten
+1¼ cups water
+1 tsp. vanilla
+1¼ cups flour
+1¼ cups sugar
+Beat until smooth, fold in egg white mixture. 
+Bake in ungreased tube pan.  Bake 1 hour at 325°.   
+
+Hot Milk Cake - Bonnie Chantry via Teresa Smith, a friend in the Jefferson Branch where we are serving a stake mission.  This is a small, old fashioned cake that always leaves us wanting more.  Every time we have it I have memories of Grandma Walker come to mind for it is like having lovin' from the oven.
+Prepare 8" square pan by buttering it and putting ½ c. milk and 1 T. butter in it. Place in the oven while it is heating to 350°.  Leave until the butter melts.  Meanwhile make the cake batter.
+Cake Batter
+2 eggs
+1 cup sugar
+1 Tbsp. butter
+½ tsp. salt
+1 cup flour
+1 tsp. baking powder
+½ tsp. vanilla 
+Beat the eggs, add the sugar, butter and vanilla and continue beating until smooth.  Sift salt, flour and baking powder together and add to batter.  Spoon mixture over hot milk/butter.  Bake at 350° about 30 minutes.  When cake is almost done, start sauce.
+Hot Milk Cake Sauce:
+6 Tbsp. real butter
+1/4 cup milk
+6 Tbsp. brown sugar
+3/4 cup coconut
+Cook butter, milk and sugar until it spins a thread when a small amount is dropped from a spoon.  It may look burned or curdled but don't worry about what it looks like.  Pour sauce over the hot baked cake, top with the coconut. It makes a crusty frosting that keeps the cake moist for as long as it takes us to eat it.
+
+Moist Chocolate Cake - Bonnie Chantry -
+Wonderful moist cake. That was my specialty when I was cooking for Daddy Doug.
+1½ cup sugar
+½ cup shortening
+2 eggs
+½ cup milk
+1 tsp. vanilla
+1 cup boiling water
+½ cup cocoa
+2 cups flour
+1 tsp. salt
+1 tsp. soda
+½ tsp. baking powder
+Cream sugar and shortening then add eggs.  Alternate dry ingredients with milk and vanilla. Mix well.  Add boiling water and immediately bake.  Flour and grease 13x9 pan. Bake 30 min.
+
+
+
+
+
+
+
+Sour Cream Chocolate Cake - Jill Olsen
+2 cups flour
+1 cup water
+1 3/4 cup sugar
+¼ cup shortening
+3 Tbsp. cocoa
+1 cup sour cream
+1 tsp. soda
+1 tsp. salt
+¼ tsp. baking powder
+1 tsp. vanilla
+2 eggs
+Cream shortening, sugar and eggs.  Add dry ingredients, water and sour cream.  Bake at 375° for 40 minutes.
+Sour Cream Chocolate Frosting:
+1/3 cup butter
+1-2 Tbsp. cocoa
+3 cups powdered sugar
+½ cup sour cream
+2 tsp. vanilla
+Beat together 
+
+Devil’s Food Cake - Derlene Olsen
+½ cup shortening
+3 Tbsp. cocoa
+2 eggs
+3/4 cup canned milk
+1 tsp. vanilla
+1 ½ cups sugar
+2 cups flour
+3 tsp. baking soda
+1 cup boiling water
+dash of salt
+Cream shortening and sugar.  Add eggs and cocoa.  Sift dry ingredients.  Add alternately with milk.  Add vanilla, water and salt. Mix well.  Bake at 375° for 30 minutes.
+
+Chocolate Sheet Cake - Lion House – A visit to Temple Square feels complete when you stop for lunch at the Lion House cafeteria.  Don’t forget to try one of their delicious desserts like this cake.
+½ cup margarine softened
+½ cup shortening
+1/4 cup cocoa
+1 cup water
+2 cups flour
+2 cups sugar
+½ cup buttermilk (or soured milk)
+1 tsp. cinnamon
+1 tsp. baking powder
+1 tsp. vanilla
+2 eggs beaten
+dash salt
+Mix fats, cocoa, water and bring to a boil.  Pour over mixture of flour and sugar.  Mix well.  Add buttermilk and rest of ingredients. Mix well.  Bake 20 min. at 400° in 10x15” pan.  Frost while hot.
+Chocolate Sheet Cake Frosting - Lion House
+½ cup butter
+4 Tbsp. cocoa
+1 tsp. vanilla
+6 Tbsp. milk
+4 cups powdered sugar
+1 cup chopped nuts
+Melt butter; add cocoa, vanilla and milk.  Bring to a boil.  Remove from heat add powdered sugar and nuts.  Mix well, frost cake while still warm.
+
+Texas Sheet Cake - Lisa Olsen
+2 cups flour + 2 Tbsp. flour
+2 cups sugar
+½ cup buttermilk
+1 tsp. vanilla
+4 Tbsp. cocoa
+1 stick margarine
+1 tsp. baking soda
+1 cup water
+½ cup oil
+2 eggs
+Sift flour, sugar and cocoa.  Combine margarine, water, oil in pan and bring to a boil.  Pour over flour mixture.  Combine buttermilk with soda, pour in with mixture.  Add eggs and vanilla.  Bake at 400° for 20 minutes in jelly roll pan.
+Frosting:
+1 stick margarine
+1/3 cup buttermilk
+4 Tbsp. cocoa
+1 pound powdered sugar
+1 tsp. vanilla
+
+Chocolate Molten Cakes with Mint Fudge Sauce - Amy Badger - My mother-in-law gave me a subscription to Bon Appétit cooking magazine soon after we got married.  I have to admit most of the recipes were too complicated for me at the time.  I did brave this one and LOVED the results.  Be careful not to OVERBAKE the cakes as they will not be “molten” style if you do. These cakes are slightly under baked so that the chocolate center oozes when cut into. Makes 6
+Sauce 
+4½ oz. bittersweet (not unsweetened) 
+OR semisweet chocolate, chopped
+2 oz. unsweetened chocolate, chopped
+1/3 cup hot water
+¼ cup light corn syrup
+¾ tsp. peppermint extract
+Cakes 
+5 oz. bittersweet (not unsweetened) or semisweet chocolate, chopped
+10 Tbsp. unsalted butter
+3 large eggs
+3 large egg yolks
+1 1/2 cups powdered sugar
+1/2 cup all purpose flour
+For sauce:  Stir both chocolates in top of double boiler over barely simmering water until melted. (or melt in the microwave) Add 1/3 cup hot water, corn syrup and extract; whisk until smooth. Remove from over water. Cool slightly. (Can be made 2 days ahead. Cover; chill. Before serving, rewarm over low heat, stirring constantly.) 
+For cakes: Preheat oven to 450°. Butter six 3/4-cup soufflé dishes or custard cups. Stir chocolate and butter in heavy medium saucepan over low heat until melted. Cool slightly. Whisk eggs and egg yolks in large bowl to blend. Whisk in sugar, then chocolate mixture and flour. Pour batter into dishes, dividing equally. Bake cakes until sides are set but center remains soft and runny, about 11 minutes. Run small knife around cakes to loosen. Immediately turn cakes out onto plates. Spoon sauce around cakes. Serve with ice cream.
+
+
+Milky Way Cake - Jill Olsen
+8 Milky War Bars, chopped
+1 cup pecans 
+1 cup margarine
+Cook over low heat, set aside to cool.
+Mix the following:
+2 cups sugar
+4 eggs
+2 tsp. vanilla
+1 tsp. baking soda
+2 ½ cups flour
+1¼ cups buttermilk or sour cream
+Beat two minutes, fold in candy mixture.  Bake 350° 30-45 minutes.
+Milky Way Cake Frosting: 
+1 8oz. cream cheese
+1 2 lb. box powdered sugar
+1 tsp. vanilla
+½ cup butter
+dash of salt
+Mix well.
+
+Kenna’s Chocolate Chip Cake - Rachel Mitchell
+1 3/4 cup boiling water
+1 cup oats
+1 cup granulated sugar
+1 cup brown sugar
+1 cube margarine
+2 Tbsp. cocoa
+2 eggs
+1 3/4 cup flour
+1 tsp. baking soda
+½ tsp. salt
+1 bag chocolate chips
+Pour boiling water over oats.  Let stand 10 minutes.  Add sugars and margarine.  Mix, add other ingredients, except ½ bag of chocolate chips.  Mix. Pour in greased cake pan.  Sprinkle remaining chocolate chips over all.  Bake at 350° for 40 minutes.
+
+
+
+
+
+
+
+
+Zucchini Chocolate Cake – Bonnie Chantry
+2 ½ cups flour
+½ cup cocoa
+2½ tsp. baking powder
+1½ tsp. baking soda
+1 tsp. salt
+1 tsp. cinnamon
+3/4 cup margarine
+2 cups sugar
+3 eggs
+2 tsp. vanilla
+2 tsp. grated orange peel
+2 cups coarsely shredded zucchini
+½ cup milk
+1 cup chopped pecans
+Combine first 6 ingredients and set aside. Cream margarine and sugar.  Add eggs one at a time. Stir in with a spoon - vanilla, orange peel and zucchini.  Add dry ingredients alternately with milk.  Stir in pecans. Pour into greased and floured 10 inch tube pan.  Bake at 350° for about 1 hour.  Drizzle with glaze after cooled on wire wrack.
+GLAZE:  
+2 cups powdered sugar
+3 Tbsp. milk
+1 tsp. vanilla
+Beat all until smooth.  Drizzle over cake.
+
+Chocolate Zucchini Cake-Amy Badger
+¾ cup sugar
+½ cup packed brown sugar
+½ cup (4oz) fat free cream cheese, softened
+1/3 cup vegetable oil
+2 large eggs
+2 large egg whites
+1 tsp. vanilla extract
+2 ½ cups flour
+½ cup unsweetened cocoa
+2 tsp. baking powder
+½ tsp. baking soda
+½ tsp. salt
+½ tsp. cinnamon
+¾ cup fat free buttermilk (or soured milk)
+2 cups shredded zucchini
+2/3 cups mini chocolate chips
+¼ cup chopped walnuts
+Spray & flour 12-cup bundt pan.  Place sugars, cream cheese, and vegetable oil in a large bowl and beat well.  Add eggs, 1 at a time & vanilla.  Combine dry ingredients and add, alternating with the buttermilk.  Stir in the zucchini, choc. chips & nuts.  Bake at 350° for 1 hour.
+
+Red Velvet Cake- Tiffanie Olsen
+½ cup shortening
+1 ½ cups sugar
+2 eggs beaten
+1 oz. Red food coloring
+2 tsp. cocoa
+1 cup buttermilk
+2 ¼ cups flour
+1 tsp. baking soda
+1 tsp. salt
+1 tsp. vanilla
+1 tsp. vinegar
+Mix baking soda and vinegar in a cup and set aside.  Cream shortening, sugar and eggs.  Mix cocoa and red coloring together then stir into shortening mix.  Add flour and buttermilk alternately.  Stir in salt, add baking soda and vinegar.  Mix and add vanilla.  Mix well.  Pour in three 8 inch greased and floured cake pans.  Bake at 350° for 25-30 minutes.
+
+Red Velvet Cake Icing - Tiffanie Olsen
+5 Tbsp. flour
+1 cup sugar
+1 cup milk
+1 tsp. vanilla
+½ cup margarine
+½ cup butter
+few drops red food coloring 
+Cook flour and milk, stirring constantly until thick.  Lumps form easily.  Let cool.  Cream butter, margarine and sugar.  Add vanilla.  Combine the mixture and beat till fluffy (or the consistency of whipped cream) with an electric beater.  While mixing add a few drops food coloring.
+OR use Cream cheese style Icing
+2 cups ricotta cheese
+6 Tbsp. sugar
+1 Tbsp. vanilla
+Beat till smooth.
+
+
+
+Oatmeal Cake - Barbara & Bonnie
+1 cup quick oats
+1 1/2 cup boiling water
+½ cup oil
+2 eggs
+1 cup brown sugar
+1 cup sugar
+Sift together:
+1 1/2 cup flour
+1 tsp. soda
+1 tsp. baking powder
+1 scant tsp. salt
+Pour boiling water over oats.  Let stand 15-20 min. Cream shortening and sugar.  Add eggs.  When light and creamy, add dry ingredients..  Beat well.  Add oat mixture & beat well.  Pour into a greased 9x13 cake pan.  Bake at 375° for 30 minutes. While cake is baking, melt the butter for the frosting in a saucepan.  Add the sugar, coconut, walnuts and canned milk.  Cool slightly until the sugar is completely dissolved.  Spread on top of warm cake. 
+Frosting for Oatmeal Cake: 
+½ cup melted butter
+1/4 cup canned milk
+½ cup brown sugar
+1 cup coconut
+1 tsp. vanilla
+1 cup chopped nuts
+Frost cake while still hot
+* Grandma Grace’s  frosting recipe
+1/4 cup melted butter
+½ cup firmly packed brown sugar
+3 Tbsp. half and half OR canned milk
+1/3 cup chopped nuts
+3/4 cup coconut
+
+Any Old Fruit Cake - Grandma Grace
+1 qt. bottled fruit - blended
+2 cups sugar
+1 cup oil
+4 cups flour (white and/or wheat)
+3 tsp. soda
+1 tsp. baking powder
+1 tsp. cloves
+1 tsp. nutmeg
+2 tsp. cinnamon
+1 tsp. salt
+1 cup chopped nuts/raisins optional
+Mix all together in large bowl.  Bake in one 13x9 and one 8x8 pan at 350° for 35-40 minutes.  Serve plain or with ice cream, sauce, whipped cream or applesauce. 
+
+Applesauce Cake - Barbara Olsen - Also makes good fruit cake.
+½ cup shortening
+2 cups sugar
+1 egg
+½ cup boiling water
+2 tsp. baking soda (dissolved in the boiling water)
+½ cup chopped nuts
+1 cup chopped raisin
+1 1/2 cups applesauce
+2 ½ cups flour
+1/4 tsp. salt
+½ tsp. each cinnamon, cloves, allspice
+Mix all ingredients then bake 350° for an hour.   
+Fruit Cake:  Add 1 cup gumdrops and maraschino cherries.
+
+Apple Cream Cake –Pam Reber Grange
+2 cups white sugar 
+1/2 cup butter 
+2 eggs 
+2 cups flour 
+2 tsp. soda 
+1 1/2 tsp. cinnamon 
+1/2 tsp. nutmeg 
+1/2 tsp. allspice 
+1 tsp. salt 
+1 cup chopped pecans (optional) 
+4 cups shredded apples                                                                                                          
+Cream sugar and butter until fluffy.  Add eggs, flour and spices.  Stir in apples and place in a well greased 9x13 pan.  Bake for 35-45 minutes in a 350° oven. 
+Sauce: 
+1/2 cup butter 
+1 cup brown sugar 
+1 1/2 cups heavy cream 
+2 tsp. vanilla 
+Heat and simmer for 12-15 minutes, stirring constantly.  Cool slightly and add vanilla. Spoon over warm cake.  
+
+
+Apple Cake - Jill Olsen
+2 cups sugar
+½ cup butter
+2 eggs
+2 cups shredded apples
+2 cups flour
+2 tsp baking soda
+1 tsp salt
+1 cup chopped nuts
+Cream sugar, butter, eggs, then add the rest. Bake in greased 9x13 at 400° for 10 minutes.  Then 300° for 30 minutes. Serve warm with the following sauce.
+½ cup butter
+1 cup sugar
+½ cup whipping cream - not whipped.
+1 tsp. vanilla  
+Mix together and heat but
+DO NOT BOIL!! Pour over warm cake.
+
+Banana Cake - Laurie Fryatt
+Cream: 
+2/3 cup shortening
+1 ½ cups bananas
+½ cup buttermilk
+2 eggs
+Sift together:
+2 ½ cups flour
+1 2/3 cups sugar
+1 ½ tsp. baking powder
+1 tsp. baking soda
+1 tsp. salt
+Add to banana mixture then add:
+2/3 cup chopped walnuts
+Bake 350° for 35 minutes in 9x13 pan.
+
+Rhubarb Cake – Amy Badger – This recipe comes from Carolyn Loosee, a generous neighbor of Jared & Suzanne’s with a big garden in Layton.  The kids & I got to live with Jared’s family for 5 months while Justin was at the FBI Academy. 
+¼ cup sugar
+1 ½ cup packed brown sugar
+½ cup margarine softened
+1 tsp. vanilla
+1 egg
+2 ½ cups flour
+1 tsp. salt
+1 tsp. baking soda
+1 cup buttermilk OR add 1 Tbsp. white vinegar to regular milk, let sit until lumpy
+2 cups chopped rhubarb
+Topping:
+2 Tbsp. sugar
+½ tsp. cinnamon
+½ cup chopped walnuts (optional)
+Beat together sugars and margarine. Add vanilla and eggs beat well. Combine flour, soda, salt. Add dry ingredients alternately with buttermilk, beat until well combined. Spoon 2/3 of batter into a greased 9x13 baking pan, spreading evenly. Sprinkle with rhubarb. Smooth additional batter on top. Mix sugar, cinnamon and nuts together, sprinkle on top. Bake at 350 for 40 to 50 minutes or until toothpick inserted comes out clean. Serve warm with whipped cream or ice cream.
+
+Strawberry Pound Cake – Amy Badger
+Catarina had a Hawaiian Luau for her first birthday party.  She got a cake all to herself.  This is the cake everyone else got to eat.
+1 pkg. strawberry cake mix  
+1 (3.4 oz) pkg. vanilla instant pudding mix  
+4 large eggs  
+1 cup water  
+1/3 cup vegetable oil  
+1 cup miniature semi-sweet chocolate chips  
+1/6 cup Chocolate Butter cream Frosting  
+Whole strawberries (optional)
+Preheat oven to 350º. Grease and flour 10-inch Bundt pan.  Combine cake mix, pudding mix, eggs, water and oil in large mixing bowl. Beat at low speed with electric mixer until moistened. Beat at medium speed for 2 minutes. Stir in chips. Pour into prepared pan.  Bake 55 to 60 minutes.  Place frosting in microwave-safe bowl. Microwave on high power for 10 to 15 seconds. Stir until smooth. Drizzle over top of cooled cake & place whole strawberries in center of cake
+Variation: Can dip whole strawberries in chocolate before decorating in the middle of cake.
+
+Pumpkin Cake –Liz Bunderson - If anyone ever feels so inclined to make me a birthday cake this is the one I want!  Thanks!
+4 eggs
+2 cups sugar
+1 cup oil
+2 tsp. cinnamon
+2 tsp. baking soda
+2 cups flour
+1 tsp. salt
+1 tsp. baking powder
+2 cups pumpkin puree
+Mix together eggs, sugar, oil, cinnamon. Mix and Mix and Mix.  Then Mix in soda, flour, salt, baking powder.  Mix and Mix and Mix.  Mix in pumpkin. Pour half into 2 9-inch round pans.  Bake at 350° for 40 min.  Cool and frost with recipe below.
+Pumpkin Cake Frosting
+½ cup margarine
+8 oz. cream cheese, softened
+1 lb. powdered sugar
+1 tsp vanilla
+Mix together well and use to frost pumpkin cake.
+
+Pumpkin Cake Roll - Alecia Bales  
+3 eggs 
+1 cup sugar 
+2/3 cup canned pumpkin 
+1 tsp. lemon juice 
+3/4 cup flour 
+1 tsp. baking powder 
+1/4 tsp. salt 
+2 tsp. cinnamon 
+1 tsp. ginger 
+½ tsp. nutmeg 
+Powdered sugar 
+6 oz. cream cheese 
+1/4 cup softened margarine 
+1 tsp. vanilla 
+1 cup powdered sugar 
+1 cup chopped walnuts
+Preheat oven to 375°.  Grease and flour a 15x10x1-inch jelly roll pan.  In another bowl, beat eggs at high speed until thick and lemon-colored, about 5 minutes.  Gradually add sugar, beating well.  Stir in pumpkin and lemon juice.  Stir together flour, baking powder, salt, and spices.  Fold into pumpkin mixture.  Spread into prepared pan.  Bake for 12 to 15 minutes until cake springs back when touched.  Meanwhile, sift powdered sugar over a dish towel bigger than the jelly roll pan.  Immediately after removing cake from oven, loosen edges from pan and turn out onto prepared towel.  Starting with narrow end, roll the warm cake and the towel together; cool on a wire rack.  
+For filling, beat cream cheese, margarine and vanilla until smooth.  Beat in 1 cup powdered sugar.  Unroll cake; spread with filling; sprinkle with nuts.  Roll cake up without towel; chill.  Slice to serve.  Store in refrigerator.  Makes 10 servings.
+
+Molasses Gingerbread Cake -Tiffanie Olsen - 
+Served at Joe and Gina's wedding reception
+Cream: 3 Tbsp. shortening
+½ cup sugar
+1 egg
+Add: 1 1/2 cup flour
+½ tsp. salt
+1 tsp. ginger
+1 tsp. cinnamon
+1 tsp. baking soda
+½ cup canned milk
+½ cup molasses 
+Use 9x13” pan. Bake 350° 30-45 minutes.  
+HARD SAUCE:
+4 Tbsp. butter
+3/4 cup powdered sugar
+2 Tbsp. canned milk
+½ tsp. vanilla
+¼ tsp. lemon extract
+Cream butter and sugar.  Add rest of ingredients and beat ‘til fluffy. Spread over cake.
+
+
+
+
+
+
+
+
+
+Carrot Cake-Low Fat – Amy Badger – This is a recipe from Alton Brown.  He helps me and my kids understand the science of cooking and that is why we love him.
+Unsalted butter, for the pan 
+2 1/2 cups, all-purpose flour, plus extra for pan 
+1 ½ cups grated carrots, approx. 6 medium 
+1 tsp. baking powder 
+1 tsp. baking soda 
+1/4 tsp. ground allspice 
+1/4 tsp. ground cinnamon 
+1/4 tsp. freshly ground nutmeg 
+1/2 tsp. salt 
+1 1/3 cups sugar 
+¼ cup dark brown sugar 
+3 large eggs 
+6oz. plain yogurt 
+¾ cup vegetable oil 
+Preheat oven to 350°. Butter and flour a 9-inch round cake pan. Line the bottom with parchment paper. Set aside. Mix flour, baking powder, baking soda, spices, and salt. Add carrots and toss until they are well-coated with the flour. In the bowl of the food processor combine the sugar, brown sugar, eggs, and yogurt. With the processor still running drizzle in the vegetable oil. Pour this mixture into the carrot mixture and stir until just combined. Pour into the prepared cake pan and bake on the middle rack of the oven for 45 minutes. Reduce the heat to 325° and bake for another 20 minutes. Remove the pan from the oven and allow cake to cool 15 minutes in the pan. After 15 minutes, turn the cake out onto a rack and allow cake to cool completely. Frost with cream cheese frosting after cake has cooled. 
+Cream Cheese Frosting:
+8 oz. cream cheese 
+2 oz. unsalted butter, room temperature 
+1 tsp. vanilla extract 
+Combine the cream cheese and butter just until blended. Add the vanilla. With the speed on low, add the powdered sugar in 4 batches and beat until smooth between each addition. Place the frosting in the refrigerator for 5 to 10 minutes before using. 
+
+
+Bolo de Iogurte (Yogurt Cake)-Justin Badger- A recipe that I learned of and used many a time on my mission in Portugal.
+1 container of Yogurt-your favorite
+fruit flavor (use yogurt container as a measuring cup for the remaining ingredients)
+3 cups of flour
+3 cups of sugar
+1 cup of vegetable oil
+3 eggs
+Mix all the ingredients together well and pour into a cake pan that has been greased and floured.  Bake at 375°.  After 20 minutes check the cake.  Done when top is golden brown.
+
+Picnic Cake - Barbara Olsen
+1 heaping cup dates
+1 ½ cup boiling water
+1 tsp. soda
+Add soda, dates, water. Set aside to cool.
+Beat together:
+3/4 cup shortening
+1 cup sugar   
+2 eggs
+Add to cooled date mixture.  Then add:
+1 1/2 cup + 2  Tbsp. flour
+1 tsp. salt
+Pour into greased and floured pan.  
+Over top sprinkle ½ cup brown sugar, ½ cup nuts, and 1 cup chocolate chips.  Bake 350° for 40 minutes.  Serve warm or cold with whipped cream, ice cream or plain.
+
+Crazy Cake - Ruby Fielding
+3 cups flour
+6 Tbsp. cocoa
+1 tsp. salt
+2 cups sugar
+2 tsp. soda
+Mix above ingredients. Place in ungreased 9x13 pan.  Make three wells or holes.  Pour into the wells:
+3/4 cup oil	
+2 tsp. vanilla
+2 Tbsp. vinegar
+Pour over all 2 cups of cold water then mix everything together with a fork. Bake 350° for 30-35 minutes.
+Poppy Seed Cake - Diane Anderson -A very moist bundt cake.
+1 box of yellow cake mix (with pudding)
+½ cup milk
+1/3 cup oil
+½ cup butter or margarine
+4 eggs
+1 cup sour cream 
+2 Tbsp. poppy seeds
+1 Tbsp. almond extract
+2 Tbsp. flour
+Mix all ingredients and blend for 5 minutes.  Pour into a greased and floured Bundt pan. Bake at 350° for 40 minutes. Let it stand for 15 minutes before removing from the pan. (High Altitude: Bake at 375° for 35 minutes)
+Variation: Use this recipe with other cake mixes omitting poppy seeds & almond extract.
+
+Cake "Bonnie" - Bonnie Chantry - This is a fascinating cake.  The marshmallows on the bottom rise to the top while the pie filling sinks to the bottom.  It is easy and delicious.  We found it in "Motorhome Magazine." No need for frosting - the marshmallows seal the moisture inside.
+1 pkg. miniature marshmallows
+1 yellow cake mix (mixed according to directions)
+1 can cherry pie filling OR your favorite fruit
+Cover bottom of cake pan with layer of marshmallows. Pour cake batter oven them evenly.  Spoon pie filling evenly over batter.  Bake in 350° for 30-35 minutes.  
+
+Watergate Cake - Tiffanie Olsen
+1 white cake mix
+1 small pkg. pistachio pudding
+1 cup oil
+3 eggs
+1 can club soda
+½ cup chopped nuts, optional
+Mix and bake at 350° for 45 minutes. 
+Frosting:  1 envelope Dream Whip
+1 small pkg. pistachio pudding
+1 1/2 cup cold milk.  Whip together and frost
+
+
+
+Better Than Sex Cake – Suzanne Reber – This is the most requested cake for birthdays in the Reber family. “My kids LOVE this cake and for them we call it ‘Better Than Disneyland Cake’ instead.” Amy Badger
+1 pkg. devil's food cake mix
+6oz. caramel ice cream topping
+2 large Skor candy bars, chopped
+1 (8oz) pkg. frozen whipped topping, thawed
+Bake cake according to package directions for a 9x13 inch pan; cool on wire rack for 5 minutes. Use the handle of a wooden spoon to poke holes in the cake, making sure not to go through to the bottom. Warm caramel topping for about 30 seconds in the microwave. Slowly pour the warm topping mixture over the top of the warm cake, letting it sink into the holes.  Let cake cool completely, and then top with whipped topping. Decorate the top of the cake with chocolate toffee bar chunks and swirls of caramel topping. Refrigerate and serve right from the pan!
+
+Better Than Sex Cake - Janine Hinkle
+1 box yellow cake mix with pudding
+1 lrg, can crushed pineapple, undrained
+½ cup chopped nuts
+1 cup sugar
+1 small pkg. vanilla instant pudding
+½ cup coconut
+Mix and bake cake as directed in 9x13 pan.  While baking, boil pineapple and sugar for 5 minutes.  Make pudding.  Spread pineapple mixture over baked cake while still hot.  Let cool.  Spread pudding on top.  Cool.  Spread Cool Whip next and top with nuts and coconut.  Refrigerate
+
+
+
+
+
+
+
+
+
+
+
+Layer Party Cake - Sue Reber - Served at a Mélange Literary meeting.  The literary club I belonged to in St. George
+1 yellow cake mix
+1 lrg. can mandarin oranges with juice
+3/4 cup oil
+½ cup sugar
+4 eggs
+Mix well.  Pour into well greased round pans, use 3 or 4.  Bake 20-25 min at 350°.
+Topping For Layer Party Cake:
+1 large pkg. instant vanilla pudding
+1 20 oz can crushed pineapple
+Mix well.  Fold in 1 lrg. carton Cool Whip
+Ice cake and refrigerate for at least 4 hours.  Yummy
+
+Jell-O Cake - Diane Anderson
+1 lemon cake mix
+1 pkg. lime Jell-O
+3/4 cup boiling water
+Bake cake as directed on package.  When cake has cooled for about 20 minutes, poke holes with fork at ½ inch intervals. Dissolve gelatin in boiling water.  Spoon over cake. Chill 3-4 hours.  Top with Cool Whip, or frost with:
+1 pkg. vanilla instant pudding 
+1 pkg. dream whip
+1½ cups milk
+Beat well together till light and fluffy.   Frost the cake.  Keep refrigerated.
+VARIATION: Raspberry Poke Cake 
+Use white cake and raspberry Jell-O
+
+Double Fudge Pudding Cake - Tiffanie Olsen
+1 cup flour
+2 tsp. baking powder
+¾ cup sugar
+2 Tbsp. cocoa
+½ tsp. salt
+½ cup milk
+1 tsp. vanilla
+2 Tbsp. melted butter
+Mix ‘til smooth.  Spread in a 8x8 pan.  
+Mix ¾ cup brown sugar & ¼ cup cocoa.
+Sprinkle over top. Then pour 1 ¾ cup hot water over all. Bake 350° for 45 minutes. Top with whipping cream.
+
+Cake Roll - Sue Reber -Follow the directions carefully on this recipe  
+3 eggs 
+¾ cup sugar 
+¼ cup water 
+1 tsp. vanilla 
+¾ cup flour 
+1½ tsp. baking powder 
+¼ tsp. salt
+Preheat oven to 375°.  Line a 15x10-inch jelly roll pan with waxed paper.  Spray with non-stick cooking spray. Beat eggs until thick and lemon colored, about 5 min.  Gradually beat in sugar.  Blend in water and vanilla at low speed.  Combine dry ingredients.  Gradually beat into egg mixture just until smooth.  Spread into prepared pan.  Bake 12-15 min. until cake springs back when touched.  While baking, sift powdered sugar over a dish towel.  Turn warm cake onto towel. Remove waxed paper; roll cake and towel together starting at short side.  Cool on wire rack.  When cool, unroll cake & spread with desired filling.  Roll up again, without towel.  Chill.  Cut in 10-12 slices.  
+
+Jelly Roll - Sue Reber
+1 CAKE ROLL (above)
+1 cup fruit preserves 
+Powdered sugar
+After cake roll cools, unroll and spread with preserves.  Reroll; sift powdered sugar over cake.  Chill. Makes 10 to 12 servings.
+
+Strawberry Filled Roll - Sue Reber
+½ cup whipping cream
+2 Tbsp. powdered sugar
+2 cups sliced strawberries
+About 1 hour before serving, beat cream and sugar until stiff.  Spread on unrolled cake. Arrange strawberries over whipped cream.  Roll up, sprinkle with powdered sugar. Chill.
+
+
+
+
+
+
+
+Raspberry Swirl Coffee Cake - Amy Badger –My little cooking buddy, Skylr Goodling, helped me make this cake for the first time and we both agreed it was worth making again.
+2 cups all-purpose flour
+3/4 cup sugar
+2 tsp. baking powder
+1/2 tsp. salt
+1 egg
+1 cup (8oz) raspberry yogurt
+1/2 cup butter, melted
+1 tsp. vanilla extract
+1/2 cup chopped almonds, toasted
+1/2 cup seedless raspberry preserves, divided
+2 Tbsp. sliced almonds, toasted
+Combine dry ingredients. In another bowl, whisk the egg, yogurt, butter and vanilla until blended; stir into dry ingredients just until moistened.. Add chopped  almonds. Pour into greased 9”springform pan. Drop 1/3 cup preserves by spoonfuls over batter; swirl with a knife. Sprinkle with sliced almonds. Bake at 350° for 40-45 minutes. Cool for 10 minutes; remove sides of pan. In a small saucepan, heat remaining preserves until melted; drizzle over serving plates. 
+
+Russian Christmas Coffee Cake – Catarina Badger –In 1st grade my teacher, Mrs. V, chose Russia for our class to share with all the students for our “Christmas Around the World” celebration. We made this delicious cake.
+1 cup sugar
+1/2 lb. butter
+1 pint sour cream
+3 eggs
+2 1/2 cups flour
+3 tsp. baking powder
+1 tsp. baking soda
+ Filling and topping:
+3/4 cup sugar
+4 Tbsp. cinnamon
+1 cup chopped walnuts or pecans
+Preheat oven to 350°.  Cream sugar and butter.  Mix in sour cream.  Add eggs one at a time.  In a separate bowl mix the flour, baking powder, and baking soda.  Slowly add the flour mixture to the butter/egg mixture.  The dough will be a little stiff.  Spoon half the dough into a well-greased and floured 10-inch tube pan (bundt pan).  Mix together the topping ingredients.  Sprinkle 3/4 of the cinnamon/sugar mixture over the first half of the dough.  Add the remaining dough and sprinkle rest of topping.  Bake 1 hour.  Cool 1 hour, remove from pan.
+
+Sour Cream Coffee Cake - Angela Olsen
+Cream until smooth:
+2 cups sugar
+1 cup butter
+2 eggs
+Add carefully:
+1 cup sour cream
+1 tsp. vanilla
+½ tsp. salt
+Sift together and add: 
+2 cups flour
+1 tsp. baking powder
+Pour in half batter; sprinkle more than half of topping.  Add remainder of batter and rest of topping.
+Topping:
+1 tsp. cinnamon
+1 cup chopped nuts
+4 Tbsp. brown sugar
+Bake at 350° for 60 minutes
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Chocolate Peanut Butter No-Bake Cake-Amy Badger- This recipe was from the Taste of Home traveling Cooking School that I attended in Sierra Vista, AZ.  It was such a fun night; I recommend you go if you ever have the chance.
+1 cup cold milk
+1/4 cup peanut butter
+1 pkg. (3.9 oz) instant chocolate pudding
+1 ½ cups thawed whipped topping
+55 vanilla wafers, divided
+Chocolate curls (optional)
+2 cups whole strawberries
+Wisk together milk and peanut butter in bowl.  Add pudding mix.  Blend well.  Stir in whipped topping.  Reserve 5 vanilla wafers.  Spread about 1 tsp. pudding mixture onto the bottom of each of the remaining 50 wafers.  Stack wafers together, stand them on edge to form a ring around the outer edge of a round serving platter.  Frost ring with the remaining pudding mixture.  Refrigerate 6 hours or overnight.  Crush remaining 5 wafers; sprinkle over dessert.  Top with the chocolate curls.  Fill center of ring with strawberries.  
+
+Zucchini Cupcakes -Amy Badger - A recipe I found in a “Taste of Home” magazine and modified to make healthier. It is more like a light muffin, than a cupcake.
+1 egg  
+2 Tbsp. ground flax seed and 6 Tbsp. water mixed together OR 2 more eggs 
+1 cup sugar
+¼ cup apple sauce 
+¼ cup oil
+½ cup orange juice
+1 tsp. almond extract
+1 ½ cups whole wheat flour 
+1 cup all- purpose flour
+2 tsp. ground cinnamon
+2 tsp. baking powder
+1 tsp. baking soda
+1 tsp. salt
+½  tsp. ground cloves
+1½ cups shredded zucchini
+CARAMEL FROSTING:
+1 cup packed brown sugar
+1/2 cup butter
+1/4 cup milk
+1 tsp. vanilla extract
+1-1/2 to 2 cups confectioners' sugar
+In a large bowl, beat the eggs, sugar, oil, orange juice and extract. Combine dry ingredients; gradually add to egg mixture and mix well. Stir in zucchini. Fill paper-lined muffin cups two-thirds full. Bake at 350° for 20-25 minutes. Cool for 10 minutes before removing to a wire rack. For frosting, combine brown sugar, butter and milk in a saucepan. Bring to a boil over medium heat; cook and stir for 2 minutes or until thickened. Remove from the heat; stir in vanilla. Cool to lukewarm. Gradually beat in confectioners' sugar until frosting reaches spreading consistency. Frost cupcakes. 
+
+Frostings:
+
+Alecia's Cream Cheese Frosting –Alecia Bales
+8oz. cream cheese
+1 cube butter
+1 tsp. pure vanilla
+around 3 cups powdered sugar
+Blend cream cheese and butter together till light and fluffy, add vanilla.  then slowly add powdered sugar while still mixing. You may need more or less powdered sugar.  Just go till it tastes almost amazing but missing just a little something.  Once you've hit that point refrigerate for a few hours and when you take it out it will have reached its amazing point.
+
+Seven Minute Icing - Tiffanie Olsen
+½ cup water
+1 ½ cup sugar
+1 ½ Tbsp. corn syrup
+½ tsp. cream of tartar
+1 egg white          
+1 tsp. vanilla
+Beat egg white till fluffy.  Blend remaining ingredients in sauce pan and bring to a boil.  Remove from heat.  Slowly drizzle mixture into egg white while beaters are still running.  Let whip for about 7 minutes or until it starts to lose its flossy appearance.
+
+
+
+Butter Cream Frosting 
+½ cup soft butter
+4 ½ cups powdered sugar
+2 tsp. vanilla
+3 Tbsp. milk
+Blend butter and sugar.  Stir in vanilla and milk, beat until frosting is smooth.
+
+Fluffy Chocolate Frosting 
+2/3 cup cocoa
+3 ½ cups powdered sugar
+1/3 cup softened butter
+1 /2 cup canned milk
+½ tsp. vanilla
+Combine cocoa and powdered sugar.  Cream butter and ½ cup of cocoa mixture in large mixer bowl until well blended. Gradually add milk and vanilla.  Blend in remaining cocoa mixture.  Beat until of spreading consistency.  
+
+Sour Cream Chocolate Frosting 
+1/3 cup butter
+1-2 Tbsp. cocoa
+3 cups powdered sugar
+½ cup sour cream
+2 tsp vanilla   Beat together
+
+Cocoa Fudge Frosting - Rachel Mitchell
+½ cup cocoa
+½ cup margarine
+3 2/3 cups powdered sugar
+½ cup minus 1 Tbsp. milk
+1 tsp. vanilla
+Beat together cocoa, margarine and vanilla.  Add powdered sugar and milk.  Whip until fluffy.
+
+Lion House Chocolate Sheet Cake Frosting 
+½ cup butter
+4 Tbsp. cocoa
+1 tsp. vanilla
+6 Tbsp. milk
+4 cups powdered sugar
+1 cup chopped nuts
+Melt butter; add cocoa, vanilla and milk.  Bring to a boil.  Remove from heat add powdered sugar and nuts.  Mix well, frost cake while still warm.
+
+Frosting for Oatmeal Cake
+½ cup melted butter
+¼ cup canned milk
+½ cup brown sugar
+1 cup coconut
+1 tsp. vanilla
+1 cup chopped nuts
+Frost cake while still hot
+OR
+1/4 cup melted butter
+½ cup firmly packed brown sugar
+3 Tbsp. half and half or canned milk
+1/3 cup chopped nuts
+3/4 cup coconut
+
+German Chocolate Frosting   
+1 can evaporated milk
+1 cup sugar
+3 egg yolks
+1 cube margarine
+1 tsp. vanilla
+1/3 cup coconut
+1 cup chopped pecans
+Combine milk, sugar, eggs, margarine and vanilla.  Cook over medium heat and stir until thickened.  About 12 minutes.  Add coconut and pecans.  Beat until thick enough to spread.
+
+Caramel Frosting
+1 cup packed brown sugar
+1/2 cup butter
+1/4 cup milk
+1 tsp. vanilla extract
+1-1/2 to 2 cups confectioners' sugar
+Combine brown sugar, butter and milk in a saucepan. Bring to a boil over medium heat; cook and stir for 2 minutes or until thickened. Remove from the heat; stir in vanilla. Cool to lukewarm. Gradually beat in confectioners' sugar until frosting reaches spreading consistency.
+
+
+
+
+
+
+
+
+
+WATER TESTS FOR CANDY MAKING
+
+SOFT BALL Test - the candy will roll into a soft ball which quickly loses its shape when removed from the water.
+
+FIRM BALL Test - The candy will roll into a firm ball but not a hard ball and will flatten out a few minutes after being removed from water.
+
+HARD BALL Test - The candy will roll into a hard ball which has lost almost all elasticity and will roll around on a plate on removal from water.
+
+LIGHT CRACK Test - Candy will form a brittle thread which will soften on removal from the water
+
+HARD CRACK Test - Candy will form brittle threads in the water which will remain brittle after being removed from the water.
+
+In caramelizing sugar it first melts then becomes a golden brown.  Will form a hard brittle ball when in cold water.
+
+Check your candy thermometer.  Check at what temperature water boils on your thermometer. Then adjust accordingly for your recipes.  Water boils at 212° at sea level.  If water boils at 195° on your thermometer then subtract 17 degrees from each of your recipes.  This would apply when cooling chocolate also.  Candy takes a little longer time in rainy weather.  
+
+EXPERT TIPS FOR MAKING FUDGE
+1. Stir the fudge only occasionally as it cooks.
+2.  Cook slowly.
+3.  Be sure it has reached the soft ball stage.
+4.  Let it cool completely. If it is stirred                before it is completely cooled it will be         grainy.  Stir with a wooden spoon to        prevent bent spoons and blisters.
+5.  Beat until the candy has lost its gloss.       Do not under beat or the candy will be       sticky.
+6. If butter is rubbed around the top of a pan when making fudge it will not boil over.
+No Fail Fudge - Marjean Spencer
+4 ½ cups sugar
+1 can evaporated milk
+Put on low heat and bring to boil.  Boil 12 minutes stirring occasionally.
+In a big bowl mix:
+3 cups chocolate chips
+2 cups chopped nuts
+1 Tbsp. vanilla
+26 large marshmallows OR 3 cups mini
+½ lb. butter or margarine
+Pour hot mixture on top and stir until dissolved.  Pour into lightly greased jelly roll pan. Chill.
+
+Old Fashioned Fudge -Bonnie Chantry - Good recipe with good basic instructions & hints. 
+1.  Melt in sauce pan -	 1 Tbsp. butter
+2.  Add and stir together - 3 Tbsp. cocoa
+			      2 cups sugar
+3.  Add 1 cup milk
+4.  Cook slowly; stir occasionally, until        candy will form a soft ball when a few       drops are put in a dish of cold water.
+5.  COOL COMPLETELY
+6.  Stir until no longer glossy.
+7.  Add ½ cup nuts
+8.  Pour into a buttered plate or dish 
+
+Peanut Butter Fudge - Laurie Fryatt – This recipe is one of Laurie's specialties adapted from the KRAFT “Easy Fantasy Fudge” recipe using p.b. chips instead of chocolate chips.
+3/4 cup (1 ½ sticks)
+3 cups sugar
+2/3 cup evaporated milk
+1 pkg. (10oz.) Peanut Butter Chips
+1 jar (7oz.) Marshmallow Crème
+1 cup chopped nuts
+1 tsp. vanilla
+Mix margarine, sugar and milk in heavy 2 ½ to 3-quart saucepan; bring to full boil, stirring constantly. Continue boiling 5 minutes over medium heat or until candy thermometer reaches 234°, stirring constantly to prevent scorching.  Remove from heat. Gradually stir in chips until melted.  Add rest of ingredients; mix well.  Pour into greased 9” square or 9x13”pan.  Cool at room temperature; cut into squares.  Makes 3 lbs.
+Chinese Noodle Fudge – Amy Badger
+1 package chocolate chips
+1 package butterscotch chips
+1 can Chinese noodles
+Melt chips slowly in microwave using 30 second intervals.  When melted dump in noodles.  Stir until coated, drop by spoonful onto waxed paper.  Place in fridge to harden.
+Note: Can add M&M almonds so they look like little bird’s nests.
+
+English Toffee – Bonnie Chantry – This is Caroly Trost’s recipe. She was in my ward in Granger when I was RS President. She moved away, but I met her again in Ontario, CA.  That is when I got this recipe.
+½ lb. butter or margarine
+2 cups sugar
+3 Tbsp. water
+½ tsp. cream of tartar
+6oz. chocolate chips
+1 cup chopped nuts
+Boil the butter, sugar, water and cream of tarter in a heavy fry pan on low to the hard ball stage.  Pour onto a buttered cookie sheet.  Let stand a few minutes.  Sprinkle on chocolate chips while still warm. Spread chocolate when soft.  Sprinkle with chopped nuts.  When cooled, break into bite size pieces.
+
+Holiday Almond Roca - Chris Reber Graham
+1 cup butter
+1 ½ cups sugar
+1 Tbsp. corn syrup
+3 Tbsp. water
+1 cup coarsely chopped nuts
+8 oz. chocolate or chocolate chips
+1 cup finely chopped almonds
+Line 9x13 pan with waxed paper.  Spread half the chopped almonds. Over that spread half of the chocolate.  Set aside. Melt butter in large saucepan; add sugar, corn syrup and water.  Cook to hard-crack stage, stir occasionally.  Quickly stir in nuts.  Spread quickly over the almond, chocolate mixture.  Spread remaining chocolate over mixture and sprinkle with remaining chopped almonds. Chill several hours. Note: Watch carefully after 290°.
+
+Pecan Crunch - Jill Olsen
+1 cup sugar
+1 cup butter
+1/4 cup water
+Cook over high heat in heavy pan until mixture starts to boil.  Remove lid, stir with wooden spoon until caramel color.  Remove from heat and add 1 cup broken pecans.  Pour onto buttered cookie sheet. Break apart when cool and enjoy.  Hint: I notice a burn smell just as it finishes cooking.
+
+Peanut Brittle – Liz Bunderson – A delicious recipe from Tawna
+3 cups sugar
+1 cup light corn syrup
+1 cup water 
+2 1/3 cup raw peanuts
+2 Tbsp. butter
+1 tsp. salt
+1 tsp. baking soda
+1 tsp. vanilla
+Boil sugar, corn syrup and water in a large pan to 240° on candy thermometer, stirring constantly. Add raw peanuts. Cook to 310° stirring constantly. Remove from heat and add butter, salt, soda and vanilla. Spread on 3 cooled cookie sheets. Work quickly to spread out thin.
+
+Microwave Peanut Brittle – Bonnie Chantry This comes from our bishop’s wife, Donna Huff, from Park City area.  I like this recipe because the cooking times are so exact.  It takes out much of the guess work. Makes 1 lb.
+Use a 3 quart glass casserole dish with lid.
+Put in:	1 cup sugar
+ 	½ cup light corn syrup in bowl
+ 	½ tsp. salt (if using unsalted peanuts.)
+Microwave 4 minutes on high.
+Add: 1 cup Spanish Peanuts.
+Microwave 3-5 minutes on high, just until it turns light brown.	
+Add:	1 tsp. butter
+	1 tsp. vanilla
+Microwave 1 minute. Add 1 tsp. baking soda.
+Pour onto lightly greased cookie sheet and cool completely.  About 30 minutes. Lift and break into bite size pieces.
+Caramels-Electric Fry Pan Style –Jill Olsen
+1 1/3 cups light Karo syrup
+2 cups sugar
+3 cups heavy cream 
+Heat electric fry pan to 325°. Put in Karo syrup, sugar and 1 cup of cream, stir well! When light goes off at 325° add the second cup of cream. When light goes off at 325° add the third cup of cream. When light goes off add 1 t vanilla and quickly dump into a buttered 9 X 13 pan (9 X 9 for thicker caramels).
+
+7 Minute Caramels –Jill Olsen
+½ cup melted butter
+½ cup brown sugar
+½ cup sugar
+½ cup light corn syrup
+½ cup sweetened condensed milk
+Stir together in microwavable bowl. Cook uncovered 7minutes to 7 min. 20 sec. Stir and then mix in ½ tsp. vanilla. Pour into greased 8 X 8 pan. Cool. Cut and wrap pieces in small pieces of wax paper.
+Carmel tip: I have a friend who has several ice cube trays which she butters and then pours the caramel into them so they are already in 'pieces.'
+
+Carmel – Liz Bunderson - I got this recipe from Tawna.  Makes 10 dozen.
+1 can (14 oz) sweetened condensed milk
+1 cup light corn syrup
+1/8 tsp. salt
+2 Tbsp. butter
+1 tsp. vanilla
+½ cup finely chopped walnuts (optional)
+Line bottom and 2 sides of 8x8 baking pan with foil. Butter bottom foil. Heat milk, corn syrup and salt to boiling in heavy sauce pan over medium heat, stirring frequently, to 245* Stir in butter, vanilla and nuts. Immediately spread in pan; cool. Cut in 1 x1 ½ inch pieces.
+
+
+
+
+
+
+Carmel Turtles – Liz Bunderson - I got this recipe from Tawna.
+1 cup pecan halves
+36 light carmels
+½ cup baking milk chocolate, melted
+Grease cookie sheet. Arrange pecans (flat side down) in clusters of 4. Place 1 carmel on each cluster. Heat in 325° oven until carmel softens (4-8 minutes). Flatten carmel with a buttered spatula. Cool slightly and remove to wax paper. Swirl melted chocolate on top.
+
+Simple Turtles – Amy Badger
+20 mini pretzels
+20 Rolos
+20 pecan halves 
+Preheat oven to 300°. Arrange the pretzels in a single layer on a parchment lined cookie sheet. Place one chocolate covered caramel candy on each pretzel. Bake for 4 minutes. While the candy is warm, press a pecan half onto each candy covered pretzel. 
+
+Boston Creams - Bonnie Chantry- This is a recipe I first made in High School Home Ec. class.  Since then it has become a Christmas treat to share with friends and neighbors.
+½ cup sugar
+2 cups milk
+Caramelize sugar in heavy pan, heating until melted and browned.  Add milk.  Dissolve sugar that turns hard when milk is added.
+Add: 4 cups sugar and cook to soft ball stage
+Add:  2 tsp. vanilla
+1/4 cup butter
+Let cook, then beat by hand until smooth and stiff (like fudge).  Spread in buttered pan, cool and cut into squares.
+
+Taffy - Bonnie Chantry
+2 cups sugar
+½ cup vinegar
+dash of salt
+½ cup water
+Boil to thread stage (crack).  Pour in buttered cookie sheet.  After it cools somewhat, add 1 tsp vanilla.  Pull with buttered fingers until glossy.  Pull into long strips and snip with buttered scissors.
+Divinity – Liz Bunderson - This was my Aunt Eleanor Olsen’s recipe.
+2 cups sugar
+2 egg whites
+½ cup white corn syrup
+½ cup water
+Boil sugar, syrup, and water without stirring until almost brittle. Beat egg whites until stiff and dry. Add syrup, slowly beating constantly with an egg beater. Continue to beat until stiff enough to stand up when dropped from a spoon. Add flavoring, color and nuts if desired. Drop by spoonful or spread in pan.
+
+Honey Candy - Bonnie Chantry
+Cook honey (any amount you have) to hard ball stage.  Set off stove add a pinch of soda.  Pour onto a buttered platter (don't scrape pan).  Cool enough to handle.  Put butter on hands and pull like taffy.  Cut into pieces.  DO NOT STIR while cooking.  
+
+Potato Candy - Laurie Fryatt - This recipe came from my former roommate Nancy Askew.  It is her Grandmother’s recipe.
+1 small egg size potato boiled until soft.  Remove skin and mash.  
+Add: about ½ package of powdered sugar or until it is play dough stiff.  Roll or pat out into square.  Spread peanut butter on it, then roll like jelly roll.  Slice into 1/4" slices.  As slices sit they dry and stiffen.  Enjoy!
+
+Cream Cheese Mints - Served at Fay & Grace's 50th wedding anniversary.
+1 (8oz.) cream cheese
+1/4 cup soft butter
+2 lbs. powdered sugar
+Food coloring
+½ tsp peppermint or wintergreen extract
+Combine cream cheese and butter in heavy bottomed saucepan.  Stir over low heat until cheese is soft, butter is melted and the mixture is thoroughly blended. Add powdered sugar and stir until well combined.  Add your choice of food coloring and flavoring. (Divide batch in half if you want different colors.  Roll into 1 inch balls.  Place on sheet of waxed paper.  Press with fork or stamp with decorative cookie stamp.  Let stand uncovered about 4 hours or overnight until mints are firm and outside is dry but inside is still moist and creamy.
+
+Suckers - Russell Olsen
+2 cups sugar
+½ cup Karo syrup
+½ cup water       
+Spray mold with Pam.  Mix ingredients together.  Cook to hard crack.  Add flavoring and color.
+				
+Sticky Popcorn - Sue Reber - Jared used this recipe on his mission to the Philippines.  The grandkids love to make this Grandma Sue.
+1½ cups brown sugar
+½ cup corn syrup
+6 Tbsp. butter
+8 large marshmallows
+1 tsp. vanilla
+6 qts. popped popcorn
+Cook brown sugar, syrup and butter until it reaches soft ball stage. Add vanilla and marshmallows. Pour mixture over popcorn as soon as marshmallows have melted.
+Optional: Add 1 cup roasted peanuts
+
+Magic Popcorn Balls - Chrissy Probst
+½ cup popcorn kernels
+Pop the popcorn & put into a brown paper sack.
+Add the following into a sauce pan and boil.
+1/4 cup margarine
+1 cup brown sugar
+1/4 cup light corn syrup
+1 1/2 tsp. water
+Bring to a full boil. Take off the heat. Then add 1/4 tsp. baking soda
+Pour over popcorn in sack.  Shake bag until all popcorn is covered.  Make into balls
+
+
+
+
+
+
+
+
+
+
+Crisp Baked Caramel Corn 
+6 qts. popped popcorn 
+½ cup margarine 
+1 cups brown sugar 
+1/4 cup light corn syrup 
+1/4 tsp. salt 
+1/4 tsp. baking soda 
+½ tsp. vanilla
+Preheat oven to 250°. Put popcorn in large, oven-proof bowl (such as aluminum). Melt margarine; stir in sugar, corn syrup, and salt. Bring to boil, stirring constantly. Boil without stirring for 5 minutes. Remove from heat; add soda and vanilla. Pour over popped corn; mix well. Bake for 1 hour, stirring every 15 minutes. Store in air-tight container.
+
+Caramel Corn – Sue Reber
+8 cups popped popcorn (½ cup unpopped)
+½ cup brown sugar
+2 Tbsp corn syrup
+1/4 cup margarine
+½ tsp. salt
+½ tsp. baking soda
+½ tsp. vanilla extract
+Combine brown sugar, corn syrup, margarine and salt into a glass mixing bowl.  Microwave on high for 60 seconds.  Stir. Continue to microwave for 90 seconds.  Stirring every 30 seconds.  Add soda and vanilla to mixture and stir well.  Pour mixture over popcorn in a brown sack and shake well.  Microwave 45 seconds and shake bag.  Microwave 20 seconds more and shake.  Microwave 20 more seconds and shake.  Pour out on waxed paper to cool.  
+
+Gooey Caramel Popcorn –Kadie Allred
+1 can sweetened-condensed milk
+1 cube margarine
+1 cup corn syrup
+2 cups brown sugar
+Boil to soft-ball stage (about 5 mins.) stirring constantly. Pour over 8 quarts of popcorn.
+Optional: Add 1 tsp. vanilla to mixture before pouring over popcorn.
+
+
+Nut Roll – Liz Bunderson - These are like a salted nut roll. Tawna shared this great recipe with me.
+1 (7½ oz.) jar marshmallow crème
+1 tsp. vanilla
+3 ½ cups powder sugar
+1 lb. carmels
+9 ½ cups chopped nuts
+Combine marshmallow crème and vanilla. Add sugar gradually. Shape into rolls about 1” in diameter. Wrap in plastic wrap and freeze for at least 6 hours. Melt carmel in a double broiler. Keep water. Dip roll in carmel then in nuts until well coated. Store in covered container.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+HINT FROM BONNIE:  To make cookies more uniform use a miniature ice cream scoop to put dough on the cookie sheet instead of using a teaspoon
+
+Sugar Cookies - Julie Chantry – When Julie checked the family cookbook for a sugar cookie recipe, she found Barbara's recipe that called for cream of tartar.  Went to the store and upon returning she made her cookies to find out that it called for sour cream.  (Jolene's recipe) Later she realized she'd started with one recipe and ended with another.  She was glad for the mistake.  This one with sour cream turned out to be the most moist sugar cookie she has ever made.  They are now her favorite and she makes them for her Primary class as well as her Sunshine Generation Students.
+1 cup shortening or butter
+1 cup sugar
+Cream then add 2 beaten eggs
+½ tsp. vanilla
+3 cups flour
+½ tsp. soda
+½ tsp. salt
+1 tsp. baking powder
+½ cup sour cream
+Chill, then roll 1/8 inch thick and cut into shapes.  Bake 375° for 8 minutes.
+
+Sugar Cookies - Laurie Fryatt - My roommate gave me this recipe.  We make these as often as we can.
+3 1/4 cup flour
+1 tsp. baking soda
+1 cup sugar
+1 tsp. vanilla
+½ tsp. salt
+1 cup butter
+1 egg
+1 cup sour cream
+Bake at 350° for about 8-10 minutes.  Press to see if done ( lightly brown on bottom).
+
+Sugar Cookies - Janine Hinkle
+1 cup shortening
+2 cups sugar
+4 eggs
+6 cups flour
+8 tsp. baking powder
+½ tsp. salt
+½ tsp. soda
+1 cup sour milk
+2 tsp. vanilla
+Bake on greased cookies sheet at 375° for 6-8 minutes.
+
+Sugar Cookies - Trisha Olsen
+2 cups margarine
+1 cup sugar
+4 eggs
+1 tsp. vanilla
+2 Tbsp. baking powder
+6 cups flour
+Cream margarine and sugar.  Add eggs and vanilla and beat until fluffy.  Add baking powder and flour.  Knead together with hands if necessary.  Roll out 1/4 inch thick on lightly floured board.  Cut into shapes.  Bake 375° for 5-8 minutes.  Cool
+Frost with:
+½ cup margarine
+1 tsp. vanilla
+Milk soured with lemon juice
+1 lb. powdered sugar
+food coloring
+
+Soft Sugar Cookies - Angela Olsen
+1 cup butter
+2 cups sugar
+2 eggs
+2 tsp. soda
+2 tsp. cream of tartar
+1 cup milk
+5 cups flour
+Mix together.  Roll the size of a lime or use a cookie scoop and then roll in sugar.  Place on greased cookie sheet. Do not flatten.  Bake at 375° for 12 minutes.  Cool and frost.
+Frosting:
+1 ½ cup powdered sugar
+3 Tbsp. butter/margarine
+1 Tbsp. canned milk
+1/4 tsp. red food coloring
+1/4 tsp. vanilla
+Place powdered sugar in a bowl. Cut in the butter with a fork. Add remaining ingredients. Mix well.
+Whole Wheat Sugar Cookies - Ruby Fielding
+Cream: 1 cup shortening
+2 cups sugar
+Add and beat 4 eggs
+Add:  
+5 cups whole wheat flour
+2 cups white flour
+3 tsp. baking powder
+½ tsp. salt
+½ tsp. baking soda
+1 cup sour milk (1 cup milk + 1 Tbsp. vinegar)
+Chill dough, roll 1/4 inch thick and cut into desired shapes.  Place on lightly greased cookie sheets and bake at 375° for 8-10 minutes.  
+
+Sally’s Favorite Chocolate Chip Cookies-Sally Marsh
+1 cup shortening
+1 cup sugar
+½ cup brown sugar
+1 tsp. vanilla
+½ tsp. water
+Beat together until creamy, then add:
+2 eggs
+Flour Mixture:
+2 ½ cups flour
+1 tsp. baking soda
+1 tsp. salt
+½ cup chocolate chips
+Add to creamed mixture.  Do not over mix.  Shape into balls. Bake at 375° for 7 to 8 min.
+
+Charlee's Chocolate Chip Cookies –
+Charlee Olsen
+Beat 'til smooth: 
+1 cup butter
+1 cup shortening
+2 cups brown sugar
+1 cup sugar
+Add:  4 eggs
+3 tsp. vanilla, set aside
+Mix: 5 cups flour
+2 tsp. baking soda
+1 tsp. salt
+Mix dry mixture into moist mixture, adding more flour if necessary. Mix in chocolate chips, bake 375° for 9 minutes. 
+Note: I like to take them out when they look uncooked so they stay soft.
+Cake Mix Chocolate Chip Cookies - Bonnie Chantry
+1 pkg. Duncan Hines White Cake Mix
+½ cup light brown sugar
+1 cup (6 oz) semi-sweet chocolate chips
+½ cup chopped nuts
+3/4 cup oil
+1 egg
+In a large bowl stir all ingredients together until well-mixed.  Drop from a teaspoon onto an ungreased cookie sheet. Bake at 375° for 10-12 minutes until centers of cookies are golden brown.  Edges will look darker.  Cool on cookie sheet for about 1 minutes then remove to rack to finish cooling.  Makes 3 ½ dozen 2 ½ in cookies.
+
+Whole Wheat Chocolate Chip Cookies – Amy Badger – I am a whole wheat flour junkie.  I got a wheat grinder to be able to use all that food storage wheat we kept buying and now I LOVE recipes that call for whole wheat.  
+Cream Together:
+1/2 cup butter
+1/2 cup shortening
+1 cup white sugar
+1 cup brown sugar
+Add: 2 eggs 
+1½ tsp. vanilla
+Mix into above:
+2 cups whole wheat flour
+1½ to 2 cups oatmeal, pulverized in blender
+1 tsp. salt
+1 tsp. baking soda
+1 tsp. baking powder
+24 oz. chocolate chips
+Bake at 375° for 10-12 minutes. (Make sure you take them out of the oven before they look done or they will be too crispy.)
+
+
+
+
+
+
+
+
+
+Sour Cream-Milk Chocolate Chip Cookies-Justin Badger-As an expert consumer of chocolate chip cookies, this is a cookie I would highly recommend.
+1 ½ cups sugar
+½ cup sour cream
+½ cup butter or margarine, softened
+1 tsp. vanilla
+1 egg
+2 ¼ cups all-purpose flour
+½ tsp. baking soda
+¼ tsp. salt
+2 cups milk chocolate chips
+Heat oven to 350°.  Beat sugar, sour cream, butter, vanilla and egg in large bowl with electric mixer on medium speed, or mix with spoon.  Stir in flour, baking soda, and salt.  Stir in chocolate chips.  Bake 12 to 14   minutes or until set and just beginning to brown.  Cool 1 to 2 minutes; remove from cookie sheet to a plate.
+
+The Best Chocolate Chip Cookies Ever –Tawna Marsh - I am sure everyone has their favorite chocolate chip cookie recipe, but I decided to Google "the best chocolate chip cookies ever" and got 300,000-400,000 hits.  I glanced over several of them and then read tips on great cookies and tried out this one.  I have to say it was pretty excellent and is now our preferred recipe.
+2 cups flour
+1/2 tsp. baking soda
+1/2 tsp. salt
+3/4 cup unsalted butter, melted (yes, really!)
+1 cup packed brown sugar
+1/2 cup white sugar
+1 Tbsp. vanilla (yes, that is 1 TABLESPOON!)
+1 egg
+1 egg yolk
+2 cups semisweet chocolate chips
+Preheat oven to 325°. (if using convection oven 310 degrees) Grease cookie sheet or use parchment paper. (I used parchment) Sift flour, salt and baking soda and set aside. (I know all recipes say to sift the flour and we generally don't, but I have been doing it lately...I'll have to try not sifting to see what the difference is) Mix the sugars and butter just until thoroughly mixed, then add egg yolk and vanilla and mix until creamy. (the hot butter melts the sugars) Add the sifted ingredients and mix just until blended.  The dough looks different than you are used to because of the melted butter.  Stir in the chocolate chips. At this point, I recommend you refrigerate the dough for a few hours or freeze it for later, but really when you make cookies you want them NOW so you can go ahead and cook them.  Drop dough 1/4 cup at a time on a cookie sheet, about 3 inches apart, and bake for 15-17 minutes.  Leave them on the cookie sheet to cool a bit when removed from the oven.  Once they cool a few minutes, remove the cookies to a  cooling rack to finish cooling. 
+Note:  I didn't used a 1/4 c. of dough, I used the Pampered Chef scoop that does about 2 T. and I cooked them for 12 minutes.  I also didn't have unsalted butter, I just used regular butter.  Several tips I read recommended refrigerating the dough before you cook it.  Some of the other cookie tips said that the ratio of brown to white sugar should be 2:1 and that whatever vanilla it calls for, triple it.  This recipe reflects those tips.
+
+Congo Bars - Grandma Reber - This recipe is a good one to make and mail to missionaries and grandchildren far away.
+2/3 cup melted shortening
+2 1/4 cups light brown sugar, packed
+3 eggs
+2 3/4 cups sifted flour
+½ tsp. salt
+2½ tsp. baking powder
+1 cups chopped nuts
+1 cup semi-sweet chocolate chips
+1 tsp. vanilla
+Add shortening to sugar and mix well.  Add eggs, one at a time, beating thoroughly after each.  Add sifted dry ingredients, nuts, chocolate chips and vanilla.  Spread in greased 15x10 inch pan.  Bake at 350° for 25 minutes.  Cut into bars while warm.
+
+
+
+
+Mrs. Field’s Oatmeal Chocolate Chip Cookies – Grandma Grace - Do you remember a family reunion when we took a motorhome trip to Park City and  toured the  Mrs. Field's Factory?
+Cream:  2 cups butter
+2 cups brown sugar
+2 cups white sugar
+Add:  4 eggs
+2 tsp. vanilla
+Mix in separate bowl:  
+4 cups flour
+1 tsp. salt
+2 tsp. baking powder
+5 cups oatmeal powder (whisked in blender)
+Mix all of the above:
+Add:  2 (12 oz) pkgs. chocolate chips
+1 large Hershey bar (grated)
+Drop on greased cookie sheet (golf ball size).  Bake 350° for 8-10 minutes on greased cookie sheet. Note: “This cookie is a family favorite when we add 1 cup of peanut butter chips along with the chocolate chips.” –Amy Badger
+
+Oatmeal Chocolate Chip Cookies - Laurie Fryatt - These are the best chewy oatmeal cookies in the world.  Even professed Oatmeal Cookie haters loves these cookies!  Mom says you need to add these ingredients in order for the best taste.
+2 cup sugar
+1 cup brown sugar
+4 eggs
+4 tsp. vanilla
+2 cups shortening 
+Mix all ingredients together and add...
+3 cups flour
+2 tsp. soda 
+2 tsp. salt
+4 cups oatmeal
+12 oz. chocolate chips
+Mix with other and drop on cookie sheet.  Bake at 375° for 8 to 10 minutes.
+
+
+
+
+
+
+Bit o’ Everything Cookies-Amy Badger
+For when you want a cookie with everything, except the guilt.
+6 Tbsp. butter, softened
+3/4 cup sugar
+3/4 cup packed brown sugar
+1 egg
+2 egg whites
+1/2 cup reduced-fat peanut butter
+1 tsp. vanilla extract
+1/2 tsp. butter flavoring, optional
+1-1/2 cups all-purpose flour
+1 cup quick-cooking oats
+1/4 cup cornstarch
+1/2 tsp. baking soda
+1/2 tsp. baking powder
+1/2 tsp. salt
+1/2 cup mini semisweet chocolate chips
+In a mixing bowl, beat butter and sugars until crumbly, about 2 minutes. Add the next five ingredients; mix well. Combine dry ingredients; gradually add to the creamed mixture. Stir in chips. Drop by spoonfuls onto ungreased baking sheets. Bake at 325° for 12-14 minutes or until golden brown, but still a little bit doughy.  Remove to plates to cool. Yield: 3-1/2 dozen
+
+Chocolate Chip Kiss Cookies- Laurie Fryatt
+1 bag (9 oz.) Hershey's Kisses 
+1 cup (2 sticks) butter, softened
+1/3 cup sugar
+1/3 cup packed light brown sugar
+1 tsp. vanilla
+2 cups flour
+1 cup Mini Chips semi-sweet Chocolate
+Hershey's Chocolate Shoppe topping (optional)
+Heat oven to 375°.  Remove wrappers from chocolate pieces.  In large mixing bowl, beat butter, sugar, brown sugar and vanilla until well blended.  Add flour; blend until smooth.  Stir in small chips.  Mold scant tablespoon dough around each chocolate piece, cover completely.  Shape into balls; place on ungreased cookie sheet.  Bake 10 to 12 minutes or until set.  Cool slightly; remove form cookie sheet to wire rack.  Cool completely.  Drizzle topping over each cookie.  About 4 dozen cookies.
+
+Monster Cookies - Sue Reber	
+2 cups sugar
+1 lb. brown sugar
+1 cup margarine
+1 1/2 lb peanut butter
+6 eggs 
+½ Tbsp. vanilla
+Mix well:
+Add 9 cups quick oatmeal
+½ lb. chocolate chips
+½ lb. M&Ms
+1 cup chopped nuts
+Mix and Chill ½ hour.  Make large cookies on greased cookie sheet. Bake 10 min. at 350° 
+
+Peanut Butter Chocolate Chip Cookies -  Laurie Fryatt
+2 eggs
+1/3 cup water
+1/4 cup butter  
+1 cup peanut butter
+1 pkg. Yellow, Devil’s food, or White cake mix
+1 pkg. (12 oz) chocolate chips
+Heat oven to 375°. Beat eggs, water, peanut butter and half of the cake mix (dry) until smooth.  Stir in remaining cake mix and the chocolate chips.  Drop by rounded teaspoonfuls about 2 inches apart onto ungreased baking sheet.  Bake 10 to 12 minutes.  About 6 doz. cookies. Variation: PEANUT BUTTER CHOCOLATE CHIP BARS: spread dough in greased and floured jelly roll pan. Bake about 20 minutes. Cool; cut into bars, about 3 x 1 1/2 inches.  30 bars. 
+
+Chocolate Chip, Oatmeal, Coconut Cookies - Janine Hinkle
+Add together:  1 cup margarine
+½ cup brown sugar
+½ cup sugar
+Then add:  
+2 tsp. baking soda
+2 tsp. salt
+4 cups flour
+Then add:  4 eggs 
+2 tsp. hot water 
+2 tsp. vanilla
+Then add:  4 cups quick oats
+1 large bag chocolate chips
+7oz. coconut
+Bake 8-10 minutes at 350°.  Makes 4 to 5 dozen cookies.
+
+Aggression Cookies - Bonnie Chantry - Designed to help children and adults work off some of their frustration. It really helps because there is a reward at the end....you get to eat the product of your workout.
+3 cups oatmeal
+1½ cups butter
+1½ tsp. baking powder
+1½ cups flour
+1 cup brown sugar
+DUMP all ingredients into a large bowl.
+MIX (the longer you mix the better it tastes.  Allow children to POUND, ROLL, KNEAD, and PLAY with it as long as they wish.  Finally roll into balls.  SMASH flat between hands.  Children may want to shape into figures or designs. Put on cookie sheet.  Bake at 350° for 10-12 minutes. Everyone should feel better while calmly eating these cookies with a glass of milk.
+
+Crunchy Birthday Sweets - Carolee Fielding- Carolee made cookies for special occasions with Grandma Grace's guidance
+1 cup butter
+1 cup brown sugar
+1 cup white sugar
+2 eggs, well beaten
+2 tsp. vanilla
+2 cups flour
+½ tsp. cinnamon
+½ tsp. salt
+½ tsp. baking powder
+1 tsp. soda
+2 cups corn flakes
+1 cup coconut
+1 cup chopped nuts (pecans)
+2 cups oatmeal
+Cream butter, add sugars then egg and vanilla.  Sift dry ingredients together and add to creamed mixture. Last, add corn flakes, oatmeal coconut, and nuts.  Roll into small balls and place about 2 inches apart on greased cookie sheet.  Bake at 350° for 10-15 minutes.  Will make about 3 dozen cookies. 
+Ranger Cookies - Jill Olsen
+1 cup shortening
+2 cups flour
+½ tsp. baking powder
+1 cup Rice Krispies
+¼ cup plus 2 Tbsp. milk
+1 cup sugar
+2 eggs
+½ tsp. salt
+1 cup coconut
+2 cups quick oats
+1 cup brown sugar
+1 tsp. vanilla
+1 tsp. baking soda
+1 6oz. pkg. chocolate chips
+Combine all ingredients.  Bake 375° for 10- 12 minutes.
+
+Chocolate Nut Fingers – Liz Bunderson - A fancy looking but easy cookie recipe that I got from Tawna. 8 dozen cookies
+1 cup sugar
+1 tsp. almond extract
+1 cup butter, softened
+3 ½ cups flour
+½ cup milk
+1 tsp. baking powder
+1 egg
+¼ tsp. salt
+1 tsp. vanilla
+½ cup chocolate chips
+Chopped nuts
+Mix sugar, butter, milk, eggs, vanilla and almond extract. Stir in flour, baking powder and salt. Cover and refrigerate 4 hours. Roll 1 tsp of dough into a 2 ½ inch log. Cook on ungreased cookie sheet at 375° for 9-12 minutes. Cool. Dip each end of cookie in melted chocolate chips and then into nuts.
+
+Cowboy Cookies - Carolee Fielding
+2 cups flour
+1 tsp. baking soda
+½ tsp. salt
+½ tsp. baking powder
+1 cup white sugar
+1 cup brown sugar
+1 cup shortening
+2 eggs
+1 cup oats
+1 tsp. vanilla
+1 6oz. butterscotch chips
+1 ½ cups coconut
+Bake at 350° for 10-12 minutes.  Don't overbake.
+
+Pumpkin Chocolate Chip Cookies –Sue Reber
+1/2 cup shortening
+1 cup sugar
+2 eggs
+1 cup pumpkin
+2 cup flour
+4 tsp. baking powder
+1 tsp. salt
+2 tsp. cinnamon
+1/2 tsp. ginger
+1/2 tsp. cloves
+1/2 tsp. allspice
+1 cup chocolate chips
+In a bowl cream shortening, sugar, and eggs.  Beat well with mixer.  Stir in pumpkin and dry ingredients with wooden spoon.  Add chocolate chips and mix well.  Drop by spoonfuls onto greased cookie sheet.  Bake at 375° for 15 minutes.
+
+Peanut Butter Cookies - Bonnie Chantry
+1 cup shortening
+1 cup peanut butter
+1 cup brown sugar
+1 cup sugar
+2 beaten eggs 
+1 tsp. vanilla
+3 cups flour
+2 tsp. baking soda
+½ tsp. salt
+Cream shortening, peanut butter, then add sugars, egg and vanilla.  Sift dry ingredients then add to previous mixture.  Form dough into small balls the size of walnuts.  Place on ungreased cookie sheet about 1 inch apart.  Press crosswise with fork.  Bake 375° for 12-15 minutes.  Makes 7 dozen cookies.
+
+
+
+Peanut Butter Rolo Cookies (AKA Devil Cookies) - Amy Badger- Our Sunday school teacher Shawna Garcia brought this to class one day.  Justin & I don’t usually like peanut butter cookies, but these ones won us over.  
+2 sticks of soft butter
+1 cup creamy peanut butter
+1 cup brown sugar
+1 cup sugar
+2 eggs
+1 tsp. vanilla
+3 1/2 cups flour
+1 tsp. baking soda
+½ tsp. salt
+1 bag of Rolos
+Combine butter, peanut butter and sugars with a mixer until fluffy.  Mix in eggs and vanilla. Mix in flour, salt and baking soda.  Cover and chill for 2 hours.  Preheat oven to 325°. Divide dough into balls that are a heaping tablespoon.  Flatten a dough ball and place the unwrapped Rolo in the center.  Kneed the dough around the candy and then slightly flatten in on the greased cookie sheet. (try not to have visible cracks in the dough as the candy will melt right out.) Bake 13 to 15 minutes.
+Variation: For the Shawna version-use crunchy peanut butter instead of creamy and mix in 1 cup peanut butter chips.  Form balls and roll in white sugar. Place on pan and flatten slightly with a fork in criss-cross pattern before baking about 11 minutes.
+
+Peanut Butter Cookies (In a Hurry) - Ruby Fielding
+1 pkg. Duncan Hines yellow cake mix
+1 cup peanut butter, plain or chunky
+½ cup oil
+2 Tbsp water
+2 eggs
+Combine all ingredients and mix well.  Drop on ungreased cookie sheet.  Press criss- cross on each cookie with fork.  Bake at 350° for 10-12 minutes or until golden then cool 1 minute on sheet before removing.  Makes 4-5 dozen 2 ½ inch cookie.
+
+
+Peanut Butter Oatmeal Cookies - Janine Hinkle
+2 cups quick oats
+1 1/4 cups flour
+1 tsp. baking powder
+1 tsp. baking soda
+1 cup margarine
+1 cup peanut butter
+1 cup sugar
+1 cup brown sugar
+2 eggs
+1 tsp. vanilla
+Combine oats, flour, powder and soda.  Cream margarine and peanut butter.  Add sugars and cream.  Add eggs and vanilla.  Cream.  Add dry ingredients.  Drop on ungreased cookie sheet.  Bake 350° for 12 minutes.
+
+Peanut Cookies - Grandma Grace
+2 cups brown sugar
+3/4 cup shortening
+2 eggs
+1 cup milk
+3 cups flour
+2 tsp. baking powder
+1/8 tsp. soda
+1 tsp. vanilla
+pinch of salt
+1 cup salted peanuts
+Cream sugar and shortening.  Add eggs, milk and dry ingredients,  Can  add more than 1 cup nuts if want.  Bake at 350° for 10-12 minutes.
+
+No-Bake Nutty Oat Cookies –
+Emily Hammerstad
+½ cup sugar
+½ stick butter
+½ cup milk
+1 tsp. vanilla
+3 cups oats
+¾ cup peanut butter
+Clear a large area for laying out your cookies and put wax paper down.  Then boil the sugar, butter, milk and cocoa for 1 minute.  Remove from heat and add the vanilla, oats and peanut butter.  Stir for about a minute and then spoon the cookies onto the wax paper with an ice cream scoop.
+
+Oatmeal Cookies -  Bonnie Chantry
+1 cup brown sugar 
+2/3 cup shortening 
+½ cup sugar 
+1/3 cup milk 
+1 egg 
+2 tsp. vanilla 
+½ tsp. salt 
+1/4 tsp. baking soda 
+1/4 tsp. baking powder 
+1-1/4 cups flour 
+3 cups rolled oats
+In mixer bowl beat first 6 ingredients until creamy. Beat in salt, soda, and baking powder, then flour. With spoon mix in oats. Drop by teaspoonfuls onto baking sheets. Bake at  350°  about 12 to 15 minutes. Makes 3 to 3-1/2 dozen.
+
+Oatmeal Banana Chocolate Chips Cookies –Amy Badger - A hearty banana cookie.
+ ½ cup all-purpose flour
+½ cup whole wheat flour
+1 tsp. salt
+1 tsp. cinnamon
+1 tsp. baking soda
+3 cups quick cooking oats
+3/4 cup shortening
+1 cup packed brown sugar
+1/2 cup granulated sugar
+1 egg
+1 tsp. vanilla
+1 cup mashed banana
+1 cup mini chocolate chips
+Combine flour, salt, cinnamon, baking soda and oats; set aside. Next, cream together shortening, brown sugar and granulated sugar.
+Then add: 1 egg, vanilla, 1 cup mashed banana (I used 4 small ones, for a very generous cup full). Combine wet mixture with dry mixture, and add 2 cups chocolate chips (1 12-ounce package). Drop by rounded spoonfuls onto greased cookie sheet (I used parchment paper instead), and bake 12 to 15 minutes, at 350°.
+
+
+
+
+
+Banana Drop Cookies - Suzanne Reber
+2 ½ cups flour
+2 tsp. baking powder
+½ tsp. salt
+2/3 cup shortening
+1 cup sugar
+2 eggs	
+1 tsp. vanilla 
+1 cup mashed bananas
+chocolate chips
+Mix all ingredients. Bake at 400° for 10-12 minutes on a greased cookie sheet.
+
+Pumpkin Cookies - Tiffany Fielding
+½ cup butter
+1 cup sugar
+1 egg
+1 cup pumpkin, cooked and mashed
+1 tsp. baking soda
+2 cups flour
+½ tsp. salt
+1 tsp. cinnamon
+½ tsp. cloves
+½ tsp. allspice
+1 cup raisins optional
+1 cup nuts, chopped optional
+Preheat oven 375°.  Cream butter and sugar.  Add eggs and pumpkin.  Mix well.  Add dry ingredients, stir well.  Add raisins and nuts.  Drop on cookie sheet.  Bake 15 minutes.
+
+Snickerdoodles - Sue Reber – This is one of Jared's favorite cookies. Jared doesn’t care for a conventional birthday cake, so Amy made him a birthday ice cream pie with a crust made from crushed Snickerdoodles.  
+1 cup soft shortening or margarine
+1 1/2 cup sugar
+2 eggs
+2 3/4 cup sifted flour
+2 tsp. cream of tartar
+1 tsp. baking soda
+¼ tsp. salt
+Cream butter, sugar, eggs until fluffy.  Sift dry ingredients together then stir together.  Roll mixture into balls the size of walnuts.  Roll in sugar-cinnamon mixture.  (2 Tbsp. sugar and 2 Tbsp. cinnamon) Bake at 400° for 8-10 minutes.  Makes 5 dozen
+Whole Wheat Snickerdoodles - Jill Olsen
+1/2 cup butter or margarine (1 stick)
+3/4 cup packed brown sugar
+1 egg
+1 tsp. vanilla
+1½ cups whole wheat flour
+1/2 tsp. baking soda
+1/2 tsp. cream of tartar
+1/4 tsp. of salt
+Cookie coating:
+2 Tbsp. sugar
+1/2 tsp. ground cinnamon
+Turn oven to 375°. In a small mixer bowl beat butter or margarine with electric mixer. Add brown sugar and beat till fluffy. Add egg and vanilla. Beat well. In a medium mixing bowl stir dry ingredients. With mixer on low speed gradually add flour mixture to butter mixture, beating ‘til well mixed.  In small bowl stir together sugar and cinnamon. Shape the dough into 1-inch balls. Roll the balls in the sugar-cinnamon mix. Place about 2 inches apart on un-greased cookie sheets. Flatten slightly with the bottom of a drinking glass.  Bake 8-10 minutes or till edges are firm. Use a spatula to lift cookies onto a cooling rack. Makes 30.
+
+Gingerbread Man Cookies - Jill Olsen -These are a soft texture, similar to a sugar cookie, if not over baked.
+Beat the following on high until smooth;
+1 cup shortening
+½ cup dark molasses
+1 tsp. vanilla
+2/3 cups brown sugar
+2 egg whites
+Combine the following then mix well with the creamed mixture;
+3 cups flour
+1 tsp. salt
+2 tsp. cinnamon
+1 tsp. baking soda
+½ tsp. baking powder
+2 tsp. ground ginger
+Refrigerate overnight.  Grease cookie sheets.  Flour counter, roll out to 1/8” thick.  Bake 350° for 6-8 minutes. Yield 2 dozen.
+
+Gingerbread Cookies - Sue Reber - This is the recipe I use to make gingerbread houses. For many years our family tradition was to make gingerbread houses for the kid’s teachers at Christmas time.
+5 cups flour
+1 tsp. baking soda
+1 tsp. salt
+2 tsp. cinnamon
+1 tsp. ginger
+1 tsp. cloves
+½ tsp. nutmeg
+1 cup vegetable shortening
+1 cup sugar
+1 cup molasses
+1 egg
+Sift flour, soda, salt and spices. Save.  In a large bowl beat shortening with sugar until fluffy light.  Beat in molasses, egg and vanilla.  Stir in flour mixture a third at a time,. blending well after each addition to make a soft dough.  Wrap dough in foil and chill 4 hours or overnight.  Roll out dough on cookie sheet.  Cut out the cookies and remove excess dough.  Bake at 350° for 8 minutes or until cookies are firm but not too dark.  Remove to wire racks with spatula, cool.   Decorate and allow frosting to harden before storing.  Can make hole in top of cookies while soft and use them as Christmas ornaments.  Use yarn to hang. 
+
+Applesauce Cookies - Bonnie Chantry - Every cookbook should have a very moist cookie recipe - applesauce cookies are great for this.  
+Cream together:
+½ cup shortening
+1 cup sugar
+1 egg
+Sift dry ingredients:
+2 cups flour
+½ tsp. each of cloves, cinnamon, nutmeg & salt
+1 tsp. baking soda
+Add to creamed mixture alternately with
+1 cup applesauce
+1 cup nuts
+1 cup raisins
+Drop by spoonfuls onto a greased cookie sheet.  Bake at 350° for 12 minutes. Makes 3 doz.
+
+Oatmeal Cranberry White Chocolate Chunk Cookies – Jill Olsen
+2/3 cup butter or margarine, softened
+2/3 cup brown sugar
+2 eggs
+1 1/2 cups old fashioned oats
+1 1/2 cups flour
+1 tsp. baking soda
+1/2 tsp. salt
+3/4 cup dried cranberries
+2/3 cup white chocolate chunks or chips
+Preheat oven to 375°. Beat butter and sugar together in a medium mixing bowl until light and fluffy. Add eggs, mix well. Combine oats, flour, baking soda and salt in a separate mixing bowl and then add to butter mixture in several additions, mixing well after each one. Stir in dried cranberries and white chocolate. Drop by rounded teaspoonfuls onto ungreased cookie sheets. Bake for 10-12 minutes or until golden brown. Cool on wire rack.
+
+Oreo Cookies - Grandma Grace
+1 pkg. devil's food cake mix
+2 eggs
+3/4 cup shortening
+Cut shortening into cake mix, then add eggs.  Roll dough into small balls.  Bake on greased cookie sheet at 350° on lowest oven rack for  4 minutes.  Move to center rack and bake 4 more minutes.  Cool.  Put 2 cookies together with filling.
+Filling:  3 oz cream cheese
+2 Tbsp. butter
+1 1/2 cup powdered sugar
+1 tsp vanilla
+Keep refrigerated. 
+
+Zucchini Cookies - Diane Anderson
+½ cup shortening
+1 cup sugar
+1 cup brown sugar
+2 eggs
+1 tsp. vanilla
+3 cups grated, unpeeled zucchini
+1 Tbsp. baking soda
+2 tsp. cinnamon
+½ tsp. salt
+3 ½ - 4 cups flour
+1 cup chopped nuts
+1 cup chocolate chips
+Cream shortening, sugars, eggs and vanilla.  Add zucchini and blend.  Mix dry ingredients together and gradually add to creamed mixture.  Add chopped nuts and chocolate chips.  Bake 350  for 12-15 minutes. Note:  You may need to add ½ - 1 cup more flour if mixture isn't thick enough.  You could add 2 cups of oats in place of 1 cup flour.
+
+Homemade Fortune Cookies – Amy Badger
+*Note: Make up fortunes on thin strips of paper before making cookies.  They need to be placed in cookie immediately after cooking.
+1 egg
+¼ cup sugar
+2 Tbsp. oil
+¼ cup cornstarch
+Beat egg slightly.  Gradually add sugar and beat until thick & ivory colored.  Fold in oil.  Add 2 Tbsp. water and a little of the egg mixture to the cornstarch and stir until smooth; gently beat into egg mixture.  Cook on a well-seasoned heavy griddle.  Drop a heaping tablespoon of batter on griddle then spread out until about 4 inch in diameter and 1/8 in thick.  Cook about 5 minutes, or until cookies are a light golden color with edges lightly browned and they lift easily from griddle. (Will be hard to remove if they are not baked enough.)  Remove one cookie at a time; place a fortune in center of cookie and fold cookie in half twice, pinching edges together.  Makes: 12 cookies.
+
+Macaroons - Sue Reber
+1 1/4 cups flour + 2 Tbsp,
+½ tsp soda
+1/4 tsp salt
+½ cup butter
+½ cup sugar
+½ cup brown sugar
+1 egg
+1 1/2 cups coconut
+Blend dry ingredients. Cream butter, gradually add sugars.  Mix well.  Add egg, then dry ingredients.  Mix till blended. Add coconut. Drop from teaspoon. Bake 375° for 9-10 minutes. Watch carefully so they won't burn.
+Macaroons Made Easy - Tiffanie Olsen
+Mix 2 2/3 cup coconut
+2/3 cup sugar
+1/4 cup flour
+Add:
+4 egg whites
+1 tsp. vanilla
+1 cup slivered almonds, opt.
+1 tsp. almond extract, opt.
+Form into 1 inch balls and place on greased cookie sheet about 2 inches apart.  Flatten slightly.  Bake 20 minutes at 325°.  Dip ½  of the cookie in melted chocolate if desired.
+
+Chocolate Peanut Butter Chip Cookies - Liz Bunderson
+1 cup butter
+1 1/2 cup sugar
+2 eggs
+2 tsp. vanilla
+2 cup flour
+2/3 cup cocoa
+3/4 tsp. baking soda
+½ tsp. salt
+2 cups Reese’s peanut butter chips
+Cream butter, sugar, eggs and vanilla in large bowl.  Mix in flour, cocoa, baking soda and salt.  Blend together.  Add chips and blend more.  Bake at 350° for 8-10 minutes on an ungreased cookie sheet.  NOTE: For soft cookies mix the longest amount of time and cook for the least amount of time.	
+
+Root Beer Cookies - Amy Badger –These cookies were one of the many adventures in cooking we tried with the Family, Home, & Consumer Science club at Snow College.  As a history major, I ended being the president of this club one year as they were lacking anyone else to do the job. Put two together with vanilla ice cream in the middle for a Root beer float you can eat out of your hand.
+1 cup brown sugar
+½ cup softened butter
+1 egg
+1/4 cup buttermilk or water
+1 tsp. Root beer extract
+1 3/4 cup flour
+½ tsp. baking soda
+½ tsp. salt
+Mix together all ingredients well spoon onto cookie sheet and bake at 400° for 8 minutes. Let cool and glaze with Root Beer Glaze. Makes about 30 cookies.
+ROOT BEER GLAZE
+2 cups powdered sugar
+1/3 cup butter (softened)
+1 ½ tsp. Root Beer extract
+2 Tbsp. water
+Mix together and frost cookies when slightly cooled.
+
+Orange Cookies – Tawna Marsh - My kids are loving this cookie recipe and I've taken it to a couple of showers and had people request it.
+2 cups white sugar
+1 cup shortening
+2 eggs
+1 cup sour cream
+1 tsp. vanilla
+5 cups flour
+2 tsp. baking powder
+1 tsp. baking soda
+1 tsp. salt
+3/4 cup frozen orange juice concentrate, thawed
+2 Tbsp. grated orange zest
+Cream white sugar and shortening; add eggs and stir.  Add sour cream and vanilla; stir and set aside.  Sift together flour, baking powder, baking soda, and salt.  Add little by little to the creamed mixture and stir well.  Add orange juice concentrate, and orange zest.  Drop onto greased cookie sheets by teaspoonfuls.
+Bake at 375 for about 10 minutes.  Frost cookies when they are cool.
+Frosting:
+1/2 tsp. grated orange zest
+2 Tbsp. frozen orange juice concentrate, thawed
+1 tsp. vanilla
+4 Tbsp. butter, melted
+1 ½ cups powdered sugar
+
+
+
+
+
+
+
+Pineapple Coconut Cookies- Amy Badger-
+A delicious recipe I discovered in my mom’s old recipe box.  My brother Jared & Suzanne Reber lived in Hawaii at the time I found it, so it prompted me to try its fun Hawaiian mix of flavors.  I added some macadamia nuts they had sent in a care package.
+6 Tbsp. shortening
+½ cup sugar
+1 egg, well beaten
+½ cup crushed pineapple
+1 ¼ cups flour
+¼ tsp. salt
+½ tsp. baking powder
+¼ tsp. baking soda
+½ cup coconut
+¼ cup chopped macadamia nuts 
+Directions: Preheat oven to 350º.  Mix together shortening, sugar, egg and pineapple.  Add dry ingredients sifted together.  Fold in the coconut and nuts.  Drop by spoonfuls 2 inches apart on slightly greased baking sheet.  Bake for 10 minutes or until slightly brown.  Makes 2 dozen
+
+Lime Cookies - Sammi Jo Stewart
+3 sticks butter
+4 Tbsp. fresh lime juice
+1/2 cup granulated sugar
+1/2 tsp. salt
+1/2 cup powdered sugar
+3 cups flour
+4 Tbsp. grated lime zest (4 med. limes)
+Cream butter and sugars until light. DO NOT over mix. Add: lime juice, lime zest and salt. Mix. Add flour and mix. Place dough on wax paper.  Shape into an 8 inch log. Flatten into a rectangle (1 ½”high & 2 ½” wide).  Refrigerate until firm (at least 1 hour, up to 1 day). Slice dough crosswise 1/2 inch thick  Bake at 350° for 8-11 minutes.  
+Lime Glaze:
+Mix 1½ cup powdered sugar
+3 Tbsp. fresh lime juice
+2 tsp. grated lime zest
+Using back of spoon spread 1/2 tsp. glaze on each cooled cookie.  Enjoy!
+
+
+
+Mexican Wedding Cookies – Bonnie Chantry This recipe comes from Mexico by way of Grandpa Joe Chantry's wife, Irene. She made these many times. 
+1 cup butter
+½ cup powdered sugar
+½ tsp. vanilla
+1 3/4 cup sifted flour
+½ cup chopped nuts
+Cream butter and sugar.  Blend in vanilla, flour and nuts.  Chill.  Shape into 1 inch balls.  Place on ungreased cookie sheet and bake 350° for 20 minutes.  When cool sprinkle with powdered sugar.
+
+Strawberry Filled Wedding Bells –Amy Badger – These are a very pretty cookie that tastes delicious as well.
+1 cup butter, softened
+1 pkg. (3oz.) cream cheese, softened
+1/4 cup sugar
+1 tsp. vanilla extract
+2 cups all-purpose flour
+1/4 tsp. salt
+1/2 cup strawberry jam
+Confectioners' sugar
+In a large bowl, cream butter, cream cheese and sugar until light and fluffy. Beat in vanilla. Combine flour and salt; gradually add to the creamed mixture and mix well. Divide dough into fourths. Cover and refrigerate for 2 hours or until easy to handle. On a lightly floured surface, roll out each piece of dough to 1/8-in. thickness. Cut with floured 2-in. round cookie cutters. Place 1 in. apart on ungreased baking sheets. Spoon 1/4 tsp. jam in the center and spread to within 1/4 in. of edge.  Shape into a bell by folding edges of dough to meet over filling. Bake at 375° for 8-10 minutes or until lightly browned. Remove to wire racks to cool. Dust with confectioners' sugar. Yield: about 5 dozen.
+
+
+
+
+
+
+
+Cherry Chip Cookies – Sammi-Jo Stewart - My girls love these PINK cookies.
+Blend together:
+1 pkg. cherry chip cake mix
+1/4 cup unsifted flour
+1/8 cup cooking oil
+1 egg
+1/4 cup water
+8 drops red food coloring
+Stir in:
+1 cup mini chocolate chips
+Roll into 3/4 inch balls and put on a lightly greased cookie sheet. Bake at 350° for 8-10 minutes, or until edges are lightly brown.
+Note: The dough is very thick and sticky so I just spray my hands
+
+Cream Cheese Cookies - Sarah Manis
+1- 8 oz cream cheese softened
+1/3 cup margarine
+1 egg
+1/4 tsp. vanilla
+1 pkg. strawberry cake mix
+Mix all ingredients and bake at 375° on cookie sheet for 8-10 minutes.
+
+Refrigerator Cookies - Bonnie Chantry -Another recipe from the kitchen of Irene Chantry who is a great cook.
+1 lb. margarine
+1 egg
+1 1/2 cup sugar
+2 tsp. baking powder
+½ tsp. salt
+1 tsp. vanilla
+5 cups flour
+½ cup chopped nuts (if desired)
+Mix all together and make into long roll.  Chill overnight.  Slice & bake at 375° for 8-10 min.
+
+No Bake Cookies –Sue Reber
+1 cup sugar
+2 Tbsp cocoa
+1/4 cup milk
+1/4 cup butter
+1 tsp vanilla
+1 1/2 cups quick oats
+1/4 cup peanut butter
+Combine sugar, cocoa, milk, butter and boil 1 minute.  Remove from heat.  Add vanilla, oats, and peanut butter. Mix well and drop on waxed paper.  Chill until firm.
+
+No Bake Cookies - Ruby Fielding
+2 cups sugar
+½ cup butter
+½ cup milk
+1/4 cup cocoa
+Bring to boil, boil 1 minute.  Remove from heat, add 1 tsp vanilla add 3 cups quick oats.   Spoon onto waxed paper.  Chill 20 minutes.
+Variations: Add 2/3 cup peanut butter, coconut or peanuts if desired.  
+
+Stupid Cookies – Amy Badger –This recipe is from my friend Tara Pebley who showed me that stupid can also mean delicious.
+1- 16oz. bag of Fritos
+1 cup creamy peanut butter
+1 cup white corn syrup
+1 cup sugar
+Heat in pan sugar & syrup until the sugar is dissolved.  Add the peanut butter and mix well.  Pour over Fritos and stir until well covered.  Spoon onto a cookie sheet and allow to cool.
+
+Raspberry Coconut Bars – Amy Badger – Any of your favorite jelly/jam can be used in this yummy recipe.  My favorite is Prickly Pear.
+1-2/3 cups graham cracker crumbs
+1/2 cup butter, melted
+2-2/3 cups flaked coconut
+1 can (14 oz.) sweetened condensed milk
+1 cup seedless raspberry preserves
+1/3 cup chopped walnuts, toasted
+1/2 cup chocolate chips
+1/4 cup white chips
+Combine cracker crumbs and butter. Press into a 9x13” pan coated with cooking spray. Sprinkle with coconut; drizzle with milk. Bake at 350° for 20-25 minutes or until lightly browned. Cool completely. Spread preserves over crust. Sprinkle with walnuts. In a microwave, melt chocolate chips; stir until smooth. Drizzle over walnuts. Repeat with vanilla chips. Cut into bars. Refrigerate for 30 minutes or until chocolate is set. 
+Cherry Coconut Bars - Amy Badger – I can eat the whole pan of these by myself.  I’m not going to tell you have many times I have eaten the whole plan myself.  It’s not my fault my kids don’t like coconut!
+Crust:
+3/4 cup all-purpose flour
+3 Tbsp. confectioners' sugar
+3 Tbsp. cold butter
+Filling:
+1 egg
+2 egg whites
+1 cup sugar
+1 tsp. vanilla extract
+1/4 cup all-purpose flour
+1/2 tsp. baking powder
+1/4 tsp. salt
+1/2 cup quartered maraschino cherries
+1/3 cup chopped walnuts
+1/3 cup flaked coconut
+In a food processor, place flour and confectioners' sugar; cover and process 
+until blended. Add butter; cover and pulse 15 times or until mixture resembles fine crumbs. Press into a 9-in. square baking pan coated with nonstick cooking spray. Bake at 350° for 12-15 minutes or until lightly browned. Cool on a wire rack. For filling, combine the egg, egg whites, sugar and vanilla in a bowl. Combine the flour, baking powder and salt; add the egg mixture. Stir in cherries, nuts and coconut. Spread over crust. Bake for 20-25 min. ‘til firm
+
+Cranberry Bliss Bars, from Starbucks – Tiffanie Olsen - This recipe was on the cupboard, as we just made a pan full and thought it should be shared!
+2 cubes butter (1 cup)
+1¼ cups brown sugar
+3 eggs
+1 tsp. ground ginger
+1 tsp. vanilla
+¼ tsp. salt
+1½ cups flour
+2 Tbsp.  minced candies ginger
+OR crystallized ginger
+ ¼ cup minced dried cranberries
+  ½ cup white chocolate chips
+
+Frosting:
+4 oz. cream cheese
+1 ½ cups powdered sugar
+2 Tbsp. butter
+1 tsp. vanilla
+Garnish:
+2 Tbsp minced dried cranberries
+1/3 cup white chocolate chips- melted
+Preheat oven to 350° and lightly grease a 9x13 pan.  Beat butter and sugar together and add eggs and vanilla, beating until fluffy (use electric mixer).  Sift together flour, ground ginger and salt, then add to butter/sugar mixture, beating well. Fold in cranberries, chips and candied ginger. Spread thick batter in pan and bake for about 20-25 minutes or until light golden. When cake is cool, mix all frosting ingredients together using electric mixer until smooth and fluffy.  Spread on cooled cake, then immediately sprinkle cranberry pieces on top of frosting.  Melt white choc chips in baggie and cut the tip off corner and drizzle over the cake.
+Cut into bars immediately because the chips harden quickly and makes cake cutting messy.
+
+Salted Peanut Chews - Diane Anderson
+1 pkg. yellow cake mix
+1/3 cup butter
+1 egg
+3 cups miniature marshmallows
+2/3 cup corn syrup
+1/4 cup butter
+2 tsp. vanilla
+1 12-oz peanut butter chips
+2 cups Rice Krispies
+2 cups salted peanuts
+Make crust of cake mix, butter and egg.  Stir together in large bowl until crumbly.  Press in ungreased cake pan.  Bake 350° for 23-28 minutes.  Remove from oven and spread  miniature marshmallows on crust.  Put back in oven until marshmallows puff up.  Then cool.  In large saucepan combine corn syrup, butter, vanilla, peanut butter chips.  Stir until all melted.  Add Rice Krispies and peanuts.  Mix together.  Put on top of cooled marshmallows.  Cool and cut into bars.
+
+Raisin Filled Cookie Bars - Grandma Grace - These cookies were made for a treat for Gene Chantry.  Bonnie wasn't fond of raisins or of making them. 
+Cream these ingredients:
+  1 cup shortening
+  1 cup brown sugar
+  1 egg
+  1 tsp. vanilla
+Add: 
+  2 cups oatmeal
+  2 cups flour
+  1 tsp. soda 
+  1 tsp. salt
+Combine these mixtures together.  Mix into a dough.  Divide into 2 balls.  Cover bottom of cookie sheet with ½ of the dough.  Press flat and spread filling on it. 
+Filling:       
+  1 1/2 cups chopped raisins
+  3/4 cup water
+  3/4 cup sugar
+  Sprinkle of salt
+A little vanilla, A little butter, A little flour.  Simmer filling on medium heat until raisins are plump. Crumble remainder of dough on top.  Bake 20 minutes at 350 degrees.  Allow to cool 15 minutes before cutting
+
+Pumpkin Bars - Devan Chantry - Scott learned to make these as a teenager and ended up making them for several of his brothers and sisters wedding receptions.  His son, Devan, is now making them.
+2 cups sugar
+1 cup oil
+1 cup pumpkin
+2 tsp. baking powder
+1 cup chopped nuts
+4 eggs, beaten
+1 tsp. soda
+½ tsp. salt
+1 tsp. cinnamon
+1 7/8 cup flour
+Cream oil, sugar and pumpkin together.  Add eggs and beat thoroughly.  Sift dry ingredients and stir.  Pour onto a  jelly roll pan.  Bake at 325° for 25-30 minutes.  When cool frost with:
+Cream cheese frosting:
+1 8-oz cream cheese	
+1 cube margarine
+1 lb powdered sugar
+2 tsp. vanilla
+
+Lemon Bars - Diane Anderson
+Crust:  1 cup margarine
+½ cup powdered sugar
+Dash of salt
+2 cups flour
+Combine ingredients and mix well.  Press in 9x13 pan.  Bake 350° for 15 minutes.
+Filling:
+4 eggs
+1/4 cup flour
+2 Tbsp. lemon juice
+2 cups sugar
+1 tsp. baking powder
+Combine flour and sugar.  Mix in beaten eggs and lemon juice.  Pour over slightly cooked crust.  Bake at 350° for 25 minutes or until set.  Cool and sprinkle with powdered sugar. Cut into squares
+
+Peanut Butter Jammers – Amy Badger - 
+1 can sweetened condensed milk
+1/2 cup peanut butter
+1 cup butter
+2 cups brown sugar
+1 tsp. baking soda
+2 eggs
+2 tsp. vanilla extract
+2 1/2 cups unsifted flour
+3 cups rolled oats
+1/2 cup jelly
+Preheat oven to 350°. Combine milk and peanut butter. With mixer, beat butter in large bowl about 30 seconds. Add brown sugar and baking soda; beat. Beat in eggs and vanilla. Beat in as much flour as you can with mixer. Stir in remaining flour and oats. Press two-third's of mixture on bottom of ungreased baking pan. Spread peanut-butter mixture over it. Drop jelly in small dollops evenly over peanut-butter mixture. Dot with remaining oat mix. Bake 25 minutes.
+
+
+
+
+Peanut Butter Fingers- Coach Fielding
+1 cup butter, softened to room temp
+1 cup sugar
+1 cup brown sugar
+1/2 tsp. salt
+2 eggs
+1 tsp baking soda
+Mix together and add:
+2 cups oatmeal
+2 cups flour
+Original instructions:
+Mix well and spread evenly over cookie sheet.  Bake 10-12 minutes at 325 degrees.  Let cool and spread CREAMY peanut butter (as thick as you like).  Microwave a tub of milk chocolate frosting for 5-10 seconds and spread on top.
+Coach's instructions:
+Same ingredients but this is about 2-3 times thicker when cooked than the Original recipe.  Both versions are great though - this has more of a cake (or fluffy brownie) like feel to it and the Original has more of a thick brownie feel.  
+I "cream" the butter, sugar, brown sugar, salt, eggs, and baking soda - your blender has a cream setting.  I cream it until it is a really smooth texture - almost like a pudding.  Then, I add the oatmeal and "cream" that in.  Finally, I mix in the flour.  Just add a little at a time as it is being mixed until you have added all 2 cups.  It should now have a texture like cookie dough.  Spread evenly over cookie sheet.  Bake somewhere between 10-30 minutes at 325 degrees.  I can tell it is done when the outside edges of the peanut butter fingers (about 2-3 inches) are starting to look harder.  The middle will still look a little creamy.  If it starts to get hard more than 2-3 inches in, you will have very tough peanut butter fingers.  When the peanut butter fingers are cool, spread peanut butter over them (at least 1/8" thick).  Microwave a tub of milk chocolate frosting for 5-10 seconds to soften it and spread on top (at least 1/4" thick).  
+
+
+
+
+
+
+Hello Dolly Bars - Sue Reber
+1 square butter melted in dripper pan
+1 1/2 cups graham cracker crumbs
+1 1/2 cups coconut
+1 1/2 cups chocolate chips and/or butterscotch
+1 1/2 cups chopped nuts
+1 1/2 cups condensed milk
+½ cup nuts, optional
+Layer each item as listed.  Bake 350° for 30 minutes.  Cool and cut in squares.
+
+Num-Nums (Layered cookie bar) - Amy Badger -This recipe was given to me by my missionary companion Sister Jolly.  It became the standard treat we missionaries brought to church functions in Portugal.
+1 1/2 cups brown sugar
+1 1/2 cups white sugar
+1 cup butter softened
+2 eggs
+2 cups flour
+1 tsp. baking soda
+3 cups oatmeal
+Filling:
+1 cup chocolate chips
+1/2 cup butter
+1-14oz. can sweetened condensed milk
+1 tsp. vanilla
+Mix first four ingredients together until well blended.  Add flour, soda and oatmeal and mix well.  Press down 2/3 of the dough mixture into a greased 9x13 inch pan.  Mix the filling ingredients together in a small sauce pan and heat on medium low until blended or microwave in a microwave safe bowl for 2 to 3 minutes on low power or until blended. Pour chocolate filling over cookie dough mixture in pan.  Allow to cool slightly.  Flatten the remaining dough in your palm and place on top of chocolate mixture until mainly covered.  Bake at 350° for 30 to 35 minutes
+
+
+
+
+
+
+
+
+Rocky Road Crunch Bars – Liz Bunderson
+24 servings
+1/3 cup honey
+2 Tbsp. butter
+4 cups mini marshmallows
+6 cups Honey Bunches of Oats cereal
+1 cup cocktail peanuts, chopped
+4 squares semi sweet baking chocolate, chopped
+Microwave honey and butter in large microwaveable bowl on high for 1 min.  Stir until well blended.  Add marshmallows; toss to coat.  Microwave 1 1/2 min. or until marshmallows are puffed; stir until well blended.  Add remaining ingredients; mix well.  Press cereal mixture firmly into greased foiled lined 9x13-inch pan.  Cool Cut into 24 bars.
+
+Chocolate Caramel Bars - Sarah Manis – “I remember making these bars with Sarah one of the many times I came down to Hinkley in the summer to babysit the boys while Sarah had drill team camp.  They taste just as sweet as my memories of being with Sarah.” –Amy Badger
+1 pkg. German chocolate cake mix
+1 square butter or margarine
+1/3 cup evaporated milk
+6oz. chocolate chips
+1 pkg. (14 oz) Kraft caramels
+1/3 cup evaporated milk
+Melt caramels with 1/3 cup canned milk stirring constantly to avoid scalding.  Set aside.  Melt butter, add cake mix and 1/3 cup evaporated milk, and stir by hand until blended.  Press ½ the cake mix into a greased and floured 9x13 pan.  Bake 6 to 10 minutes at 325°.  Remove from stove, sprinkle the  chocolate chips over the warm cake.  Drizzle the melted caramel over the chocolate as evenly as possible. Dot the top with ½ teaspoons of the remaining cake mix.  Bake at 325° for 35 minutes. Variation: Add 1/3 cup of nuts to the cake mix mixture and 1 cup chocolate chips on top of the caramel layer before baking a second time. - Angela Olsen
+
+
+
+
+Brownies - Diane Anderson
+Cream together: 
+2 cups sugar
+4 eggs
+1 cup margarine
+Add:
+1 cup flour
+½ cup chopped nuts
+1 tsp. vanilla
+8 Tbsp. cocoa
+pinch of salt
+Grease and flour a 9x13 pan.  Bake at 350° for 30-40 minutes.
+
+Daniel’s Brownies- Daniel Hinkle
+2 cups sugar
+4 eggs
+2 Tbsp. shy of two squares of margarine
+dash of salt
+1 Tbsp. vanilla
+3/4 cups coconut
+1 cup nuts
+1 3/4 cup flour (cake flour is best)
+Optional:  zest of 1 orange or ½ cup crushed raspberries - if raspberries add more flour)  Mix all together and bake in a greased cake pan at 350° for 35 minutes.
+
+Brownies - Grandma Reber
+Combine and set aside:
+2 cups sugar         
+4 eggs
+Melt together:
+1 cup margarine
+1 (12oz.) pkg. chocolate chips
+2 cups nuts
+Sift dry ingredients:
+2 cups flour
+1 tsp. baking powder
+1 tsp. salt            
+2 tsp. vanilla
+Combine sugar and eggs. Sift dry ingredients. Mix all of ingredients. Bake 350° for 40 minutes.  Develops glaze as it bakes.
+
+
+
+
+
+Microwave Brownies - Tiffanie Olsen
+Mix together
+½ cup soft margarine
+1 cup sugar
+1 tsp. vanilla
+Then add:
+3/4 cup flour
+1/4 cup cocoa
+½ tsp. salt
+2 eggs
+Stir until smooth.  Put in greased glass 9x9” pan. Microwave 7 minutes.
+
+Whole Wheat Brownies – Jill Olsen
+1 cup sugar                                
+2 Tbsp. margarine
+1 tsp. vanilla
+1 egg
+2 squares melted chocolate*
+1 cup sifted whole wheat flour
+1/2 tsp. salt
+1 tsp. baking powder
+1/2 cup canned milk
+1 cup chopped nuts
+ Pre-heat oven to 350°. Cream together sugar, butter and vanilla. Add egg and beat until light and fluffy. Add melted chocolate, sifted dry ingredients and canned milk. Mix well and stir in nuts. Pour into a buttered 9 x 13 pan and bake for 30 - 35 minutes. 
+* 6 Tb. cocoa powder + 2 Tb. shortening = 2 squares chocolate
+
+Best Gotta-Have-It Brownie (Reader’s Digest’s Best Brownie of the year from Katie Barker of Layton, Utah) - Amy Badger – I found this recipe and had to try it.  Great brownies, especially if you like marshmallows.
+2 cups sugar
+1/3 cup cocoa
+4 eggs
+1 ½ cups flour
+2 tsp. vanilla
+¼ tsp. salt
+1 ½ cups chopped nuts (optional)
+Mix butter, sugar and cocoa together.  Stir in 4 eggs.  Add flour, vanilla, salt and nuts.  Stir.  Pour into a greased 1” deep baking sheet.  Bake at 350º for 20 minutes or until done.  Cover with 1 lb. marshmallows; bake for 3 minutes.  Add frosting made of: 
+1 2/3 cups powdered sugar 
+½ cup butter
+1/3 cup cocoa 
+1/3 cup canned evaporated milk
+Blend frosting ingredients together well.  Add to warm marshmallows and mix together for a fudgy frosting.  
+
+Chocolate-Peanut Butter Fudge Bars –Amy Badger –I had a taste test with these bars & the “Best Gotta Have it Brownies” with my dinner exchange group. These came in 1st place.
+1 box (18 oz) Triple Chocolate Decadence Brownies mix
+1/2 cup peanut butter chips
+1/2 cup dry roasted peanuts, chopped 
+Peanut Butter Filling:
+3/4 cup creamy peanut butter
+1 cup marshmallow cream 
+3/4 stick (6 Tbsp) unsalted butter, softened
+3/4 cup confectioners’ sugar 
+Chocolate glaze:
+6 oz bittersweet baking chocolate, coarsely chopped
+5 Tbsp unsalted butter
+1 Tbsp light corn syrup
+Heat oven to 350°F. Line a 9-in. square pan with foil, letting foil extend above pan on opposite sides. Coat foil with nonstick spray.
+Prepare brownie mix as package directs for fudgy brownies. Stir in peanut butter chips and peanuts. Spread evenly in prepared pan.
+Bake 30 minutes, or until a wooden pick inserted in center comes out with moist crumbs attached. Cool completely on a wire rack. 
+Filling: Beat peanut butter, marshmallow cream and butter in a medium bowl with mixer on high speed until well blended. Reduce speed to low, add confectioners’ sugar and beat until blended. Spread evenly over brownie. 
+Glaze: Microwave chocolate and butter, stirring at 30-second intervals, until melted and smooth. Cool slightly; stir in corn syrup. Spread evenly over filling. Refrigerate 1 hour until filling is firm and glaze sets.
+Lift foil by ends onto a cutting board. Cut in 6 rows lengthwise and 6 crosswise.
+Touchdown Peanut Butter Marbled Brownie - Laurie Fryatt
+1 cup (2 sticks) butter or margarine, melted
+2 cups sugar
+2 tsp. vanilla
+3 eggs
+3/4 cup cocoa
+1 1/4 cups all-purpose flour
+½ tsp. baking powder
+1/4 tsp. salt
+1 cup milk chocolate chips
+Heat oven to 350°.  Grease 13x9 baking pan.  Prepare peanut butter filling.  Stir together melted butter sugar and vanilla.  Add eggs; beat well.  Add cocoa; beat until well blended.  Add flour, baking powder and salt; beat well.  Stir in chips. Remove 1 cup of batter.  Pour remaining batter into prepared pan.  Spread peanut butter filling over surface.  Drop reserved chocolate batter by teaspoonfuls over filling.  Using knife, gently swirl for marble effect.  Bake 35 to 40 minutes or until wooden pick inserted in center comes out almost clean.  About 36 brownies.
+PEANUT BUTTER FILLING:
+In small bowl, beat 2 pkgs. (3 oz. each) softened cream cheese, ½ cup peanut butter, 1/4 cup sugar, 1 egg and 2 tablespoons milk until smooth and creamy.
+
+Black Bean Brownies –Jill Olsen – These brownies are amazingly good.
+Batter:
+1 (15 oz.) can black beans, rinsed and drained
+3 eggs
+3 Tbsp. vegetable oil
+1/2 cup cocoa powder
+pinch of chili powder NOT TO MUCH (it hides the bean flavor)
+1 pinch salt
+1 tsp. vanilla extract
+3/4 cup white sugar 
+1/2 cup chopped nuts (optional)
+Topping: 
+1/2 cup chocolate chips
+1/4 cup rough chopped nuts (optional)
+Mix everything for batter into a food processor or blender. Pour into a greased pan.
+Sprinkle top with chocolate chips and nuts. Bake at 350° for 30 minutes or until a toothpick comes out of center clean. Watch for it to pull away from the edges of the pan.
+
+Zucchini Brownies - Amy Badger – The moisture from the zucchini is essential to making this recipe, so if you use frozen zucchini, make sure to not drain off all of the moisture.
+2 cups shredded zucchini
+2 cups flour
+1 tsp. salt
+1 ½ tsp. baking soda
+1/3 cup cocoa
+½ cup salad oil
+1 ½  cups sugar
+2 tsp. vanilla
+½ cup chopped nuts
+Mix zucchini and oil.  Sift dry ingredients and combine with moist mixture.  Add nuts and vanilla and spread batter into sprayed 9x13 pan.  Bake 18-20 minutes at 350 degrees.
+
+Mint Brownies - Sammi Jo Stewart
+1½ cup flour
+6 eggs
+1½ cup sugar
+24oz. bottle Hershey's Choco Syrup
+3/4 cup butter
+Mix and bake at 350° in a 9x13” greased pan for 30-40 minutes. COOL.
+Mint Filling:
+2 cups powdered sugar
+1 tsp. mint extract
+1/2 cup soft butter
+1-3 drops green food coloring
+1 Tbsp. water
+Combine, spread and chill.
+Topping:
+6 Tbsp. butter
+1¼  cup semi-sweet chocolate chips
+2 Tbsp. vanilla
+Melt butter and chips.  Remove from heat and add vanilla. Beat for a few minutes to cool a little then pour over mint layer. Cover and chill for at least one hour.
+
+Marbled Cheesecake Brownies - Tiffanie Olsen
+1 - 8 oz cream cheese
+1 1/3 cup sugar
+3 eggs
+3/4 cup butter
+6 Tbsp. cocoa
+3/4 cup flour
+½ tsp. baking powder
+½ tsp. salt
+1 tsp. vanilla
+Mix cream cheese, 1/3 cup sugar and 1 egg.  Mix until fluffy.  
+Mix 1 cup sugar, butter and 2 eggs until fluffy.  Add cocoa.  Mix dry ingredients and blend into cocoa mixture.  Add vanilla.  Put half of the cocoa mixture into 9x9 pan.  Add cream cheese mix and smooth on top.  Add by spoonfuls rest of chocolate mixture and swirl.  Bake 350° for 30-40 minutes.  Do not overbake.
+
+Cream Cheese Brownies – Tawna Marsh - We have made these for several Sunday afternoons and the whole pan gets devoured.  Tanner has even tried to hide them.
+Prepare 1 pkg. of brownie mix according to direction for cake like consistency.  Spoon half the batter in a greased 9x13 pan.
+Cream Cheese Swirl
+6 oz. cream cheese, softened
+5 Tbsp. butter, softened
+1/3 cup sugar
+2 eggs
+2 Tbsp. flour
+3/4 tsp. vanilla
+Beat together cream cheese swirl ingredients until smooth.  Drop by teaspoons evenly over brownie batter. Pour over the other half of brownie batter.  Take a knife and swirl the batter and cream cheese mixture.  Bake according to the brownie packages directions (about 40 minutes of until toothpick comes out clean.)  Cool and cut into brownie bites.
+
+
+
+
+
+
+Butterscotch Brownies - Janine Hinkle
+2 cups flour
+2 tsp. baking powder
+1/4 tsp. salt
+½ cup butter
+2 cups packed brown sugar
+2 eggs
+1 tsp. vanilla
+Preheat oven to 350°. Grease 9 X 13-inch pan. Mix dry ingredients (flour, baking powder and salt); set aside. Melt butter. Add sugar, eggs and vanilla; blend. Add dry ingredients slowly. Spread in greased pan. Bake 20 to 25 minutes. Cool completely before cutting.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Slow Cooker Chicken Broth - Grace Ann Skousen
+4 chicken breasts with bones
+2 onions quartered
+2 carrots, quartered
+2 celery stalks with leaves, quartered
+Handful of flat-leaf parsley
+1 bay leaf
+1 tsp. salt
+12 whole coriander seeds
+8 whole black peppercorns
+8 cups water
+Put everything in cock pot, cover and cook on low 8-10 hours of high 4-5 hours.  Take chicken out and let cool. Strain the broth and discard vegetables and herbs. De-bone chicken and put back into broth if desired for soup. Add fresh vegetables and noodles. Or use chicken in casseroles or salads & freeze broth for later use.
+
+Slow-Cooker Vegetable Broth – Grace Ann Skousen
+2 parsnips
+2 celery stalks
+2 carrots
+2 onions
+1 small fennel bulb
+Handful of flat-leaf parsley
+2 fresh thyme sprigs
+1 bay leaf
+2 garlic cloves, bruised but not peeled
+1 tsp. salt
+8 whole black peppercorns
+8 cups water
+Cut all vegetables into chunks. Put everything in the crock-pot and cook on low for 8-10 hours or high for 4-5 hours. Strain broth and discard veggies and herbs. Great for lentil soup or use instead of water when cooking rice.
+
+Crockpot Beans –Grace Ann Skousen
+½ lbs. ground beef
+½ cup onion, chopped
+1 can kidney beans, drained
+½ cup ketchup
+½ tsp. salt
+6oz. bacon
+1 can pork and beans
+1 can navy beans
+2 Tbsp. brown sugar
+1 ½ Tbsp. white vinegar
+Dash of pepper
+Brown ground beef in skillet and pout in crock-pot. Brown bacon and onion and put in pot along with the rest of the ingredients. Stir, cover and cook on low for 4-9 hours.
+
+Yummy Beans - Grace Ann Skousen- A great way to use food storage beans.
+4 cups dry beans (pinto or pink)
+1¾ Tbsp. salt
+Enough water to cover beans
+1 lb. pkg.  bacon
+1 medium onion - chopped
+cilantro, chopped
+chopped tomatoes (canned or fresh)
+Monterey jack cheese
+Soak beans overnight.  Put beans, salt and water in slow cooker or pot on low heat.  Cook until tender.  May take several hours.  When beans are tender, put in cilantro & chopped tomatoes.  Top with cheese & tortilla chips.
+
+Beans & Ham Hocks - Sue Reber
+1 lb. great northern beans
+1 small onion, chopped
+1 lb. ham hock
+2 celery stalks, chopped
+salt and pepper to taste
+Wash and sort beans.  Place in large pan and fill with enough water to completely cover the beans and a little to spare.  Bring to a boil. Turn down heat to a simmer and allow to cook 1 ½ - 2 hours or until beans are tender.  Be sure to check the water level occasionally so beans don't boil dry.  At this point remove the ham hock and season the beans to taste with salt and pepper.  Remove the meat from the ham hock, shred it and put the meat back into the beans.  This can also be done in the crock pot.  After soaking and draining the beans, put in the crock pot on low and let it cook all day and it is just right by dinner time.
+
+
+
+
+Maple Glazed Sweet Potatoes –Grace Ann Skousen
+5 med. sweet potatoes
+¼ cup brown sugar
+¼ cup pure maple syrup
+¼ cup apple cider
+Salt and pepper to taste
+Peel and cut up sweet potatoes into ½ inch slices, place in crock pot. Whisk remaining ingredients together and pour over potatoes. Cover and cook on low for 7-9 hours. Stir a few times to keep them coated.
+
+Creamy Mac and Cheese in the Crockpot – Becky Concoby - I serve this with meatballs, fresh green beans and a salad.
+2 cups dried Macaroni cooked in salted water and drained
+1 cup shredded Sharp cheddar
+1 cup Mozzarella or Fontina cheese
+1/2 cup grated parmesan
+4 Tbsp. butter
+3 eggs, beaten
+1/2 cup sour cream
+1 can condensed cheddar cheese soup 
+OR Old English cheese spread
+1/2 tsp. salt
+1/2 tsp. pepper
+1 cup milk
+1 tsp. prepared mustard
+1/2 cup mayonnaise
+In a saucepan melt butter and add cheeses and stir until melted. In large bowl combine eggs, sour cream, soup, salt, pepper, milk mustard, and mayo.  Add cheese mixture to large bowl and combine well.  Add cooked pasta.
+Spray the inside of the crock-pot. Put in Crock-pot and cook on low for 4 hours.
+
+To Die For Crockpot Roast –Grace Ann Skousen
+Beef roast, any kind
+1 pkg. Hidden Valley Ranch Dressing Mix
+1 pkg. Brown gravy mix
+1 pkg. Italian dressing mix
+½ cup warm water
+Place roast in crock-pot. Sprinkle dry mixes over meat and then pour water in the bottom of the crock pot. Cook on low 6-7 hours
+Beef Fajitas in Crockpot –Chrissy Probst
+1 ½ lbs. beef flank steak 
+1 lg. onion, chopped (1 cup) 
+1 med. green pepper, cut into 1/2-inch pieces 
+1 or 2 jalapeño peppers, chopped 
+1 Tbsp. snipped fresh cilantro 
+1 tsp. chili powder 
+1 tsp. ground cumin 
+1 tsp. ground coriander 
+1 tsp. bottled minced garlic 
+1/4 tsp. salt 
+1 can stewed tomatoes (8 oz.) 
+12  flour tortillas (7-inch.) 
+2 tsp. lime juice (up to 3 tsp.) (optional) 
+Shredded Colby & Jack cheese (optional) 
+Guacamole (optional)  
+Sour Cream (optional) 
+Salsa (optional) 
+Trim fat from steak. Cut steak into 6 portions. Combine steak, onion, green sweet pepper, jalapeño peppers, cilantro, chili powder, cumin, coriander, garlic, and salt in Crock Pot. Add undrained tomatoes. Cover; cook on low for 8 to 10 hours. (Or cook on high for 4 to 5 hours.) 
+Set oven to 350°. To heat tortillas, wrap them in foil and bake for 10 to 15 minutes or until softened. Remove steak from cooker and shred. Return steak to cooker. Stir in lime juice, if desired. To serve, use a slotted spoon to spoon steak mixture onto warm tortillas. Top with cheese, guacamole, sour cream, and salsa, if desired. Roll up tortillas. Makes 6 servings.
+
+Magic Meatloaf –Grace Ann Skousen
+1 lb. ground beef
+1 green pepper, chopped
+1 onion, chopped
+½ tsp. salt
+1 cup cracker/breadcrumbs
+1 egg
+1 pkg. Brown gravy mix
+1 cup milk
+4 small potatoes, cut up
+Mix everything together except potatoes and shape into loaf. Place in crock-pot with potatoes around the sides of the loaf. Cook on low 8-10 hours of high 4-5 hours.
+
+
+Crockpot Lasagna –Grace Ann Skousen
+Sauce:
+1 lb. ground beef
+1 onion, chopped
+2 tsp. minced garlic
+1 (29oz) can tomato sauce
+1 (6oz) can tomato paste
+1 ½ tsp. salt
+1 tsp. dried oregano
+Brown meat and add remaining sauce ingredients.
+Cheese Mixture
+¾ lb. cottage cheese
+½ cup Parmesan cheese
+1 lb. shredded mozzarella cheese
+Mix all cheeses in a bowl.
+Layer crock pot with meat sauce, uncooked lasagna noodles (or any pasta of your choice) and cheeses. Repeat layers. Cover, cook on low 6-8 hours. Watch so it doesn’t dry out, can add a little water.
+
+Sweet Pork – Rachel Mitchell – 
+1 (3 to 5lb.) boneless pork roast
+1 cup salsa
+1 cup brown sugar, packed
+Place ingredients in a greased 3 ½ to 4 ½ qt. slow cooker.  Cover and cook on low 8 to 10 hours.  Shred pork with a for or potato masher before serving.  Use meat in burritos, tacos or salads.  Freezes well.
+
+Crock Pot Spare Ribs - Bonnie Chantry - This is a regular at our house now since it is one of Gene's favorite meals.  He enjoys leftovers again and again on this one.
+4-5 lbs. pork boneless ribs
+28 oz. bottle of Kraft Barbecue Sauce 
+Place ribs on a broiler rack and brown in a 400° oven for 15 minutes. Turn and brown on other side 10-15 minutes.  Cover bottom of crock pot with sauce.  Place ribs in pot and cover with remaining sauce. Cover and cook for 6-8 hours.  Serves 5-6.
+
+
+
+
+Santa Fe Chicken– Amy Badger – This recipe is the one that Julia Ferguson,  my dinner exchange buddy, made for us the first time she brought dinner.  It was a winner and helped win my family over to the idea of letting someone else cook dinner now and then.
+2 cups chunky salsa
+6 skinless, boneless chicken breast halves
+1 can black beans, rinsed and drained
+2 cans whole kernel corn, drained
+Optional, for garnish: Grated cheese, sour cream, chopped green onion, chopped cilantro. 
+Spread about 1/2 cup salsa in the bottom of the crockpot. Layer chicken over the salsa. Top with beans, corn and the remaining salsa. Cook on low for 7 to 8 hours, until chicken is very tender. With a fork, break apart chicken to make a chunky chili. Serve topped with garnishes. Note: You can use frozen chicken breast or put all ingredients in a bag and freeze.  Mixing in a few ounces of cream cheese or sour cream the last 15 minutes of cooking makes for a creamy sauce on the chicken.
+
+Szechwan-Style Chicken & Broccoli –
+Rachel Mitchell
+2 whole boneless, skinless chicken breasts
+oil, for browning chicken
+½ cup picante sauce
+2 Tbsp. soy sauce
+½ tsp. sugar
+½ Tbsp. quick-cooking tapioca
+1 med. onion, chopped
+2 garlic cloves, minced
+½ tsp. ground ginger
+2 cups broccoli florets
+1 med. red pepper, cut into pieces
+Cut chicken into 1” cubes and brown lightly in oil in a skillet.  Place in slow cooker.  Stir in remaining ingredients.  Cover.  Cook on high 1 to 1 ½ hours or low 2 to 3 hours.
+
+
+
+
+
+
+
+Thyme & Garlic Chicken Breast –Liz Bunderson
+6 cloves garlic, minced
+1 ½. tsp. dried thyme crushed
+3 - 4 lbs. skinless chicken breasts w/ bone
+¼ cup orange juice
+1 Tbsp. balsamic vinegar
+Sprinkle garlic and thyme over chicken. Place chicken pieces in crock pot. Pour orange juice and vinegar over chicken. Cover and cook on low 5-6 hours, OR high 2 ½ -3 hours. Remove chicken; cover and keep warm. Skim off fat from juices. Strain juices into sauce pot. Bring to a boil, reduce heat. Boil gently, uncovered 10 minutes or until reduced to 1 cup. Spoon over chicken. Yum!
+
+Tasty Crockpot Chicken – Kadie Allred
+1 (2 ½ -3 lb) whole chicken, quartered
+1 (16 oz) pkg. baby carrots
+4 potatoes, peeled & sliced
+3 ribs celery, sliced
+1 onion, sliced
+1 cup Italian salad dressing
+2/3 cup chicken broth
+Place chicken in sprayed 6 qt slow cooker with veggies. Pour dressing & broth over top. Cover and cook on low for 6-8 hrs. Garnish with fresh parsley before serving.
+
+Crock Pot Chicken Alfredo – Sammi Jo Stewart
+4 chicken breasts
+1 stick of butter (I use 1/2)
+1 packet Good Seasonings Italian dressing mix
+8 oz. cream cheese
+1 can cream of chicken soup
+Layer in crock pot: butter, chicken breasts, and dressing mix.  Cook 3-4 hours on medium-low.  Take chicken out and shred.
+Add to crock pot: cream cheese, can of cream of chicken soup and 1/2 of a soup can of water.
+Melt together and add chicken. Serve over your favorite noodles, rice or mashed potatoes.
+
+
+
+
+Slow-Cooked Paprika Chicken and Mashed Potatoes –Alecia Bales
+1¼ lb. boneless, skinless chicken thighs, cut into ¾” pieces
+1 ½ cups sliced fresh carrots
+1 med. onion, halved, sliced
+1 med. green bell pepper, chopped
+1 Tbsp. paprika
+½ tsp. peppered seasoned salt
+1 can cream of chicken soup
+1 cup frozen peas, thawed
+½ cup sour cream with chives
+4 cups prepared mashed potatoes
+In 3 ½ or 4-quart cooker, combine chicken, carrots, onion, bell pepper, paprika, salt and soup.  Mix well.  Cover, cook on low for 6 to 8 hours.  About 10 minutes before serving, stir in thawed peas and sour cream.  Heat through and serve with mashed potatoes; sprinkle with bacon if desired. 6 servings
+
+Cranberry Chicken –Grace Ann Skousen
+1 whole chicken or 4 breasts (or turkey breast)
+1 can whole cranberry sauce
+1 envelope dry onion soup mix
+½ cup water.
+Place Chicken and water in pot. Sprinkle soup mix over chicken. Pour cranberry sauce on top. Cover and cook on low 6-7 hours.
+
+Crockpot Ham & Scalloped Potatoes –Amy Badger
+6-8 slices of ham OR 3 cups diced ham
+8-10 med. potatoes, peeled and thinly sliced
+2 onion, thinly sliced
+1 cup grated cheddar cheese
+1 (10 oz.) can cream of celery soup
+Paprika
+Put half of ham, potatoes and onions in crock-pot. Sprinkle with salt and pepper, then grated cheese. Repeat with remaining half. Spoon undiluted soup over top. Sprinkle with paprika. Cook on low 8-10 hours OR high 4 hours.
+
+
+
+
+
+
+Crockpot Chili – Kadie Allred
+1 lb ground hamburger, browned
+2 cans Mexican-style diced tomatoes 
+OR Rotel-Mild
+1 can crushed tomatoes with green chilies
+I can black beans (rinse & strain)
+1 can kidney beans (rinse & strain)
+1 can pinto beans w/ jalapenos
+1 chili seasoning packet
+Brown hamburger. Mix seasoning packet with 1 cup water and pour over browned meat in the crockpot. Add remaining ingredients. Stir. Cook for 1-3 hours on low heat.
+
+Taco Soup-Amy Badger
+Brown and drain,
+1 lb. ground beef or sausage
+1 onion chopped
+Add to crockpot with the following:
+1 quart diced tomatoes
+1-15oz. can kidney beans with juice
+1-15oz. can black beans with juice
+1 can whole kernel corn with juice
+1 pkg. taco seasoning
+Stir together and cook on high for 2 to 3 hours OR low for 4 to 6 hours.
+
+No-Fuss Potato Soup - Barbara Olsen 
+6 cups cubed peeled potatoes
+5 cups water
+2 cups chopped onion
+½ cup chopped celery
+½ cup thinly sliced carrots
+1/4 cup butter of margarine
+4 tsp. chicken bouillon granule
+2 tsp. salt
+1/4 tsp. pepper
+1 can (12 oz) evaporated milk
+3 Tbsp. chopped fresh parsley
+Snipped chives, optional
+In a large slow cooker, combine the first nine ingredients.  Cover and cook on high for 7 hours or until the vegetables are tender.  Add milk and parsley; mix well.  Cover and cook 30-60 minutes longer or until heated through.  Garnish with chives, if desired.  Yield: 8-10 servings.
+
+
+No-Fat Apple Cake – Rachel Mitchell 
+1 cup flour
+1 cup sugar
+ 2 tsp. baking powder
+1 tsp. ground cinnamon
+ ¼ tsp. salt
+4 medium-sized cooking apples, chopped
+2 eggs, beaten
+2 tsp. vanilla
+Combine flour, sugar, baking powder, cinnamon, and salt.  Add apples, stirring lightly to coat.  Combine eggs and vanilla.  Add to apple mixture.  Stir until just moistened.  Spoon into lightly greased slow cooker.  Cover.  Bake on high 2 ½ to 3 hours.  Serve warm topped with frozen whipped topping, thawed or ice cream and a sprinkle of cinnamon.
+
+Hot Fudge Sundae Cake – Rachel Mitchell – A delicious dessert I shared with the family for Christmas Eve one year.  When you want dessert, but not the fuss of making it after dinner.
+1 cup all-purpose flour
+1/2 cup granulated sugar
+2 Tbsp. baking cocoa
+2 tsp. baking powder
+1/2 tsp. salt
+1/2 cup milk
+2 Tbsp. vegetable oil 
+1 tsp. vanilla
+1/2 cup chopped nuts
+3/4 cup packed brown sugar
+1/4 cup baking cocoa
+1 1/2 cups hot water
+Spray slow cooker with cooking spray. Mix flour, granulated sugar, 2 Tbsp. cocoa, baking powder and salt in medium bowl. Stir in milk, oil and vanilla until smooth. Add nuts. Spread batter evenly in slow cooker. Mix brown sugar and 1/4 cup cocoa in small bowl. Stir in hot water until smooth. Pour evenly over batter in slow cooker. Cover and cook on high for 2 to 2½ hours or until a toothpick comes out clean. Turn off slow cooker and let cake stand uncovered for 30-40 minutes to cool slightly before serving. Spoon cake into dessert dishes and spoon sauce over top. Can be served with ice cream or whipped cream also.
+
+Chocolate-Dipped Pretzel Rods –
+Liz Bunderson
+2 pkgs. (14 oz) caramels
+2 pkgs. pretzel rods
+3 cups chopped toasted almonds
+1 lb. white dipping chocolate
+1 lb. milk OR dark dipping chocolate
+Melt caramels in the top of a double boiler or microwave-safe bowl.  Pour into an ungreased 8-in. square pan or a tall glass.  Leaving 1-in. of space on the end you are holding, roll or dip all the pretzels in caramel.  Allow excess to drip off.  Roll in almonds.  Place on waxed paper-lined baking sheets and allow to harden.
+Melt white chocolate in a double-boiler or microwave-safe bowl.  Dip half of the pretzels.  Return to baking sheets to harden.  Repeat with milk or dark chocolate and remaining pretzels.  Drizzle chocolate coated pretzels with the opposite color it was dipped in and sprinkle with almonds before chocolate is set. Store in an airtight container, or wrap in plastic wrap and tie with a colorful ribbon for gift giving.
+
+Rolo Turtles –Sue Reber
+1 pkg. ROLO candy unwrapped
+1 pkg. Pecan Halves
+1 pkg. Pretzels (small or waffle)
+Preheat oven to 250°. Place pretzels on to a cookie sheet.  Top each pretzel with a ROLO.  Bake in a 250 degree oven for 4 minutes. Remove from oven and immediately press one pecan half onto each ROLO.  Remove from cookie sheet and let cool in the refrigerator for 5 minutes.
+
+Date Rolls - Grandma Grace - A Christmas treat Mom would make
+1 cup ground dates
+1 cup chopped nuts
+2 cups graham cracker crumbs
+2 ½ cup miniature marshmallows
+1 cup Eagle Brand milk
+1 pkg. angel flake coconut
+Pour milk over ground dates and let stand at least 10 minutes.  Mix chopped nuts, crackers and marshmallows.  Add to date mixture.  Roll into balls, and then roll in coconut.
+
+Chocolate Chip Cookie Pizza - Amy Badger
+1-18oz tube chocolate chip cookie dough 
+(OR use your favorite recipe to make dough)
+1-8oz pkg. cream cheese, softened
+1/3 cup sugar
+2 cups cold milk
+1 small pkg. instant chocolate pudding
+¼ cup chopped nuts
+Press cookie dough onto an ungreased 12-in pizza pan.  Bake at 350° for 15-20 minutes or until center is set and cookie is lightly browned.  Cool for 5 minutes; gently run a flexible metal spatula under crust to loosen.  Cool completely.  In a small mixing bowl, beat cream cheese and sugar until blended.  Spread over crust.  In a bowl, whisk milk and pudding mix for several minutes.  Let stand few minutes until soft-set.  Spread over cream cheese mixture.  Garnish with nuts.  Refrigerate until ready to serve.
+
+Fruit Pizza - Marjean Spencer - The Spencer kids #1 choice.
+Crust:   
+2 beaten eggs
+1 cup powdered sugar
+1 cup sugar
+1 cup butter or margarine
+1 cup oil
+1 tsp. vanilla
+½ tsp. salt
+1 tsp. baking soda
+1 tsp. cream of tartar
+4 ¼ cups flour
+Sift dry ingredients in a bowl and set aside.  Cream together remaining ingredients.  Mix all together.  Divide dough in half.  Spread out on greased round pizza pans.  Bake at 375° for 17 minutes or until light brown.  Cool
+Topping:   
+12 oz. Cool Whip
+8 oz. cream cheese
+½ cup powdered sugar
+Whip together powdered sugar and cream cheese.  Then carefully blend in cool whip.  Spread this on top of crust.  Decorate with favorite fruit; bananas, kiwi, cherries, mandarin oranges, pineapple, raisins, nuts, apples, peaches, strawberries, etc. Slice and eat.
+
+Brownie Pizza - Amy Badger – My friend Amy Gray brought this to our 4th of July themed cooking club.  It was covered in strawberries and blueberries and everyone loved it.
+Crust: One brownie mix (or use your favorite recipe) make up brownie according to box and bake as directed for the crust in 9x13” pan.
+Sauce: 1-8oz cream cheese, softened
+1-can marshmallow crème
+Blend together and put on cooled, baked brownie crust. Garnish with fresh fruit toppings of your choice: such as strawberries, raspberries, blueberries, bananas, etc.
+Serve at room temperature.  Refrigerate leftovers if any survive.
+
+Becky's Favorite Rice Pudding –Becky Concoby – P.S. this is gluten free
+Mix together in a glass bowl:
+2/3 cup sugar 
+2 Tbsp. cornstarch
+dash of salt
+Add: 2 1/2 cups milk
+Microwave on high for 5 to 7 minutes, stirring after 3 minutes.  Beat 2 egg yolks and mix in. Microwave for 2 or 3 minutes in high, stirring after every minute.  Cook longer as needed to thicken.
+Add: 2 Tbsp. butter
+1 tsp. vanilla
+2 cups cooked rice
+
+Ruby's Rice Pudding –Ruby Fielding- The Chantries look forward to this recipe at family parties. Everyone loves it.
+6 cups cooked rice (approx. 3 cups uncooked)
+6 Tbsp. cornstarch
+12 large eggs
+15 cups whole milk- Do not substitute
+2 Tbsp. pure vanilla, no alcohol in ingredients
+2 cups sugar
+Place rice in a large roasting pan and combine all other ingredients in a blender.  Then stir contents together in the roasting pan. Bake at 350° for 1½ hours, stirring every 30 minutes.  After 1 hour of cooking the pudding is ready, the addition half hour is for thickness so cook to your desire of thickness after that.
+Bread Pudding –Bonnie Chantry – This is one of Gene’s favorite dishes.  He knows he’ll get to eat all of it because I won’t touch it with the raisins in it.  It’s a good way to use up dry bread or cinnamon rolls. It’s also a good way to make Gene happy.  Homemade bread is best.
+Lightly fill a 2 quart casserole bowl with bread cubes.  Sprinkle with 1 cup raisins.
+In another bowl:  Slightly beat 4 to 5 eggs
+Add: 2/3 cup sugar
+dash of salt
+½ tsp. cinnamon
+2 tsp. vanilla
+1 qt. milk
+Mix well and pour over the bread cubes.  Add extra milk only if needed to moisten bread.  Let stand and soak while the oven heats to 350°.  Place the filled casserole bowl in a 9x13 baking dish that has about ½ inch of hot water in it.  Bake for 1 hour to 1 hr. fifteen minutes, or until knife inserted near the center comes out clean.
+
+Rhubarb Crisp - Sue Reber – The rhubarb Grandpa Fay planted along his driveway helped to make this dessert for many years.
+4 cups cut up fresh rhubarb
+½ tsp. salt
+1 ½ - 2 cups sugar, depending on tartness
+3/4 cup flour
+1 tsp. cinnamon
+1/3 cup butter
+Heat oven to 350°.  Layer rhubarb in ungreased pan, sprinkle with salt.  Measure sugar, flour and cinnamon.  Add butter and mix thoroughly until crumbly.  Sprinkle over rhubarb.  Bake 40-50 minutes.  Serve with light cream.
+
+Apple Crisp - Ruby Fielding
+6 cups sliced apples
+1 - 1 1/3 cups brown sugar
+1 cup flour
+1 cup oats
+1 tsp. cinnamon
+1 tsp. nutmeg
+2/3 cup margarine
+Heat oven to 375°.  Grease 9x13 pan.  Place sliced apples in pan.  Mix the rest of the ingredients thoroughly.  Sprinkle over apples.  Bake 30 minutes.
+Apple Crisp –Emily Hammerstad
+¼ cup lemonade
+½ Tbsp. butter
+½ cup oatmeal
+½ cup sugar
+¼ tsp. cinnamon
+Dash nutmeg
+1 diced apple
+Preheat the oven to 375°.  In a small bowl combine all dry ingredients and butter.  Pour half of the lemonade into the mixture and continue mixing by hand.  Place the apple in a slightly greased 9x9 pan.  Pour the rest of the lemonade over the apples. Put the mixture on top of the apples and bake for 20-25 Minutes.
+
+Microwave Apple Crisp –Sue Reber
+3 medium apples, peeled & sliced
+2 Tbsp. lemon juice
+2/3 cup quick oats
+2/3 cup brown sugar
+1/2 cup flour
+1/3 cup butter, softened
+1 tsp. cinnamon
+Place apples & lemon juice in a glass dish. Mix other ingredients until crumbly. Sprinkle over apples. Microwave uncovered on high for 7 to 10 minutes or until apples are tender. Let stand for 5 minutes. Serve warm w/ whipped topping. 
+
+Apple Pudding - Alecia Bales
+Beat together:
+2 cups sugar
+½ cup butter
+2 eggs
+Mix together & add to the above:
+½ tsp. salt
+2 cups flour
+2 tsp. soda
+2 tsp. cinnamon
+1 tsp. nutmeg
+Then add:
+4 cups grated apples
+½ cup chopped nuts
+Bake in dripper pan at 350° for 45 minutes.
+Best Ever Sauce:
+1/4 cup butter
+½ cup sugar
+1/4 cup of canned milk
+1 tsp vanilla
+dash of nutmeg
+Cook until thickened.  Do not boil.
+Variation: Carmel Sauce: Bonnie Chantry
+1 cup brown sugar 
+½ cup Karo syrup
+Boil until thread spins (lift a small amount of sauce, should look like a hair spinning down)
+Add:  2 Tbsp. butter, dash of salt, ½ tsp. vanilla
+and 1 cup canned milk
+Stir & pour over each serving of pudding.
+
+Apple Dumplings –Becky Concoby - My best friend Karen, the one that came to Coalville with me every year, told me this was the most delicious dessert she has ever had.  I find that hard to believe considering it doesn't contain any chocolate, but you can judge for yourself.
+Peel 2 apples (tart) and slice into 8 piece using an apple divider. (You know the kind you push down on the counter with) Wrap each section in a Pillsbury crescent roll.  Put in a buttered 9 x 13”pan.  Cover with a mixture of 2 sticks butter and 1½ cups sugar, 1 tsp. vanilla.   Pour a can of Mountain Dew around edges.  Cover with cinnamon to taste. Bake at 350° for 40 minutes.
+
+Aunt Priscilla’s Carrot Pudding - Priscilla is Mother Olsen's sister-in-law.  Grandma Grace used to make this during the holidays.
+1 cup grated carrots		
+1 cup grated apple
+1 cup raisins			
+½ cup shortening (they used lard)
+3/4 cup sugar			
+2 eggs
+1 tsp. cinnamon		
+1 tsp. nutmeg
+½ tsp. cloves			
+2 tsp. baking powder
+½ tsp. baking soda			
+1/4 cup milk
+1½ cup flour
+Mix ingredients well and bake at 350° for 30 minutes in 9x13” pan.  Serve with Alecia's Best Ever Sauce from her Apple Pudding.
+
+
+Peach Cobbler -   Sue Reber -I like having a real cake over my peaches.
+1 qt. bottle peaches
+½ tsp. cinnamon
+3 Tbsp. cornstarch 
+1 1/4 cups flour
+1 cup sugar
+1 1/2 tsp. baking powder
+½ tsp. salt
+3/4 cup milk
+1/3 cup shortening
+1 egg
+1 tsp. vanilla
+Heat oven to 375°.  Mix peaches, cinnamon & cornstarch in cake pan.  Put in warming oven.  Measure all ingredients into large mixer bowl.  Blend ½ minute on low speed, scraping bowl occasionally.  Put into pan, over the warmed peaches.  Bake 40-50 minutes or until cake is done.  Serve warm with canned milk or whipped cream.
+
+Pumpkin Twinkies –Rachel Mitchell
+10 Twinkies
+1 - 8oz. cream cheese (softened)
+1 cup powdered sugar
+1 - 8oz. Cool Whip (thawed)
+2 - 3.4oz. pkgs. vanilla instant pudding
+1 - 15oz. can canned pumpkin
+1 1/2 tsp. pumpkin pie spice
+1 cup milk
+cinnamon for sprinkling
+Unwrap Twinkies and cut each in half (long ways). Place the cut Twinkies (uncut part down) in a greased 9 x 13 cake pan--set aside. In a mixer beat cream cheese and add powdered sugar--beat. Add 1/2 of the Cool Whip--beat. Spread cream cheese mixture on top of Twinkies. In a mixer add both boxes of pudding mix and milk--beat. Add pumpkin--beat. Add pumpkin pie spice--beat. Pour batter on top of cream cheese mixture. Spread remaining cool whip on top. Sprinkle cinnamon with if desired. Refrigerate overnight.
+
+
+
+
+Pumpkin Crumble Dessert –Amy Badger – My visiting teacher Andrea Sneed is fabulous.  When she told me about a favorite dessert she ate at BYU, I contacted BYU catering and got this special recipe to make for her.  The look on her face was worth the effort to track it down.
+1 white cake mix
+8 Tbsp. margarine OR butter
+1 cup walnuts OR pecans, chopped
+24oz. canned pumpkin 
+OR 3 cup pumpkin puree
+3 eggs
+1 ½ cups sugar
+2 tsp. pumpkin pie spice
+12 oz. can evaporated milk
+Mix the cake mix and margarine until crumbly, with pea size pieces of butter in mix.  Do not over mix. Divide the crumb mix in half.  Press one half into the bottom of a 9x13" pan.  Add
+the nuts to the remaining half of the crumb mixture and set it aside for later.  Mix the pumpkin in a medium bowl with eggs, sugar, spice and evaporated milk.  Pour over the crumb mix in pan.  Sprinkle the top with the remaining crumb/nut mixture.  Bake at 350° for about 1 hour or until pumpkin mixture is firm.
+
+Cherry Gomboo - Sarah Manis
+1 cup margarine (softened)
+2 yellow cake mixes
+2 cans cherry pie filling
+Mix butter and cake mixes with fork.  Reserve 1 cup.  Spread ½ of cake mixture into a 9x13” pan.  Put on pie filling and sprinkle remaining mix on top.  Bake 350° for 30-35 minutes.
+
+Colette's Hot Fudge –Liz Bunderson
+Colette is a good friend of mine in Hyrum.  Don't tell her I shared it with you.
+4-5 Tbsp cocoa
+4 Tbsp. flour
+2 cups sugar
+1/2 cup butter
+1 can evaporated milk
+1 tsp. vanilla
+Mix cocoa, flour and sugar in a bowl.  Melt butter in a sauce pan and then add milk.  Pour in sugar mixture. Whisk it together.  Boil 3-5 min.  Remove from heat and add vanilla.
+Ice Cream –Jill Olsen -This is a great recipe from my very talented friend, Melani Havens. The sisters all met her during our retreat one year. Sarah would always say, "Is it a Melani?" meaning: Is it really great or just so-so!
+Mash: 2 cups berries, add 2 cups sugar, set aside. (For chocolate substitute 2 cups chocolate syrup for this mixture).
+Mix: 1 pint of sour cream, 2 cups sugar, 
+5 tsp. vanilla.
+Add: 6 beaten eggs, then stir in berry mixture.
+Put one can of evaporated milk into ice cream maker container and beat with wire whisk 'til frothy. Pour in other mixture- DO NOT STIR! Add a quart of cream - DO NOT STIR! 
+Freeze by layering ice and rock salt. I use bagged ice so it's smaller and doesn't plug up the freezer. I add salt about every 2 inches. 
+Note: I put the can in my deep freeze before I use it and it seems to make the ice cream freeze faster. This makes a very creamy homemade ice cream, not at all 'grainy' -even leftovers are still great after weeks in the freezer.
+
+Vanilla Ice Cream –Barbara Olsen
+2 quarts half and half
+½ pint heavy cream
+1 ½ cups sugar
+4 tsp. vanilla
+Pinch of salt
+1 small pkg. instant vanilla pudding mix
+Combine ingredients and freeze according to manufacturer’s instructions.
+Note: You may use any flavor pudding mix you want. Crushed fruit may be added also.
+
+Old Fashion Ice Cream - Barbara Olsen
+Makes 6 qts.
+6 eggs
+3 ½ cups sugar
+3/4 tsp. salt
+2 Tbsp. vanilla
+Add 7 ½ cups milk
+2 pints cream
+Beat eggs then gradually add sugar.  Continue to beat until mixture is very stiff.  Add remaining ingredients and mix thoroughly.  Freeze - use 25 lbs ice and 3 ½ cups rock salt.  To pack. Drain off water.  Take dasher out and cover top (inside lid) with wax paper.  Push down ice & refill freezer with cracked ice & layer of salt.  Cover w/ newspaper or old quilt.
+
+Spudnuts - Grandma Grace
+2 cups mashed potatoes
+7 Tbsp. yeast dissolved in 1 cup warm water and 2 Tbsp. sugar
+4 eggs lightly beaten
+½ cup shortening
+3 cups scalded milk, cooled
+1 cup sugar 
+2 Tbsp. salt
+12 cups flour
+Cream shortening, sugar, salt and potatoes together.  Add other ingredients & mix.  Let rise until double in bulk.  Pat out and cut.  Place doughnuts on dish towel to rise the second time.  Fry in hot fat & glaze immediately.
+Glaze mixture:
+2 lbs. powdered sugar
+1 cup water    
+1 tsp. vanilla
+
+Garth’s Doughnuts - Garth & Ruby Fielding
+Dissolve 1 pkg. dry yeast in ¼ cup water
+with a pinch of sugar.
+Stir in:  ¾ cup lukewarm milk
+1/4 cup sugar
+1 tsp. salt
+1 egg
+1/4 cup shortening
+3 ¼ - 3 ¾ cups flour
+Knead or beat until smooth and easy to handle.  Place in greased bowls, cover and let rise 1½ hours until double in bulk.  Punch down and let rise ½ hour more.  Roll dough ½ inch thick on lightly floured cutting board. Cut with floured doughnut cutter.  Let rise on board until double and very light, about 30-45 minutes.  Leave uncovered so crust will form.  Heat fat 2-3 inches to 375° in deep fat fryer or kettle.  Drop doughnuts into hot fat, turn as they rise to surface.  Fry 2-3 minutes or until golden brown on both sides.  Carefully remove from fat so not to prick.  Drain, while warm roll in sugar or shake in bag full of sugar.  Or glaze with 1/3 cup boiling water to 1 cup powdered sugar.  Dip warm donuts into warm glaze.
+Crumb Topped Gingerbread –Sue Reber – A simple microwave cooked dessert.
+1 cup flour
+½ cup brown sugar
+½ tsp. baking soda
+¼ tsp. salt
+½ tsp. cinnamon
+½ tsp. ginger
+¼ cup shortening
+1 egg, beaten
+1 Tbsp. molasses
+½ cup buttermilk
+Combine dry ingredients.  Cut in shortening with pastry blender until mixture is crumbly.  Reserve ¼ cup for topping.  Combine egg, molasses and buttermilk with dry ingredients.  Spread dough in an 8 inch glass dish lined with wax paper.  Sprinkle the ¼ cup topping over the dough.  Cook in microwave for about 2 ½ minutes.  Let stand 10 minutes.  Cut into squares.  Serve with whipped cream.
+
+Chocolate Passion Bowl –Liz Bunderson
+Makes 16 servings (2/3 cup each)
+2 pkg. (3.9 oz each) chocolate instant pudding 
+3 cups cold milk 
+1 tub (8 oz.) Whip Topping, thawed, divided 
+1 baked 9-inch square brownie layer, cooled, cut into 1-inch cubes (about 5-1/2 cups) 
+2 cups fresh raspberries 
+Beat pudding mixes and milk with whisk 2 min. Stir in 1 cup whip topping. Place half the brownies in 2-qt. bowl; cover with layers of half each of the pudding, remaining whip topping and berries. Repeat. Refrigerate 1 hour. 
+Variations: Chop 2 large Snickers bars. Assemble dessert as directed, topping each layer of raspberries with layer of half the chopped nougat bars. Substitute 1 pkg. (12 oz.) marble pound cake, cubed, for the baked brownie square and/or undrained thawed frozen raspberries for the fresh raspberries.
+
+
+
+
+
+
+
+Chocolate Dessert - Becky Concoby
+1 cup flour
+1 cup crushed nuts
+4 oz. cream cheese, room temperature
+3 cups milk
+1 pkg. vanilla instant pudding
+1 cube margarine
+1 cup Cool Whip
+½ cup powdered sugar
+1 pkg. chocolate instant pudding
+Mix flour, margarine and nuts.  Pat firmly into a 9x13” pan.  Bake at 350° for 15-20 minutes.  Cool.  Blend Cool Whip, cream cheese, and powdered sugar in mixer until smooth.  Spread carefully on cool crust.  Mix milk, chocolate and vanilla pudding according to directions on package.  Spread on top of cream cheese mixture. Top with remaining Cool Whip.  Garnish with crushed nuts or chocolate shavings.  Chill before serving.  Store in frig.
+
+Éclair Dessert - Diane Anderson
+Cream together: 1 cup boiling water
+1 cup flour
+½ cup butter
+4 eggs
+Heat water.  Add margarine to melt, bring to a boil.  Add flour, stir.  It will form a ball.  Cook about 1 minute.  Remove from heat.  Add 1 egg at a time, mixing well each time.  Spread pastry in a 10x15 inch pan.  Bake at 400° for 25-35 minutes.  It should be golden in color.  Press down air bubbles in the center leaving the edges up when done.
+Filling:      
+2 ½ cups milk
+8oz. softened cream cheese
+2 small pkg. instant vanilla pudding
+Mix milk and cream cheese and beat until smooth.  Add pudding gradually.  Spread on cooled pastry.  Top with 8 oz. Cool Whip and drizzle Magic Shell (Smucker's Chocolate Fudge) over Cool Whip.
+
+
+
+
+
+
+Chocolate Éclair Dessert- Stephen Badger – This is one of my favorite desserts to make.  I made it for Bishop Flemming when he came to visit my family the summer before I turned 8. He challenged me that day to read the whole Book of Mormon before I was 8 and I did it!!
+24 graham crackers
+2 small pkgs. instant vanilla pudding
+4 1/2 cups milk, divided
+12 oz. cool whip
+1 small pkg. instant chocolate pudding
+Mix the two packages of vanilla pudding mix, 3 cups milk and cool whip together.  Layer 8 graham crackers, half the pudding mixture, 8 more graham crackers, the other half of the pudding mixture and then 8 more graham crackers.  Mix 1 1/2 cups milk and chocolate pudding mix and spread over top.  Let sit in the fridge overnight or at least for several hours before serving.  You can make this with nonfat milk & fat free cool whip for a guilt free treat. 
+Variation: Laurie Fryatt uses graham cracker crumbs in place of the whole cracker and the following topping in place of the choc. pudding.
+Bring to boil and cook 1 minutes:
+1 cup sugar
+1/3 cup cocoa
+1/4 cup evaporated milk
+Add 1 stick butter and 1 tsp. vanilla.  Let cool and beat until thick.  Spread on top of graham cracker crumbs and refrigerate overnight.
+ 
+Cream Puffs - Sue Reber
+1 cup water 
+½ cup margarine 
+1 cup flour 
+4 eggs
+Heat oven to 400°.  Put water and margarine in saucepan.  Heat to a rolling boil.  Turn heat to low; add flour, stirring vigorously until mixture forms a ball.  Remove from heat.  Thoroughly beat in eggs, one at a time, until smooth.  On baking sheet, with 2 spoons, shape into 12 (4x1) inch fingers for éclairs or by rounded spoonfuls for cream puffs.  (Or use pastry bag with large tip.) Bake 45 to 50 minutes or until puffed, golden brown and dry.   Cool slowly, away from drafts.  Fill as desired or use for other recipes.  Makes 12 éclairs, 12 large cream puffs or 24 to 30 small puffs or éclairs.  For small éclairs and puffs:  Use about half as much pastry dough for each when making small éclairs and puffs.  Bake these for about 30 min.   Makes 24-30.
+
+Marshmallow Delight - Bonnie Chantry
+This is a party dessert. Don't worry that the pineapple seems to make the whipped cream look curdles.  It is supposed to look that way.  The results are wonderful.
+1 lb. marshmallows
+1/3 cup milk, hot
+1 can crushed pineapple
+1 cup whipping cream, whipped
+½ cup walnuts
+Crust:  30 graham crackers crumbled
+1/3 cup melted butter
+Melt marshmallows in milk and let cool.  Add pineapple (drained) and whipped cream and nuts.  Line 8x8 pan with waxed paper. (This makes it easier to get dessert out of the pan and to clean-up.)  Put graham cracker crumb mixture on waxed paper. Pour marshmallow mixture over graham cracker crumbs. Refrigerate for several hours before serving.
+
+Pineapple Delight - Liz Bunderson
+When I was on the food committee for homemaking I often got stuck trying to decide what kind of dessert to make. I would always call Sarah Jane.  This is one of the recipes she gave to me to use. Serves 12.
+1 lg. can crushed pineapple
+1 cup sugar
+1 cup water
+3 Tbsp. cornstarch
+8 oz. cream cheese, softened
+1/2 cup powdered sugar
+1 cup whipped topping
+In a 9x13 pan make a graham cracker or short bread crust.  In a bowl combine cream cheese, powdered sugar and whipped topping until smooth.  Spread evenly in pan with crust. In a sauce pan combine pineapple, water, sugar and cornstarch.  Bring to a boil.  Cool and pour over cream cheese layer.  Chill until set.  Top with remaining whipped topping.  Serve with ice cream.
+Blueberry Dessert- Bonnie Chantry
+This dessert is a little extra work and looks messy but tastes heavenly.
+1 pkg. vanilla wafers crumbled
+1 can (21 oz) blueberry pie filling
+2 eggs
+1 cup whipping cream, whipped
+1 cup powdered sugar
+1 square softened butter
+1 cup chopped nuts
+Line 9x13” pan with half of the crumbs.  Cream sugar, butter and egg yolks.  Beat whites and fold into first mixture (looks curdled).  Spread pie filling next, then nuts and whipped cream.  Top with rest of crumbs.  Refrigerate overnight.
+
+Yummy Strawberry Shortcake – Sue Reber
+2 eggs
+1-1/4 cup sugar, divided
+1 cup all-purpose flour
+1 tsp. baking powder
+¼ tsp. salt
+½ cup milk
+1 Tbsp. butter
+1 tsp. vanilla extract
+1 to 1-1/2 quarts fresh strawberries, sliced
+Whipped cream
+In a large bowl, beat eggs on medium speed for 3 minutes. Gradually add 1 cup sugar, beating until thick and lemon-colored. Combine flour, baking powder and salt; beat into the egg mixture. Heat milk and butter just until butter begins to melt. Beat into batter with vanilla (batter will be thin). Pour into a greased 8-in. square baking pan.  Bake at 350° for 25 minutes or until a toothpick inserted near the center comes out clean. Cool for 10 minutes before removing from pan to a wire rack to cool completely.  Just before serving, cut cake into serving-size pieces; cut each slice in half horizontally combine strawberries and the remaining ¼ cup sugar.  Spoon strawberries between cake layers and over the top of each serving.  Top with whipped cream.  
+Yield: 9 servings
+
+
+
+Strawberry Delight –Alecia Bales
+1 yellow cake mix - prepared
+8oz. tub of cool whip
+8oz. cream cheese 
+½ cup powdered sugar
+1 cup sugar
+1 pkg. strawberry Kool-aid
+3 Tbsp. cornstarch
+2 cups water
+1 pint strawberries, sliced
+Bake cake according to directions in a 9x13” pan.  Allow the cake to cool completely.  Beat cream cheese, cool whip and powdered sugar until smooth.  Spread over cooled cake.  Combine sugar, Kool-aid, and cornstarch in a med. sauce pan, gradually add water until all ingredients are combined.  Bring to a boil over medium heat stirring constantly.  Simmer until thick and bubbly.  Approximately 2-3 minutes.  Remove from heat and cool completely.  Usually 20 minutes.  Fold in sliced strawberries and spread over the top of cake/cool whip mixture.  Serve approximately 20 people.
+
+Angel Lush – Christine Fielding
+1 can (20 oz.) crushed pineapple, with juice
+1 pkg. (1.5 oz.) vanilla instant pudding 
+1 cup thawed whipped topping 
+1 pkg.  (10 oz.) round angel food cake, cut horizontally into 3 layers 
+10 fresh strawberries
+Mix pineapple and dry pudding mix in medium bowl with whisk until well blended. Stir in Cool Whip. Stack cake layers on plate, filling layers and topping with pudding mixture.  Refrigerate 1 hour. Top with berries just before serving.
+
+
+
+
+
+
+
+
+
+
+
+German Chocolate Trifle Cake –Catarina Badger – I love watching Sandra Lee’s “Money Saving Meal” on Food Network with my Mommy.  This is one of the recipes that we tried making together and loved.
+1 pkg. German Chocolate Cake Mix 
+(3 eggs and 1/2 cup vegetable oil, for the cake) 
+1 (12 oz.) can evaporated milk
+1 ½ cups sugar 
+3 eggs 
+4 Tbsp (1/2 stick) unsalted butter 
+1 bag sweetened coconut flakes 
+1 cup chopped walnuts 
+Bake the cake according to package.
+While the cake is baking, make the caramel sauce. In a saucepan, whisk together the evaporated milk, sugar and eggs. Add the butter and cook over medium heat. Stir constantly, until the mixture thickens and just starts to bubble, about 10 to 12 minutes. Remove from the heat and cool completely. (Can be made a day ahead & refrigerated once cooled. Bring to room temperature when ready to use it.)
+To assemble the trifle in a large trifle bowl: Cut the cake into 1 1/2-inch cubes. Make a layer in the bottom of the dish with 1/3 of the cubes. Drizzle with some of the caramel sauce, enough to moisten the cake but not cover it completely. Sprinkle with 1/3 of the coconut and 1/3 of the nuts. Repeat twice more adding a little extra drizzle of caramel over the final coconut and nuts. (Any extra caramel sauce can be used as a topping for ice cream or pound cake.) Serve immediately or refrigerate until you are ready to serve.
+
+Cherry Cheesecake –Kadie Allred
+1 can sweetened-condensed milk
+8 oz cream cheese (at room temp.)
+1/3 cup lemon juice
+1 tsp. vanilla
+1 can cherry pie filling
+1 graham cracker crust
+Beat cream cheese until light & fluffy. Beat in milk. Add lemon juice & vanilla and stir. Pour into crust and chill. After chilled, top with pie filling.
+
+
+Cheese Cake - Marjean Spencer
+Crust:
+1 2/3 cups graham cracker crumbs
+½ cup melted margarine
+Combine and pat into bottom of 9x13” pan
+Filling:
+½ cup boiling water
+1 small pkg. lemon Jell-O
+Blend in blender on low until blended then add:
+2 Tbsp, lemon juice
+1 cup cottage cheese
+Blend on high then add:
+1 cup cottage cheese
+Blend.  Pour into a bowl and add:
+12 oz. Cool Whip
+Stir together. Pour on top of crust. Chill until set.
+Topping: 1 cup sugar
+1 pkg. unsweetened Kool Aid (raspberry)
+4 Tbsp. cornstarch
+2 cups water
+Fruit (raspberries)
+Bring water to boil in pan.  Add dry ingredients and cook about 3 minutes.  Add fruit.  Cool and then spread on top of cheese cake.  Refrigerate.
+
+Praline Cheesecake - Liz Bunderson
+3 (8 oz.) pkgs. cream cheese softened
+1 3/4 cup brown sugar, divided
+3 eggs
+1 cup chopped pecans
+2 Tbsp, flour
+1 1/2 tsp, vanilla
+1/4 cup butter
+12 pecan halves
+Blend cream cheese and 1 1/4 cup brown sugar until smooth.  Add eggs one at a time. Mix well after each one.  Stir in chopped pecans, flour and vanilla.  Bake at 350° for 50-55 minutes or until set.  Cool to room temperature.  Cover and chill.  Stir ½ cup brown sugar and 1/4 cup butter over low heat for 5 minutes.  Pour hot topping over chilled cake.  Garnish w/ pecans. 
+
+
+
+
+
+No Bake Cheesecake- Rachel Mitchell – I LOVE cheesecake and this recipe allows me to have it with little fuss. Yes I do think my brother Jared is weird because he claims to not like cheesecake or chocolate.
+1-8 oz. pkg. cream cheese, softened
+1 cup sugar
+1-8oz. tub of Cool Whip
+Beat cream cheese and sugar well. Then fold in Cool Whip.   Pour into graham cracker pie crust and refrigerate until firm.  
+Variations: Drizzle chocolate sauce, heated raspberry preserves, caramel sauce, etc.    On the top of cheesecake after folding in whip cream and them swirl in with a butter knife.
+
+Joyce Fisher’s Pudding Cheesecake –
+Liz Bunderson
+1 ½ cups flour
+¾ cup soft butter
+½ cup chopped nuts (any variety - pistachio, almonds, walnuts etc.)
+1 large container of whip topping, divided
+8 oz. cream cheese, softened
+1 ½ cup powdered sugar
+2 small pkgs. of pistachio pudding 
+1 small pkg. of vanilla pudding 
+4 cups milk
+Mix flour, butter and chopped nuts. Spread in a 9x13. Bake at 350° for 10 minutes. Cool. In large bowl beat cream cheese until smooth. Mix in powdered sugar, then fold in 1 ½ cup whipped topping. Spread onto cooled crust. Beat together all 3 packages of pudding with milk. Spread it onto the cream cheese layer. Top with the remaining whipped topping. Garnish with chopped nuts. Chill for 1 hour.
+
+Mini Cheese Cakes - Sarah Manis
+Place vanilla wafers in each of 20 to 24 aluminum foil cupcake liners.
+Beat together until smooth:
+2 (8-oz) cream cheese
+2 eggs
+3/4 cup sugar
+Pour mixture over vanilla wafers.  Bake at 350° for 10-15 minutes.  Cool top with cherry pie filling
+
+Mini-Pumpkin Cheesecakes – Sue Reber 
+18 baking cups
+18 gingersnap cookies
+12 ounces cream cheese, softened
+¾ cup sugar
+1 Tbsp. cornstarch
+1 tsp. pumpkin pie spice
+2 eggs
+1 cup canned pumpkin
+1/3 cup corn syrup
+Preheat oven to 325°.  Line 18 muffin cups with paper baking cups.  Place 1 gingersnap in each cup.  Beat cream cheese, sugar, cornstarch and pumpkin pie spice with mixer.  Add eggs and mix well.  Add pumpkin and corn syrup.  Beat 1 minute.  Pour filling into liners, dividing evenly.  Bake for 30-35 minutes, until just set.  Chill 1 hour.  Serve with whipped topping
+
+Cream Cheese Cupcakes - Alice Chantry
+1 ½ cups graham cracker crumbs
+½ cup sugar
+½ cup melted butter
+Mix together with fork.  Spoon one Tbsp. mixture into cupcake papers and press down.
+3 pkgs. (8 oz) cream cheese (room temperature)
+1 cup sugar
+1/8 tsp. salt
+4 eggs extra large
+2 Tbsp. vanilla
+Mix in mixer until smooth on high.  Spoon in each cupcake 2/3 full.  Bake at 350° about 40 minutes or until tooth pick comes out clean.  Cool.  Add favorite topping (fresh fruit) Serve at room temperature.
+
+
+
+
+
+
+
+
+
+
+
+
+
+Marbled Double Chocolate Cheesecake Squares - Laurie Fryatt
+½ cup (1 stick) butter, softened
+1 cup sugar, divided
+1/4 teaspoon salt
+1 cup flour
+1/4 cup cocoa
+2 pkgs. (8 oz.) cream cheese, softened
+2 eggs
+2 tsp. vanilla extract
+½ cup Hershey’s Chocolate Shoppe Topping, at room temp.
+1/4 cup chocolate chips, melted
+Heat oven to 375°.  Line 8- or 9-inch square pan with foil, extending edges over sides of pan.  In a small mixing bowl, beat butter, ½ cup sugar and salt until smooth.  Stir together flour and cocoa; gradually add to butter mixture, beating until soft dough is formed.  Press dough onto bottom of prepared pan.  Beat cream cheese and remaining ½ cup of sugar until smooth.  Add eggs and vanilla; blend well.  In separate bowl, mix 1 cup cream cheese batter with chocolate topping, stir until well blended.  Pour 1 cup of topping-flavored batter over dough.  Stir melted chocolate into remaining flavored batter; set aside.  Gently pour vanilla batter, 1/4 cup at a time, over flavored batter.  Drop tablespoonfuls of reserved flavored batter over top; gently swirl with knife or spatula for marbled effect.  Bake 35 to 40 minutes or until cheesecake is firm and top is slightly puffed.  Cool completely in pan on wire rack; refrigerate.  To serve, lift from pan using foil edges; cut into squares.  Garnish as desired.  About 20 squares.
+
+Cream Cheese Clouds –Liz Bunderson
+Makes 1 dozen
+1 can (16.3 oz.) refrigerated buttermilk biscuits 
+1/2 cup sugar 
+1 Tbsp. ground cinnamon 
+1 pkg. (8 oz.) cream cheese, cut into 12 cubes 
+1/4 cup (1/2 stick) butter, melted 
+Preheat oven to 350°. Separate dough into 12 biscuits; press or roll each to 1/4-inch thickness. Mix sugar and cinnamon in shallow dish. Dip cream cheese cubes in melted butter, then roll in the cinnamon sugar. Place 1 cheese cube in center of each dough circle; gather up sides of dough to enclose filling. Press edges of dough together to seal. Place, seam sides up, in lightly greased muffin pan. Drizzle with any remaining butter; sprinkle with any remaining cinnamon sugar. Bake 15 minutes or until golden brown. Serve warm.
+
+Lemon Dessert - Angela Olsen
+6 eggs, separated into yolks & whites
+1 cup sugar
+2 cups whipping cream
+½ cup lemon juice
+6 Tbsp. sugar
+1 pkg. vanilla wafers, crushed
+Beat egg yolks, add sugar, lemon juice - cook on medium heat until thick. Remove from heat. Beat egg whites and 6 Tbsp. sugar, whip cream and fold in lemon mix.  Crush vanilla wafers - pour half into a 9x13” pan.  Pour lemon mixture over top and then rest of crushed wafers.  Freeze - then serve.
+
+Cran-Orange Ribbon Dessert – Amy Badger – This dessert takes about two hours of time to make.  It is beautiful when cut into and the taste is worth all of the time spent.
+1-2/3 cups graham cracker crumbs (26 squares)
+1/4 cup ground pecans
+3 Tbsp. sugar
+6 Tbsp. butter or margarine, melted
+1 pkg. (8 oz.) cream cheese, softened
+1/2 gallon vanilla ice cream
+1 can (12 oz.) frozen OJ concentrate, thawed
+1 can (16 oz) whole-berry cranberry sauce
+1/2 tsp. almond extract
+In a bowl, combine the cracker crumbs, pecans, sugar & butter; mix well. Press into a greased 9x13” pan. Bake at 350° for 8-10 minutes. Cool. Beat cream cheese until smooth. Add ice cream; mix well. Gradually beat in orange juice concentrate; spread half over crust. Cover and freeze for 1 hour. Refrigerate remaining ice cream mixture. In blender mix cranberry sauce & almond extract; spread half over ice cream layer. Cover and freeze for at least 30 minutes. Spread with the remaining ice cream mixture and cranberry mixture. Cover & freeze until firm. Set out about 30 minutes before serving. 
+Soft Orange Custard – Sue Reber
+2 Tbsp. butter, softened
+2/3 cup sugar
+2 eggs, lightly beaten
+2 Tbsp. flour
+¼ tsp. salt
+¼ cup orange juice
+½ tsp. grated orange peel
+1 tsp. lemon juice
+1 cup milk
+In a small bowl, cream butter and sugar on medium speed for1 minute.  Add the eggs, flour and salt.  Beat for about 2 minutes or until thickened.  Add the orange juice, orange peel and lemon juice.  Stir in milk.  Pour into 5 custard cups.  Place in a cake pan.  Add 1 inch of boiling water to pan.  Bake at 325° for 35-40 minutes or until set. Remove from water bath.  Serve warm or chilled.  Refrigerate leftovers.
+
+Frost Orange Dream Squares – 
+Suzanne Reber
+40 Nilla Wafers, finely crushed
+1/4 cup (1/2 stick) butter, melted
+2 cups cold milk
+2 small pkgs. vanilla instant pudding
+1 tub (8oz) Cool Whip, thawed, divided
+2 cups orange sherbet, softened
+Line 13x9-inch pan with foil, with ends of foil extending over sides of pan. Mix wafer crumbs and butter. Press firmly into bottom of prepared pan; set aside. Add milk to dry pudding mixes in medium bowl. Beat with wire whisk 2 minutes or until well blended. Gently stir in half of the Cool Whip. Spoon evenly over crust. Refrigerate 10 minutes. Add remaining Cool Whip to sherbet; mix until well blended. Spoon evenly over pudding layer; cover. 
+Freeze at least 3 hours or overnight. Use foil 'handles' to remove dessert from pan before cutting into squares. Store leftovers in freezer.
+
+Ice Cream Crunch Dessert - Diane Anderson
+1 half gallon ice cream, soft enough to spread, divided into two portions
+1 pkg. cake mix
+1 cup chopped nuts (optional)
+3/4 cup softened margarine
+½ cup brown sugar
+Mix together.  Spread on cookie sheet.  Bake for 12 min. at 375°. Crumble mixture with fork while still hot, let cool, divide into thirds. In 9x13 pan, layer 1/3 of the crumbs, spread ½ of the ice cream over it, layer the next 1/3 crumbs, the remainder of the ice cream, and finish with crumbs on top.  Freeze until hard. (This will take some time.  Freeze the day before!)  Use any combination of ice cream and cake that is compatible.
+
+Ice Cream Sandwich Dessert - Sarah Manis - This is very easy and very good!
+12-15 ice cream sandwiches
+1 lg. cool whip
+1 Hershey bar
+Unwrap ice cream bars and lay in bottom of 9x13” pan. Spread a layer of cool whip on next.
+Put in freezer for a few minutes to harden cool whip.  Put on another layer of ice cream sandwiches & cool whip.  Grate chocolate bar and sprinkle on top. Freeze until very firm.
+
+Oreo Peppermint Dessert - Angela Olsen
+1 pkg. crushed Oreos
+1/4 cup margarine
+½ gallon peppermint ice cream
+1 small Cool Whip
+Crushed peppermint candy.
+Mix crushed Oreos and 1/4 cup melted margarine.  Save some Oreos to put on top.  Pat Oreos into a crust and freeze.  Put softened ice cream on crust and freeze.  Put Cool Whip, rest of Oreos and crushed candy on top.  Freeze.
+
+Peppermint Dessert – Jill Olsen
+1 cup candy cane, crushed
+1 cup finely chopped nuts
+1 cup finely crushed vanilla wafers
+1 pint whipping cream, whipped
+24 large marshmallows, cut up
+Put 2/3 of wafers in 9x13” pan.
+Combine whipped cream, marshmallows, candy canes, nuts and remaining wafers.  Pour into pan and let set.
+
+
+
+
+Krispie Ice Cream Dessert - Sue Reber
+2 cups Rice Krispies
+1 cup brown sugar
+1 cup coconut
+½ cup melted butter
+Stir together and put ½ mixture in bottom of pan.  Spread ½ gallon softened ice cream oven the mixture.  Sprinkle the rest of the Rice Krispies mixture over the top and freeze.  Top with Danish dessert and fresh raspberries.
+
+Peanut Butter Pudding Dessert –Sammi Jo Stewart - I love this recipe.  It's a layered dessert that you can make nuttier with crunchy peanut butter or if you don't like cashews you can substitute with your favorite nut.  I have to make this when I'm taking it somewhere with a crowd otherwise I will eat the whole pan :)
+1 cup flour
+1/2 cup cold butter, cubed
+1-1/2 cups cashews, divided
+1 pkg. 8 oz. cream cheese, softened
+1/3 cup creamy peanut butter
+1 cup powdered sugar
+1 pkg. (12 oz.) frozen whipped topping, thawed, divided
+2-2/3 cups cold milk
+1 small pkg. instant chocolate pudding mix
+1 small pkg. instant vanilla pudding mix
+1 milk chocolate candy bar, coarsely chopped
+Place flour and butter in food processor. Process until mixture resembles course crumbles. Add 1 cup cashews and pulse until combined. Press crumbs into a 9x13 baking dish. Bake at 350° for 25 minutes or until golden brown. Cool completely. In a small bowl, beat cream cheese, peanut butter and powdered sugar until smooth. Fold in 1 cup whipped cream and spread over crust.
+In another bowl, whisk milk, and both pudding mixes for 2 minutes. Let stand for two minutes or until soft set. Spread over cream cheese/peanut butter layer. Top with remaining whipped cream.  Sprinkle candy bar and remaining cashews on top. Refrigerate for at least 1 hour before serving.
+
+
+
+Cup-A-Cup-A-Cup-A - Amy Badger – This is a recipe from my Snow college roommate Ruthanne. The name of the recipe is basically an easy way to memorize the recipe. 
+1 cup sugar
+1 cup corn syrup
+Heat ‘till boiling.  Add:
+1 cup peanut butter
+Pour over 6-8 cups of your favorite cereal.  Spread on a greased cookie sheet and sprinkle chocolate chips on top for a great frosting.  Melt in a warm oven & spread.  Works with Rice Krispies, but Cocoa Puffs are the best.
+
+Chocolate Scotcheroos - Great Grandma Reber
+1 cup sugar
+1 cup light corn syrup
+1 cup peanut butter
+6 cups Rice Krispies
+1 cup chocolate chips
+1 cup butterscotch chips
+Cook sugar & syrup in 3 qt saucepan.  Cook over moderate heat, stirring frequently until mixture boils.  Remove from heat.  Stir in peanut butter.  Mix well.  Add Rice Krispies.  Stir until well blended.  Press into buttered 13x9 inch pan.  Melt chocolate & butterscotch chips in microwave.  Stir until blended.  Spread over cereal mixture.  Cool.  Cut into bars.
+
+Peanut Butter Ball Chocolates – Bonnie Chantry - This crunchy treat we learned from the office couple at the Greece Athens Mission Office. 
+Put in large bowl and mix with CLEAN hands
+	1 -18 oz. jar Chunky Peanut Butter
+	1 cup margarine (2 cubes)
+	1 lb. powdered sugar
+Add: 3 ½ c. Rice Krispies
+Mix well.  (May be done with spoon but it's more fun with the hands.) Take a spoonful at a time and roll in palm of hands until it forms a ball, about 1 inch in diameter.  Place on cookie sheet and freeze. Roll frozen balls in melted dipping chocolate.  The chocolate will set up right away and they are ready for eating, or you may put them back in the freezer for later.
+
+Peanut Mallow Chews - Bonnie Chantry
+1/3 cup butter
+32 large marshmallows 
+OR 4 cups miniature marshmallows
+½ cup peanut butter
+5 cups Kix
+Grease 9x9 inch pan.  Heat butter and marshmallows over low heat stirring constantly, until melted.  Stir in peanut butter heat till melted.  Fold in cereal. Quickly pat evenly in pan with buttered hands.  Cool and cut into bars.
+
+Chantel’s Munchie Chex Mix – 
+Chantel Moody
+Mix in a large bowl:
+2 large boxes Corn Chex cereal
+8 oz slivered almonds
+In a pan mix:
+2 squares butter
+1 1/2 cup sugar
+1 1/2 cups white Karo syrup
+Bring to a boil and boil for 2 full minutes.  Remove from heat and add
+1 1/2 tsp vanilla
+Pour over Chex mix.
+
+Chex Mix with Glaze - Jill Olsen
+Mix together and set aside
+9 cups Rice Chex.
+1 cup coconut
+9 cups Golden Graham
+2 cups slivered almonds
+Mix in heavy pan:
+1 cup Karo
+1 cup sugar
+1 cup margarine
+Boil for two minutes, remove from heat, 
+Add: 1 tsp baking soda.  Pour over cereal.
+
+
+
+
+
+
+
+
+
+Aunt Tawna’s Bugle Mix - Tawna Ballard - Aunt Utahna gives this as a Christmas gift.
+2 packages Bugles
+2 cups nuts and extra cashews
+1 can Eagle condensed milk
+1 cup Karo syrup
+2 cups brown sugar
+2 cubes of butter
+Spread Bugles and nuts on foil covered cookie sheet.  Combine condensed milk, syrup, sugar and butter in saucepan.  Cook to soft ball stage.  Pour over Bugle mixture.
+
+Corn Flake Candy - Grandma Myrl
+This recipe is from Grandma Myrl Olsen’s recipe box.  It is one that I’m sure Grandma Grace would have liked.
+4 cups Corn Flakes
+4 cups Rice Krispies
+½ cup salted peanuts
+1 cup coconut
+Syrup: 
+1 cup sugar
+1 cup dark corn syrup
+½ cup milk
+½ tsp. vanilla
+Boil until firm ball stage, not hard ball.  Pour over cereal mixture which has been mixed together in a well buttered pan.
+
+Coconut Custard – Quinn Mitchell – This is the first dish that Rachel & I made together as a married couple.  Cooking is something we enjoyed together through our courtship.
+1 cup coconut cream
+2/3 cup sugar
+6 large eggs, lightly beaten
+3 Tbsp. butter
+Fresh fruit for topping
+In a large sauce pan cook cream and sugar on medium heat until sugar is dissolved. Turn heat to low and add the eggs.  Stir occasionally for 10 -12 minutes or until the mixture coats the back of a spoon.  Remove from heat and add butter.  Pour into six 4” custard cups and put in a baking dish.  Add boiling water to the baking dish until half way up the side of the cups.  Bake at 325° for 30 to 40 minutes or until set.  Serve warm with fresh fruit on top.  
+
+DUTCH OVEN BASICS   (Outdoor Cooking)
+
+Heat Control:
+Charcoal is the best alternative for wood.  It is easy to obtain and transport, and is invaluable when regulating cooking temperatures.  Under ideal circumstances, briquettes can yield up to one hour of cooking time. (Kingsford brand charcoal is preferred because of its consistency from bag to bag.)
+
+General rule is top # is the same as the size, bottom is 2 less. Like cooking in an oven, you are creating the oven with briquettes. The following should make inside oven 350º.
+  Size		Top		Bottom	
+ 8 inch		 6-8		   4-6	
+10 inch		 8-10		   6-8
+12 inch		10-12		   8-10
+14 inch		12-16		  10-12
+16 inch		16-18		  12-16
+Another way to check temperatures: put 1 tsp. flour in pan, cover, cook 5 min.  If light brown=350º, if dark brown=400-450º. If dark brown in under 3 min. it’s TOO HOT to cook.
+
+One way to check fire’s temperatures: Hold your hand 3" over the spot where you will be cooking, count seconds until you have to remove your hand. (estimates only)
+Seconds	Heat         Temperature              6-8 		Slow		250-350º      
+4-5		Moderate	350-400º
+2-3		Hot		400-450º
+1 or less	VERY Hot	450-500º
+To determine baking temperature use the "3 up, 3 down = 325° formula.  This formula is based on the oven's diameter and the use of the full-size charcoal briquettes.  The diameter plus 3 equals the number of briquettes required for top heat.  The diameter minus 3 equals the number of briquettes needed for bottom heat.  This heats the oven to 325°. For example, a 12” oven uses 15 (12 + 3) top briquettes & 9 (12-3) bottom briquettes to reach a temp. of 325°. 
+
+Two briquettes provide 20-25° of heat, so to modify the 325° temperature, add or subtract briquettes.  To raise the baking temperature to 350°, add one more briquettes on top and bottom.  To lower the temperature to 300°, subtract one briquette each from the top and bottom.  To raise the temperature to 400°, add two to the top and two briquettes to the bottom and so on.
+
+Charcoal Placement:
+When placing briquettes for cooking purposes, form a consistent pattern.  This allows for even distribution of heat.  Charcoal bunched together can burn food. As burning briquettes reduce in size, heating capacity declines.  To maintain a consistent temperature, add new briquettes as necessary. 
+
+Delicate sauces cook better by using half- burned briquettes.  Use more of them to compensate for the lower heating capacity.  The result is a gentle distribution of heat that is less likely to scorch or burn.
+
+Ashes decreases efficiency.  Carry a whisk broom to dust off the old ashes when they inhibit the heat, or use the ashes to lower the temperature when needed.
+
+Additional Cooking Helps:
+You can STACK several Dutch Ovens on top of each other, using the coals on the top of one, as the bottom coals of the one above.  (Generally, bake in the lower ones and fry in the upper ones).    
+Humidity, air temperature, wind, direct sun and shade will affect the temperatures and cooking times.  
+Some recipes require different distribution.  Stews and liquid based dishes need more heat on bottom.  Meats, vegetables, beans need even heat.  Cakes, breads, baked items need more heat on top.
+
+Two-Thirds Timing Information:
+Rolls or other food baked directly in the pot of a Dutch oven are not automatically subject to crusty-black bottoms.  The proper temperature is important, but so is timing.  In fact, timing plays a critical part in overcoming this problem. 
+The "two-thirds" method is a starting point.  It simply means to cook the food with both top heat and bottom heat for about 2/3's of the total baking time.  Then remove the oven from bottom heat and finish baking with top heat only. This method works well for any food baked flat on the bottom of an oven and especially well for those without much moisture content. About 3-7 minutes before the foods comes off the heat, check the top for uniform browning.  Redistribute the top heat by placing the briquettes over the lighter area.
+
+Baking on a Rack:
+Set any Dutch oven up to bake like a regular oven.  Preheat the oven with a 9 inch round cooking rack set inside. Arrange the food in another pan that fits into the Dutch oven.  A 9 inch square pan or most round cake pans fit into a 12 inch oven.  Although this method limits the amount of food cooking at one time, the oven recycles easier for baking several batches instead of one.
+
+Care & Cleaning:
+FIRST TIME ONLY: Scrub with mild detergent and warm water (inside & out).  Towel dry (do not air dry). ASEASON@ by wiping all surfaces with vegetable oil or shortening.  Place in 350º oven for 2 hrs.  Wipe all surfaces with oil and return to 200º oven for 6 hours ... every 2 hrs re-coat all surfaces with oil.  (Can also do this to Are-season@, scrubbing out all rust or other dirt first.) 
+-While camping, wipe out any excess food or residue with a paper towel as soon as you are finished serving a meal.  Then, take the oven home to finish cleaning.  Before washing, make sure the oven is at room temperature.  
+
+CLEAN #1: Scrape out food particles.  Fill with warm water (no soap), scrub, towel dry, wipe with think layer oil.   
+
+CLEAN #2: Scrape out food with utensil, put in a bit of oil and sprinkle with salt, scrub with salt like a cleanser.  Wipe out and then re-coat with oil.
+If coating becomes rancid, reheat and wipe out excess oil, re-coat with fresh oil before use.
+-A method used by many old timers involves placing the oven back on the fire to burn off the residue from the food.  Then, using rags or paper towels and a putty knife or spatula, scrape and wipe until clean.  While the oven is still hot, apply a thin coat of oil and wipe off the excess.  This method works well when away from home for any amount of time.  Be careful, extreme heat can cause seasoning to flake off, or worse, the oven to warp.  An aluminum oven can melt.  Don't set an empty oven directly on the flames; wait for the heat source to cool before starting.
+
+Rice In Dutch Oven - Joe Olsen
+1 quart rice
+2 quarts water
+1 Tbsp. oil
+1 tsp. salt
+Boil water with oil and salt.  Add rice, cover tightly, return to boil then reduce heat to very low and cook 25 minutes without peeking.  Fluff with fork and serve.
+
+Wheat/White Dutch Oven Rolls –FFF Cookbook
+2 ½ cups warm water
+2 Tbsp. sugar or honey
+2 Tbsp. oil
+1 1/2 tsp, salt
+3 cups white flour
+3 cups wheat flour
+1 Tbsp. fast acting yeast, OR 2 Tbsp. regular
+Mix all ingredients well.  Divide into 24 equal parts and arrange in an oiled 14 inch Dutch oven.  Let rise until double in size, about 25 minutes.  Bake with coals on top and bottom for approximately 12-14 minutes, and then continue baking with coals on top until golden brown.  Rotate the oven 1/4 turn once or twice while baking.  1/3 heat on bottom 2/3 heat on top.  Use 16 briquettes on top and 8 briquettes on bottom. Delicious served with honey- butter or fresh freezer strawberry jam.  
+
+
+
+Dutch Oven Potatoes –Coach Fielding
+1 lb. thick sliced bacon
+sliced potatoes
+sliced onions
+baby carrots
+shredded medium cheddar cheese
+Cook bacon in the Dutch Oven - just like you would on a normal griddle.  The greasier the bacon is the better.  Trying to use Charcoal Briquettes for cooking the bacon doesn't work, you can't get it hot enough that way - cook the bacon over a stove or a fire.  I prefer cooking this meal over a fire rather than briquettes because the longest part of this meal is cooking the bacon (and if you already have to build a fire to cook the bacon you may as well finish cooking it on the fire).  Once the bacon is cooked, do NOT empty the bacon grease as it will get soaked into and flavor these other ingredients.  Put layers of sliced potatoes, sliced onions, and baby carrots over the bacon.  Fill the Dutch Oven at least 3/4 of the way with these layers.  Next, stir everything thoroughly - I try to get the bacon off the bottom and mixed in with the other ingredients.  Cook with heat on the lid and on the bottom.  Every 5 minutes, rotate the dutch oven 1/4 turn clockwise and the lid an additional 1/4 turn clockwise.  Once the potatoes are as soft as butter (when sticking a knife through them), remove from the heat.  Add tons of shredded medium cheddar cheese on top and put the lid back on for a couple of minutes to allow the cheese to melt.  Enjoy.
+
+Dutch Oven Potatoes - Joe Olsen
+½ lb bacon
+1 onion
+1 can Cream of Mushroom soup
+1 can Cream of Chicken soup 
+OR 2 cans of Creamy Chicken Mushroom soup
+1 can of water
+Sliced potatoes to fill the Dutch oven 3/4 full.  Grated cheese to cover top of potatoes.  
+Slice potatoes 1/4 inch thick or less.  Chop onion into small pieces.  Brown bacon then add onion and sauté.  Add potatoes, soup and water. Stir together. Cook approximately 1 hour.  12-14 briquettes on top 6-8 on bottom.  Cover with cheese and let melt.  
+Dutch Oven Veggies - Gina Olsen
+2 heads cauliflower
+2 bunches broccoli
+1 large bag baby carrots
+Use 14 inch Dutch oven.  Steam vegetables in 1 1/2 cups water - drain.  Add 2 cans cream of chicken soup.  Spread 1 cup cheddar cheese and 1 pound American cheese over top.  Put lid on and warm until cheese in melted.  Enjoy!
+
+Garden Medley - Jill Olsen - Joe used this recipe and won 1st place at his ward's Dutch Oven cook off. Can also be made in a skillet.
+Brown one pound hamburger, drain if necessary.  Top with one zucchini and one yellow squash.  Place thinly sliced onion on top of squash.  Cover and let simmer.  When squash can be pierced with fork, add 4 tomatoes that have been peeled and diced.  Place on top of onions.  Cover with grated cheddar cheese.  Cover and simmer until cheese is melted.  NEVER STIR.  Enjoy!
+
+Dutch Oven Chicken & Rice - Barbara Olsen
+Cook chicken in 1 quart water until tender.  Cut meat from the bones and return to water.  Add chopped onion, celery, shredded carrot and 1 Lipton chicken rice Soup mix.  Add equal amount of minute rice as you have water left and cover let stand for 5 minutes
+
+Dutch Oven Chicken - Joe Olsen
+Chicken
+Cooking oil
+1 bottle barbecue sauce 
+OR 2 cans cream of chicken soup
+water
+½ onion, finely chopped
+lemon pepper
+garlic powder
+Season chicken with lemon pepper, garlic powder.  Brown chicken in oil.  Drain oil.  Pour barbecue sauce or soup over chicken.   
+Add water, ½ bottle BBQ OR 1-2 cans soup. Add onion.  When browning put all briquettes over bottom.  Cook chicken 1 - 1 ½ hours on until it falls off the bone.  12-14 briquettes on top 6-8 briquettes on bottom.
+
+Dutch Oven Sweet & Sour Chicken - Tawna Marsh - This is a recipe that I got at a Lady Scouters training many years ago. They made it in Dutch Ovens like a true Scouter, but me, not being a true Scouter, I just do it in a 9x13 in the oven. We used it at Joe & Gina's wedding dinner and Michael would make this each time his Priest Quorum would have a "Cooking with Swamps" activity.  Tanner just recently had a Priests' cooking activity and he requested this recipe also.  Obviously a favorite around here.
+3 lb. chicken breast (boneless, skinless)
+Combine in shallow plate:
+1/2 cup cornstarch
+1/2 cup flour
+Salt & pepper
+In separate shallow plate:
+2 eggs, beaten with a little water
+Dip chicken in egg; shake in cornstarch/flour mixture.  Brown in oil (both sides) Remove chicken and drain on paper towel.
+Make sauce:
+3/4 cup sugar
+1 chicken bouillon cube
+1/4 cup vinegar
+1/2 cup catsup
+1 Tbsp. soy sauce
+1/4 tsp. salt
+1 cup water
+Pour sauce into 12" Dutch oven. Bring to boil; add chicken.  Cook 1 hour (12-16 briquettes on top and 10-12 on bottom.)  Can be made in your oven at 350° for 1 hour.  
+Note: I combine sauce ingredients in a saucepan & bring to a boil. Then, put chicken & sauce in a 9x13.  I like to cook it uncovered, but you can cover with foil if you want.  Sometimes I use chicken tenders rather than full breasts because it cooks faster.  We like to serve it with rice and a yummy spinach salad
+
+BBQ Chicken - Liz Bunderson
+1 cup BBQ sauce (Bull’s-eye best brand)
+1 cup water
+½ cup brown sugar
+¼ cup vinegar
+1 Tbsp. Worcestershire sauce
+2 tsp. dry mustard
+1 Tbsp. dry chopped onions
+Pour sauce over chicken.  Cook for about 2 ½ -3 hours until very tender in a Dutch Oven at about 250°.  Can use slow cooker or regular oven
+
+Slightly Sweet Dutch Oven Chicken & Rice – Amy Badger – This is a recipe I got from a Dutch oven demonstration I was in charge of with the Home & Family Studies group of Snow college.  One of the local dutch oven experts came to show students how to cook.  He specifically asked us to provide Kingsford charcoal.  The girl shopping for supplies decided to save money and buy the generic brand charcoal.  The cheap briquettes would not stay lit and the dutch ovens had to finish cooking in the kitchen oven.  Some things are worth the money.  
+2-3 lb. chicken
+1 1/2 cups rice
+1 can cream of chicken soup
+1 can cream of mushroom soup
+Seasonings: salt, pepper, Accent, bay leaf, rosemary, etc.
+2  soup cans of 7-Up OR water 
+1 (12") Dutch oven
+Use 12" Dutch oven and grease bottom lightly. Evenly spread rice across the bottom of oven. Place chicken in center of rice. Open both cans of soup, mix with 2 cans water OR 7-Up and pour over chicken. Season to taste. Put lid on Dutch oven. Cover lid with coals for 350° dutch oven. Cook for 1 1/2 - 2 hours. 
+
+Dutch Oven Chicken & Biscuits –Gina Olsen
+20 chicken tenders
+1 bag carrots and peas
+1 can cream of mushroom soup
+1 envelope of chicken noodle soup
+2 cans water
+1 can of Pillsbury dinner rolls
+Brown chicken in dutch oven. Add carrots, peas, soups and water. Warm through. Add rolls on top and cook for about 15-20 minutes. Easy. Use about 20 coals on top and 12 on bottom.
+
+
+
+One Pot Chicken and Vegetables – Joe Olsen 
+One piece of chicken, one potato, one carrot and one half onion for each person.
+1 green pepper, if desired
+salt and pepper
+1 pound of bacon
+choice of seasoning
+1 lb. of your favorite grated cheese
+Warm Dutch oven.  Slice bacon into squares and line bottom of oven.  Cool until thoroughly done.  Remove bacon onto paper towel.  Coat chicken pieces with flour which has been salted, peppered and seasoned.  Brown chicken.  Slice vegetables into bite size pieces approximately ½ inch thick and add on top of chicken.  Salt and season as desired.  Put lid on and cook at moderate heat until the chicken is tender and carrots and potato slices easily.  Remove oven from heat, sprinkle bacon bits over top and then sprinkle on cheese.  Put lid back on until cheese melts (about 5 min) 12 inch oven use 9 briquettes on top and 15 on bottom.
+
+Dutch Oven Stir Fry with Beef – FFF Cookbook
+1/4 cup oil
+2 cloves of garlic
+dash red pepper
+1 lb. beef sliced in thin strips
+½ cup sliced onion
+½ cup green pepper sliced in strips
+1 cup celery diagonally sliced
+4 green onion with tops sliced
+1 cup cauliflower
+1 cup broccoli 
+3 cubes beef bouillon
+2 Tbsp. soy sauce
+1/4 tsp. salt   
+pepper
+1 cup frozen peas
+1 cup sliced mushrooms
+1 cup water
+3 Tbsp. corn starch
+Place oil in hot Dutch oven and add seasoning to flavor the oil.  Brown meat in flavored oil.  Add vegetables and stir to mingle flavored oil.  Cover and simmer 30-40 minutes until tender crisp.  Add bouillon, soy sauce, salt and pepper, peas, mushrooms and corn starch that has been mixed with water.  Add & heat until thickened. Serve with steamed rice.  Serves 5-6.  
+
+Dutch Oven Beef Stew - Barbara Olsen
+Brown stew meat in small amount of oil.
+Add chopped onion and sauté.  Add 1 qt. water and simmer until meat is tender.  Add potatoes, carrots, celery and cook until vegetables are tender. (More water may be added, as needed.)  Beef bouillon can be added for flavor.  Thicken with a 3/4 cup water and 1/4 cup flour mixed.
+
+Minestrone - Barbara Olsen
+Brown in Dutch oven and drain:
+2 lb. hamburger
+1 lg. onion, chopped (1 cup)
+1 clove garlic, minced
+Stir in remaining ingredients:
+1 can (28 oz.) tomatoes, undrained
+1 can (12 oz.) whole corn, undrained
+1 can (15 oz.) kidney beans, undrained
+2 stalks celery, sliced (1 cup)
+2 cups shredded cabbage
+2 small zucchini, sliced
+1cup uncooked macaroni or broken spaghetti.  Heat to boiling, reduce heat and simmer covered, stirring occasionally until vegetable and macaroni are tender, about 30 minutes. Serve with Parmesan cheese.
+
+Enchilada Pie - Gina Olsen
+1 lb. hamburger, browned
+1 onion, chopped
+1 lrg. can enchilada sauce
+sliced olives
+flour tortillas
+grated cheese
+In a Dutch oven, layer flour tortillas, sauce mixture, grated cheese. Repeat.  Cook in 350° oven for 20-25 minutes.
+
+
+
+
+
+
+
+
+Four Bean Casserole – Barbara Olsen 
+1 lb. ground beef sautéed with
+1 med onion, chopped
+Add:
+1 lg. can pork and beans
+2 can Ellis white beans
+1 can kidney beans
+1 sm. can lima beans
+1/4 cup brown sugar
+1 tsp. salt
+Pepper to taste
+½ tsp. dry mustard
+½ tsp. prepared mustard
+½ cup catsup or chili sauce
+½ Tbsp. apple cider vinegar
+Put in large casserole or Dutch oven and bake at 375° for 45 minutes, covered.
+
+Barbecued Ribs & Sauce - Laurie Fryatt - We had these ribs at a ward camp out.  They are yummy.
+24 oz. catsup
+1/4 cup white vinegar
+1 Tbsp. prepared mustard
+1/4 cup Worcestershire Sauce
+½ cup brown sugar
+Combine ingredients; mix well.  Pour over 3- 5 pounds of browned pork spare ribs. Simmer in a Dutch Oven for approximately two hours. Can also be simmered on the stove for two hours or baked at 350° for one hour.  
+
+Pancakes in a Bag - Rachel Mitchell – A perfect way to make pancakes when you are camping.
+2 cup flour
+2 tsp baking powder
+1 tsp soda
+½ tsp salt
+Mix dry ingredients and put in a sandwich baggie to store.  When ready to make pancakes add:
+2 cup buttermilk
+2 eggs
+Will need a little more regular milk to thin.
+
+
+Hobo Dinners - Bonnie Chantry - Also great cooked in foil over the hot coals. We serve it topped with catsup, salsa, or butter.
+1 lb. lean ground beef or sausage links 
+½ large onion, cut into 4 slices 
+4 medium carrots, peeled and sliced 
+4 medium potatoes, peeled and sliced into 1/4-inch slices 
+1 can (12 oz.) corn 
+Salt 
+Pepper
+Heat oven to 375°. Tear off four 18x15-inch pieces heavy-duty aluminum foil. Form the ground beef into four equal patties and place one in center of each foil rectangle. Place an onion slice on each patty. Divide other vegetables equally between the four dinners. Sprinkle with salt and pepper, if desired. Double fold foil over top and from ends to seal. If you wish to drain off some of the fat, poke 1 or 2 holes in the bottom of each dinner. Place on large ungreased jelly roll pan. Bake for 1 hour and 15 minutes. Makes 4 dinners.
+
+Dump Cake - Grandma Grace - This works well in the Dutch oven also. 
+Put in a 9x13 cake pan OR Dutch oven
+1-20 oz. can crushed pineapple.
+Spoon on top:
+1 large can pie filling 
+Crumble on top
+1 yellow cake mix (dry)
+Sprinkle 1 1/2 c. walnuts on top.
+Cut up 1 1/2 cubes of butter into slices and drop on evenly. Bake 350° for 1 hour. 
+Top with whipped topping.
+
+Dutch Oven Cherry Dessert - Joe Olsen
+1 cake mix - white, chocolate or cherry
+½ -3/4 can of 7-up
+1 can of cherry pie filling
+Line Dutch oven with foil.  Pour cherry filling in oven.  Sprinkle cake mix over pie filling.  Pour 7-Up over cake mix.  Do not stir.  Cook 45 minutes-1 hour.  Check often.  8 briquettes on bottom, 14 on top.  7-Up and pie filling should bubble up though cake mix and mix together.
+Pineapple Upside Down Cake - Barbara Olsen
+½ cup brown sugar
+1 can sliced pineapple
+1/4 cup butter
+1 yellow cake mix
+maraschino cherries
+3 eggs
+Put butter and brown sugar in a 14 inch Dutch oven and melt while stirring over warm fire.  Place the pineapple slices in the butter and sugar mixture and place halved maraschino cherries in each pineapple ring center.  In a separate container prepare the cake mix according to the instructions on the package.  Pour cake batter over pineapple and place lid on the Dutch oven.  Place on medium hot bed of coals, making sure the oven is kept level; add briquettes to the top of oven.  Cook approximately 15 minutes.  Remove oven from coals, continue to cook with coals on top only approximately 15-20 minutes or until golden brown.  Make sure your cake is completely baked by inserting a toothpick into cake.  If the toothpick comes out clean, the cake is done.  Cool for about 10 minutes, remove from the oven and serve.  A helpful hint for removing cake from oven is to use a round piece of cardboard cut to fit inside your Dutch oven, covered with aluminum foil.  Set the covered cardboard on the cake and invert the Dutch oven.  20 briquettes on top and 8 briquettes on the bottom.
+
+Variations on S’mores-Joy of Camping
+
+Smothered S’mores
+bag of semi-sweet chocolate morsals
+bag of marshmallows
+sprinkles of all kinds
+Melt chocolate in aluminum pie plate or disposable bread tin. Place marshmallow on skewer and roll in melted chocolate. Then roll in your favorite topping. Topping ideas: crushed graham crackers, nuts, or colorful jimmies, shredded coconut, etc.
+
+
+
+Melty S’mores
+Hershey’s chocolate bar
+marshmallows
+graham crackers
+aluminum foil
+Sandwich marshmallow and chocolate between 2 graham crackers. Wrap in tinfoil. Place on top of fire and let it melt together nicely.
+
+Cookie S’mores
+1 package Keebler Fudge Stripes cookies 
+OR chocolate covered graham crackers
+1 package large marshmallows
+Roast your marshmallow over the campfire on your fire-stick. When marshmallow is done, place it between two cookies and gently pull the marshmallow off the stick. The cookies seem to melt in your mouth. 
+
+Peanut Butter S’mores
+miniature Reese’s peanut butter cups
+Toast the marshmallow. Place one miniature Reese’s peanut butter cup on a graham cracker. Top with the toasted marshmallow and a second graham cracker. 
+Variation: Andes Mints for mint lovers.
+
+Mexican S’mores
+peanut butter
+chocolate chips
+miniature marshmallows
+flour tortilla (small)
+Spread peanut butter on tortilla, sprinkle with chocolate chips and marshmallows, then roll up the tortilla shell. Wrap in foil and twist foil ends. Cook on grill grate over your fire for about 5 minutes. Unwrap and indulge.
+
+Banana Boat S’mores
+banana
+mini marshmallows
+chocolate chips
+Leave banana in peel. Slice it horizontally, NOT in half, and NOT fully through, only through top of banana and peel. Open it up like a hot dog bun and put in chocolate and marshmallows. Wrap in tinfoil and heat over fire.
+
+
+
+
+Gluten Free Flour Mixes:
+
+Gluten-Free (GF) Mix - Bette Hagman
+3 cups rice flour 
+1 cup potato starch (NOT potato flour)  
+½ cup tapioca starch 
+Mix well. 
+
+Featherlight Mix - Bette Hagman 
+1 cup Rice flour  
+1 cup cornstarch 
+1 cup tapioca starch  
+1 Tbsp. potato flour (NOT potato starch)  
+Mix well. 
+
+Sorghum Flour Mix - Bette Hagman
+7 cups sorghum flour
+1 (16oz.) package of corn starch
+Mix well
+
+French Bread/Pizza Mix – Bette Hagman
+3 ½ cups white rice flour 
+2 ½ cups tapioca flour 
+2 Tbsp. Xanthan gum 
+1 ½ Tbsp. unflavored gelatin 
+2 Tbsp. Egg Replacer 
+¼ cup white sugar 
+2 ½ tsp. garlic salt 
+Mix together. Store on the counter-top.
+
+True Yeast Gluten Free Bread – Barbara Olsen - adapted from Bette Hagman
+Mix well
+3 cups GF flour mix (Combination of GF and Sorghum Mixes) 
+1/4 cup sugar 
+3½ tsp. Xanthan gum  
+2/3 cup dry milk powder  
+1 ½ tsp. Salt 
+1 tsp. Dough Enhancer 
+OR 1 tsp. Rice vinegar (add with liquids)
+1½ Tbsp. yeast  
+Mix and add to dry ingredients: 
+3 eggs, beaten 
+1/4 cup oil or shortening, melted 
+1 3/4 c. warm water 
+Mixture should feel slightly warm. If using a mixture, beat on low until mixed and then of high speed for 2-3 minutes. If using a bread maker add the ingredients as instructed for your machine and just do the first kneading cycle.
+This dough has the consistency of muffin batter and needs to be spooned into pan 
+Turn oven to 350°. Spray pans well with Pam. Spoon into pans (or English Muffin rings), and let rise on oven as it heats (about 20 minutes). Bake loaf pan for about 50 minutes. Bake muffin rings for 20 minutes.
+To make a delicious pizza crust spray two 13 x 18 inch jelly roll pans. Place half the dough on each pan. Spray the top of the dough with Pam and press the dough flat in the pan. Let raise 10 - 20 minutes. Bake about 10 minutes (until golden brown). Remove from oven and cover with favorite toppings and bake about 15 minutes more. For individual pizzas bake the dough in pie tins or 8 x 8 pans.
+
+Gluten Free Sandwich Bread – Amy Badger - Blanched almond flour has become one of my family’s favorite for baking. Don’t make the mistake of using UNblanched almond flour.  All the skins from the almonds change the taste & texture of all the recipes.
+1 ½ cups blanched almond flour
+¾ cup arrowroot powder
+¼ cup flax seed meal
+½ tsp. celtic sea salt
+½ tsp. baking soda
+4 eggs
+1 tsp. agave nectar
+1 tsp. apple cider vinegar
+In a medium bowl, combine almond flour, arrowroot, flax meal, salt and baking soda.
+In a larger bowl, blend eggs 3-5 minutes until frothy. Stir agave and vinegar into eggs.
+Mix dry ingredients into wet.
+Pour batter into a well greased 7.5" x 3.5" loaf pan. Bake at 350º for 30-35 minutes, until a toothpick inserted into center of loaf comes out clean. Cool and serve.
+
+
+
+
+
+
+Gluten-Free Sandwich Bread Recipe – Laurie Fryatt - This gluten-free sandwich bread recipe makes a medium sized loaf that has both good taste and texture. It slices beautifully for sandwiches and makes excellent toast. Try making grilled cheese sandwiches, French Toast or egg salad sandwiches with this wholesome bread. I used a Pullman loaf pan to make this bread- a pan with a lid on it. If you don't own a Pullman loaf pan, use a heavy, lidded ovenproof casserole baking dish. 
+3 cups all purpose gluten-free flour mix 
+1/3 cup dry milk powder or dairy free substitute  
+2 tsp. guar gum 
+1 1/4 tsp. xanthan gum 
+1 1/2 tsp. unflavored gelatin 
+OR agar powder (not flakes) 
+3 Tbsp. sugar 
+1 tsp. salt 
+1 1/2 tsp. egg substitute 
+1 pkg. (2 1/2 tsp.) active dry Baker's Yeast (not QuickRise or Bread Machine yeast) 
+2 eggs, room temperature 
+5 Tbsp. butter cut in small pieces, room temp. 
+1 1/2 cups water or plain club soda, room temp.
+1 Tbsp. honey  
+1 tsp. apple cider vinegar
+Lightly grease a 9 x 5 inch bread loaf pan and dust lightly with sweet rice flour. Whisk the dry ingredients in a mixing bowl until thoroughly blended. In a large bowl or the bowl of your stand mixer, blend eggs, butter, vinegar and honey. Add 1 cup of water to egg mixture. Using your mixer (either hand held or stand mixer) start to slowly add dry ingredients and continue to mix. Add remaining water slowly and the rest of the dry ingredients until you have a batter the consistency of thick cake batter. Mix this batter at high speed for 4 to 5 minutes. Dip a rubber or silicone spatula in water and scrape the bread batter into prepared pan. Smooth out the top. Cover and let rise in a warm draft free location for 1 hour. Preheat oven to 375°. Bake for 55-60 minutes or until done. Tent with foil after baking for 10 to 15 minutes to prevent over browning of crust. 
+Remove immediately from pan and cool completely on a wire rack before cutting.
+
+GF Bread Sticks – Barbara Olsen 
+Dry ingredients: 
+3 cups French Bread/Pizza mix 
+1/3 cup dry milk powder 
+1 Tbsp. dry yeast  
+Wet ingredients: 
+4 egg whites 
+3 Tbsp. oil 
+1 tsp. vinegar 
+1 ½ cups warm water  
+Mix dry ingredients in a bowl. In a stand mixer, mix the wet ingredients. With the mixer on low, slowly add the dry ingredients. Beat on high 3 ½ minutes. Spoon dough into a pastry bag or a ziplock bag with the corner cut off. Spray a cookie sheet with Pam. Squeeze dough onto the cookie sheet in 4 -5 inch lines. Brush with melted butter and sprinkle with grated parmesan or cheddar cheese. Let rise until double (about 20 minutes over a hot stove). Bake at 400° for 10-15 minutes. (They will be golden brown). Makes about 2 dozen. 
+Note: For delicious croutons: Cut leftover breadsticks into disks (or smaller pieces). Brush with olive oil mixed with garlic salt or your favorite seasonings. (Check the ingredients of store bought croutons for seasoning ideas.) Bake at 250° or 300° until dry (10-15 minutes). Store in the fridge. 
+
+Almond Flour Biscuits – Amy Badger- This recipe is one from Elena Amsterdam and her adventures in Almond flour.  They are gluten free and a favorite in my family. 
+2 1/2 cups blanched almond flour
+1/2 tsp. sea salt
+1/2 tsp. baking soda
+1/4 cup grape seed oil
+1/4 cup agave nectar OR honey
+2 large eggs
+1 tsp. freshly squeezed lemon juice
+Mix together.  Drop by large spoonfuls on baking sheet. Bake at 350 degrees for 11 to 13 minutes.  Watch to see when they are golden brown. Or toothpick inserted in center comes out clean. 
+
+
+Gluten Free Cheese Bread – Barbara Olsen
+3/4 cup milk
+1/2 cup oil
+3 eggs
+3/4 tsp. salt
+3 cups tapioca flour
+1/3 cup Parmesan cheese
+2 cups grated cheddar cheese (I use a blend of Colby Jack and Cheddar or just Colby Jack)
+Mix mine in a bread maker, by hand, or in a Bosch like machine.  Drop by spoonful on a baking sheet and bake at 350 for 12 minutes.
+ (I use a soup spoon size)  Either way they taste the same and are delicious!
+
+Biscuits for Burger Buns – Laurie Fryatt
+1/2 cup rice flour 
+1/2 cup potato starch 
+1/2 cup tapioca starch 
+2 tsp. baking powder 
+2 tsp. sugar 
+1 1/2 tsp. xanthan gum 
+1/2 tsp. salt 
+2 eggs 
+1/3 cup oil 
+1/2 cup milk 
+Sesame seeds
+Preheat your oven to 400°. Thoroughly mix the first seven dry ingredients into a large bowl. Combine the next three wet ingredients into a separate bowl. Pour wet ingredients into dry ingredients. Lightly grease a cookie sheet. Place three rounded tablespoons onto cookie sheet for each bun. Leave a space of about 2 inches between each bun to ensure that each bun has some room to spread while baking. Sprinkle with sesame seeds. Bake for 15 minutes, or until lightly browned.
+
+
+
+
+
+
+
+
+
+
+
+GF Scones or Fry Bread –Barbara Olsen
+4 cups featherlight mix 
+1 Tbsp. xanthan gum 
+2 tsp. unflavored gelatin 
+2 tsp. egg replacer 
+1 tsp. salt 
+¼ cup sugar 
+½ cup dry milk powder 
+1 Tbsp. dry yeast granules 
+1 egg 
+3 egg whites 
+1/3 cup margarine (cut in chunks) 
+1 tsp. rice vinegar  
+3 Tbsp. honey 
+2 cups water  
+Combine dry ingredients in a medium bowl. In the bowl of a stand mixer, whisk egg, whites, margarine pieces, rice vinegar, and honey until blend. Add most of the water. Slowly add dry ingredients to the egg mixture (with mixer on low). Dough should be like cake batter. (Add more water if needed). Beat on high for 3 ½ minutes. Beat in an additional ¼ cup featherlight mix. Dough will still be quite sticky. Covering your hands with featherlight mix, take about ¼ cup of the dough and pat it flat – about ¼ inch thick. Fry in hot oil until brown, turning once.  
+ 
+GF Tortillas- Barbara Olsen -modified from Bette Hagman's Rice Flour Tortillas
+2 cups GF mix
+1 ½ tsp. Xanthan gum 
+2 tsp. sugar 
+1 tsp. salt
+1/2 cup sour cream 
+1/2 cup warm water 
+Mix dry ingredients. Mix the hot water with the sour cream. Add to dry ingredients. Mix for 1 minute. The dough will be slightly sticky - more sticky than playdough, but less sticky than cookie dough. Roll out in between waxed paper or saran wrap. If the dough is too sticky, dust it with some of the GF flour to keep it from sticking. Cook on a hot griddle about 1 minute per side. 
+
+
+
+GF Bread Stuffing – Barbara Olsen –This is a recipe I modified from a Better Homes & Gardens recipe.
+½ cup finely chopped celery 
+¼ cup chopped red onion 
+2 Tbsp. shredded carrots 
+¼ cup margarine or butter 
+½ tsp. poultry seasoning 
+1/8 tsp. pepper 
+3-4 dashes of salt 
+4-6 cups dried bread cubes* 
+½ to ¾ cup chicken broth OR water   
+Sauté celery, onion, and carrot in butter until soft (but not browned). Remove from heat and add poultry seasoning, salt, and pepper. Place bread cubes in a bowl. Add onion mixture. Pour on enough broth to moisten the bread. Bake in a covered casserole dish at 375° for 20 – 30 minutes. (Or use to stuff an 8-10 lb. Turkey).   
+To dry bread: Cut into ½ inch cubes. Place on a cookie sheet and bake at 300° for 10-15 minutes. Let cool.
+
+Banana Bread – Barbara Olsen
+4 cups featherlight mix 
+1 cup GF mix
+2 tsp. xanthan gum 
+2 cups sugar 
+7 tsp. baking powder 
+2 tsp. salt 
+6 Tbsp. oil 
+1 1/2 cups milk 
+2 eggs 
+2 cups mashed bananas 
+2 cups chopped nuts (optional)
+Preheat oven to 350°. Spray 3 regular loaf pans with Pam (or grease and flour using GF mix). Mix dry ingredients. Mix wet ingredients. Mix dry and wet ingredients together. Beat well. Pour into pans. Bake about 50 minutes (until a knife inserted in the middle comes out clean).  
+Note: The mixture of featherlight and GF mixes gives this banana bread the correct texture. You may use 5 cups of featherlight instead, but the bread will be much spongier. 
+
+Ohukaisets (Finnish Pancakes) –Barbara Olsen -The pancakes are very similar to crepes only sweeter. 
+2 1/2 cups milk 
+1/2 cup sugar 
+1/2 tsp. salt 
+1/4 cup oil 
+1 3/4 cups featherlight mix 
+2 eggs  
+Beat ingredients together Let the batter sit in the fridge for 20-30 minutes.  Pour about a 1/4 cup of batter into pan. It will be thin. Fry until slightly brown, flip and cook about 1 minute more.   Top with whip cream and jam- roll and eat. Note: Most of the recipes in this section are from Betsy Thomas and Kristi Kirkland on www.eatingglutenfree.com
+
+Gluten Free Quick Mix– Barbara Olsen
+5 cups Brown Rice Flour
+5 cups White Rice Flour
+1 cup Tapioca Flour
+1 cup Potato Starch Flour
+Mix well then add:
+1/4 cup sugar
+2 cups powdered milk
+1 cup dry buttermilk powder
+3 Tbsp. xanthan gum
+1 Tbsp. salt
+3 Tbsp. baking powder
+2 Tbsp. baking soda
+½ cup Egg Replacer (optional)
+Mix well, and then cut in:
+3 1/4 cups shortening
+Make the consistency of corn meal.
+Store in large airtight container.
+Note: I use part sorghum flour mix in place of some of the rice flour for more nutritional value.
+
+
+
+
+
+
+
+
+
+
+Regular Biscuits – Barbara Olsen
+2 cups GF Quick Mix
+½ cup water or milk or buttermilk
+Add enough liquid to make dough form a ball. You don't have to worry about overworking the dough. Cover the board with mix and pat dough into shape by hand.  Cut into shapes and bake on a greased pan. Bake at 375° for 12-15 min.
+Variations:
+Shortcake: Add 4 Tbsp. sugar to mix, proceed as directed.
+Drop Biscuits: Add more liquid and drop on grease pan.  For variety add herbs or seasoning or cheese to the dough before dropping onto pan.
+
+"Red Lobster" Style Biscuits– Barbara Olsen
+2 cups GF Quick Mix
+1 cup sharp cheddar cheese
+½ tsp. Mixed Herbs
+½ tsp. tarragon
+3/4 cup milk or water
+Follow drop biscuit recipe for mixing.
+After baking, brush with melted garlic butter. Take to Red Lobster Restaurant and enjoy your biscuits along with your friends.
+
+English Scones – Barbara Olsen
+2 cups GF Quick Mix 
+1 Tbsp. sugar
+1 1/4 cups heavy whipping cream
+½ cup raisins and/or nuts
+Mix and knead, gently. Pat into circle on floured board and cut into triangles. Pat top with milk or melted butter and sprinkle with sugar or a cinnamon and sugar mixture. Bake as for regular biscuits recipe.
+
+Pancakes – Barbara Olsen
+For one			For four
+1 cup GF Quick Mix 		2 cups
+½ cup buttermilk or water	1 cup buttermilk 
+1 Egg 				2 eggs	
+Beat egg, add liquid and oil, and then blend in mix. Cook on griddle. Makes extra to use a substitute for bread.
+
+
+
+Waffles – Barbara Olsen
+2 cups GF Quick Mix 
+3 eggs
+3 Tbsp. oil
+1 cup buttermilk OR water OR milk
+Bake 5 to 10 minutes. Makes 4 -6 waffles
+
+Muffins – Barbara Olsen
+Preheat oven to 425°.
+2-1/2 cups GF Quick mix		
+1 cup milk or water
+2 Tbsp. sugar			
+1 egg, beaten
+Butter muffin pans. Place mix in a medium bowl.  Add sugar and mix well.  In a small bowl, combine egg and milk or water.  Add all at once to dry ingredients.  Stir until just blended.  Fill prepared muffin pans 2/3 full.  Bake 15-20 minutes, until golden blown.  Serve hot with butter and honey, if desired.  Makes 12 large muffins.
+Variations:  Raisin, Date or nut muffins: Add ½ cup finely chopped raisins, dates, or nut to dry ingredients. Before baking sprinkle generously with mixture of cinnamon and sugar.
+Blueberry muffins: Add 1 cup of well drained blueberries to dry ingredients before adding liquid ingredients.
+Cheese muffins: Add ½ to 3/4 cup grated cheese to dry ingredients
+Brown Sugar Muffins: Substitute brown sugar for granulated sugar.
+Bacon Bits Muffins: Add 4 strips of cooked, crumbled bacon to dry ingredients.
+Apple Muffins: Add 1 cup grated raw apple to dry ingredients. Increase baking time to
+20-25 min.
+Orange Muffins: Add 1 Tbsp. fresh orange peel OR 1-1/2 tsp. dehydrated orange peel to dry ingredients.
+Cranberry Muffins: Add 2/3 cup chopped cranberries to dry ingredients.
+Other muffin options:
+Add ½ cup GF cornflakes, and/or coconut. For a darker muffin, use molasses instead of sugar and add Pacific Nutty Rice Nuggets. 	
+
+
+
+Oven Puff Pancakes – Barbara Olsen
+Preheat oven to 450°
+4 Tbsp. butter or margarine
+Divide the butter between two 9 inch pie plates. 
+Put in preheated oven to melt butter and heat pans. In a blender, mix for 15 - 20 seconds:
+2/3 cup GF quick mix
+4 eggs
+2/3 cup milk
+Pour into pie plates. Bake for 18 minutes, until puffy and browned. Do not open oven while cooking. Serve with syrup or fruit topping.
+
+Dumplings – Barbara Olsen
+2 cups GF Quick Mix 
+2/3 cup water or milk
+Drop by spoonfuls into boiling soup or stew. Cook 10 minutes uncovered, then cover and cook another10 minutes Makes 8.
+
+Breakfast Ring – Barbara Olsen
+Heat oven to 400°.
+1/3 cup butter, melted		
+3 Tbsp. brown sugar
+12 maraschino cherries		
+1/4 cup chopped nuts
+Make dough as for biscuits and shape into 12 balls.  Melt butter and pour about 3 Tbsp.  into a 9 " mold.  Sprinkle with brown sugar and maraschino cherries and nuts.  Roll balls in rest of melted butter, then in mixture of:
+½ cup sugar
+1 tsp. cinnamon		
+3 Tbsp. chopped nuts
+Place in mold.  Bake 25 to 30 minutes.  Take from pan while still hot.
+
+Gluten Free Breakfast Bars –Amy Badger – My sister-in-law discovered almond flour recipes when her daughter became diabetic.  By taking traditional grains out of their diet she was able to control her daughter’s insulin levels very successfully.
+1 ¼ cups blanched almond flour
+¼ tsp. celtic sea salt
+¼ tsp. baking soda
+¼ cup grape seed oil
+¼ cup agave nectar
+1 tsp. vanilla extract
+½ cup shredded coconut
+½ cup pumpkin seeds
+½ cup sunflower seeds
+¼ cup almond slivers
+¼ cup raisins
+In a small bowl, combine almond flour, salt and baking soda. In a large bowl, combine grape seed oil, agave and vanilla. Stir dry ingredients into wet. Mix in coconut, pumpkin seeds, sunflower seeds, almond slivers and raisins. Grease an 8x8” baking dish with grape seed oil. Press the dough into the baking dish, wetting your hands with water to help pat the dough down evenly. Bake at 350° for 20 minutes.
+
+Impossible Custard Pie– Barbara Olsen
+Preheat oven to 400°.
+½ cup sugar				
+3 Tbsp. butter or margarine, melted
+4 eggs	
+2 cups milk				
+½ tsp. cinnamon
+1/4 tsp. nutmeg
+1 tsp. vanilla			
+½ cup GF Quick Mix 
+Butter a 9” pie plate.  In blender combine sugar, eggs, milk, & vanilla. Melted butter, cinnamon, & nutmeg. Blend until smooth.  Add mix and blend 10 seconds.  Pour into prepared pie plate.  Bake 25 to 30 minutes, until golden.  Cool on a wire rack.  Serve warm.
+
+Impossible Pumpkin Pie – Barbara Olsen
+1/4 cup brown sugar
+½ cup GF Quick Mix 
+1 Tbsp. margarine
+1 (13oz.) can evaporated milk
+4 egg whites
+1 (16oz.) can pumpkin
+½ tsp. salt
+2 ½ tsp. pumpkin pie spice
+1 tsp. vanilla
+Heat oven to 350° and spray 9" pie plate with Pam. Beat all ingredients until smooth. Pour into pie plate. Bake until knife comes out clean, about 50 - 55 minutes.
+Note: This will freeze well before you bake it. Just beat all ingredients together and pour into a freezer bag. When thawed bake as above.
+Impossible Bacon Pie– Barbara Olsen
+Heat oven to 400°. 
+12 slices bacon, crisply fried and crumbled
+1 cup shredded cheese (any kind you like)
+1/3 cup chopped onion
+Grease 10” quiche dish or pie plate (10 x 1 ½).
+Sprinkle bacon, cheese and onion in plate. 
+4 eggs
+1/4 tsp. salt
+1/8 tsp. pepper
+2 cups milk
+½ cup GF Quick Mix 
+Beat remaining ingredients until smooth in a blender (15 second or on high for 1 min. with hand beater.)  Pour into plate.  Bake until knife inserted between center and edge comes out clean.  35 to 40 minutes.  Cool 5 minutes.         Makes 6 servings
+
+Impossible Cheeseburger Pie – Barbara Olsen
+1 lb. ground beef			
+1 cup chopped onion
+½ tsp. salt
+1 cup shredded Cheddar cheese
+1 cup milk
+½ cup GF Quick Mix 			
+2 eggs
+Preheat oven to 400°. Cook ground beef and onion until beef is brown; Stir in salt.  Spread into pie plate; sprinkle with cheese.  Stir remaining ingredients with fork, until blended.  Pour into pie plate.  Bake 25 min. 
+
+Weiner Roll-ups – Barbara Olsen
+1 cup GF Quick Mix 
+4 Tbsp water or milk
+Make dough like basic recipe. Roll into 12 inch round and cut into 4 triangles. Roll around weiner, starting at the large side of the triangle, press edges together. Place on greased cookie sheet and bake at 375° for 12 -15 minutes.  
+Note: If you want more than 4 increase the recipe, but divide into one ball for each cup of mix so they will fit weiners. They warm up well in toaster oven.
+
+
+
+Banana Nut Bread – Barbara Olsen
+2 cups GF Quick mix
+1 egg 
+1 tsp. vanilla
+2 very ripe bananas, mashed
+½ cup nuts, if desired
+Small amount of milk, if needed, to make it the right consistency.  Bake in small loaf pan for 25-30 minutes at 350°.
+
+"Almost Hamburger Helper" Mix – Barbara Olsen
+2 cups nonfat dry milk	
+1 cup corn starch 
+1/4 cup beef bouillon powder 
+2 Tbsp. onion flakes 
+1 tsp. dried thyme 
+1 tsp. black pepper 
+2 Tbsp. dried parsley 
+1 Tbsp. garlic powder  
+1 tsp. dried basil 
+Mix the ingredients together and store in
+an airtight jar.  
+
+Chili Mac – Barbara Olsen
+1 lb. ground beef, browned and drained 
+1 cup water 
+½ cup GF macaroni noodles (uncooked) 
+2 cans chopped tomatoes 
+1 Tbsp. chili powder 
+1/2 cup Hamburger Helper mix 
+Combine all and simmer 20 minutes or
+ until macaroni is cooked.
+
+Beef and Potato Supper – Barbara Olsen
+1 lb. ground beef, browned and drained
+3/4 cup water 
+6 potatoes, peeled and thinly sliced 
+1 cup frozen mixed veggies 
+½ cup Hamburger Helper mix 
+Combine all and simmer, covered, until
+potatoes are tender, about 30 minutes, stirring occasionally. Remove cover and cook until excess water is evaporated. 
+
+
+
+
+
+Quick Lasagna – Barbara Olsen
+1 lb. ground beef, browned and drained 
+½ cup Hamburger Helper mix 
+1 onion, chopped 
+2 cups water 
+16 oz. tomato sauce 
+3 cups GF lasagna noodles, uncooked, broken in bits OR corn tortillas 
+1/4 cup Parmesan cheese 
+2 cups mozzarella cheese, shredded  
+Combine all except mozzarella in large 
+skillet. Bring to a boil, let simmer for 
+15 minutes or until noodles are cooked. (If using corn tortilla, add after 10 minutes and simmer slightly.) Top with mozzarella. Turn off heat and let cheese melt.
+
+Hamburger Stroganoff – Barbara Olsen
+Brown:
+1 lb Hamburger 
+1 med onion, chopped
+1 chopped green pepper (optional)
+minced garlic or garlic powder to taste
+Salt and pepper
+Add:
+Mushroom soup recipe 
+OR Hamburger Helper Mix and simmer until flavors well blended. (I like to chop the mushrooms into small pieces.)
+
+Beef Pot Pie – Barbara Olsen
+This recipe is just a general idea. You can use stew meat, hamburger or left-over Sunday roast, cubed.  If using roast cut potato into bite size chucks, chopped onion, diced carrots and a little celery chopped up. Boil until vegetables are crispy tender. Add cut up meat. If you have left over gravy use it or use Hamburger Helper Mix to make gravy and thicken it.  If using stew meat or hamburger, brown it in a little oil, add water to cover and onion. Cook until meat is tender. Add cut up potatoes, carrots and celery. And some Hamburger Helper mix.
+Top with GF biscuit dough rolled thin and cut slits in the top to let steam out.  Bake at 400° for 20 - 25 minutes.  (These freeze very well. If frozen bake for 30 minutes or until filling is bubbly.)
+
+Creamed Soup Base – Barbara Olsen - modified from Bette Hagman's recipe
+1 cup dry milk powder
+1 cup white rice flour OR 3/4 cup corn starch
+2 Tbsp. dehydrated minced onions
+½ tsp. pepper
+½ tsp. salt
+3 Tbsp. GF Chicken or Vegetable Bouillon or Soup Base
+Combine all ingredients and mix well. Store in an airtight container. This is the equivalent of 8 or 9 cans of soup. Note: Western Family brand cream soups are GF.
+
+Cream of Chicken Soup and basic recipe:
+ In a small sauce pan, blend 4 Tbsp. of soup base with 1/4 cup cold water. Add 1 cup hot water (or chicken stock) and cook over medium heat, stirring until soup thickens. Add cooked chopped chicken, if desired.
+
+Cream of Mushroom Soup – Barbara Olsen
+Follow instructions for basic recipe using the liquid from one 4 oz can of mushrooms bits and pieces as part of the water. After soup thickens, add the mushrooms.
+					
+Cream of Tomato Soup – Barbara Olsen
+Follow directions for basic recipe, using one 5.5 oz can of V8 juice as part of the liquid
+
+Cheese Soup or Sauce – Barbara Olsen
+Follow basic directions using 1/4 cup of base. Add 1/4 cup extra water. Stir in ½ to 2/3 cup grated Cheddar Cheese before removing from the heat.
+
+Tasty Cream Sauce – Barbara Olsen
+Melt 1 Tbsp. butter in a small pan and add 1 tsp. chopped chives or 2 thinly sliced green onions before putting in the soup base. Add 
+1¼ cups hot water and cook as basic soup.
+
+To use in a casserole:
+If your casserole calls for canned soup and is to be baked more than 1 hour (like scalloped potatoes). Just stir the creamed soup base with the ingredients and pour on 1¼ to 1½ cups hot water.
+Alfredo Sauce – Barbara Olsen
+½ cup soup base mix 
+2½ cup milk
+1/4 cup grated Parmesan cheese
+Blend the mix in ½ cup of the milk until dissolves and then add the rest of the milk and cook over medium heat until it thicken. Add cheeses and stir well.
+For variety add either:
+1 tsp. Italian seasoning
+OR 1½ cups chopped chicken
+Serve over bean thread noodles
+Serve over G F Noodles.
+
+Shepherd’s Pie – Barbara Olsen
+Brown:			
+1 lb. Hamburger
+1 med. onion
+Place in 8 x 8 baking pan.  Add:
+1 can green beans, drained
+Cover with:
+1 recipe cream of tomato soup, seasoned to taste
+Top with: 
+3 cups of mashed potatoes (fresh or flaked)
+& lots of grated cheese. Bake 350° for 30 min.
+
+Chicken Enchilada’s – Barbara Olsen
+4 chicken breasts cooked and shredded
+1 cup sour cream
+1 recipe cream of chicken soup (from mix)
+1 small can mushrooms pieces
+1 cup Monterey or mild cheese
+8-9 soft corn tortilla	
+Mix chicken, sour cream, soup and mushrooms. Fill tortillas. Roll and place in baking dish. Bake at 350° until heated through about 25-30 minutes. Top with grated cheese and return to oven to melt cheese.
+Easier version: Put a small amount of chicken mixture in bottom of pan. Layer with Tortillas, chicken mixture, cheese, repeat layers and top with more cheese. Bake as normal.
+
+Chicken Pot Pie – Barbara Olsen
+Cut up boneless skinless chicken and brown or use already cooked chicken. Cut potato into bite size chucks, chopped onion, diced carrots and a little celery chopped up. Boil until vegetables are crispy tender. Add cream of GF chicken soup recipe.  Top with GF biscuit dough rolled thin and cut slits in the top to let steam out.  Bake at 400° for 20 - 25 minutes.  
+(These freeze very well. If frozen bake for 30 minutes or until filling is bubbly.)
+
+White Sauce – Barbara Olsen
+Medium Sauce 	Thin Sauce
+3 Tbsp. butter		2 Tbsp. butter 
+4 Tbsp. F. Lite mix 	2 Tbsp. F. Lite mix
+1/8 tsp. salt		1/8 tsp. salt
+dash pepper		dash pepper
+1 cup milk		1 cup milk
+Melt butter over medium heat. Stir in feather light mix, salt, and pepper. Let this mixture brown slightly (stirring regularly). Add milk. Stir with a whisk (to eliminate lumps) until sauce is thickened and boiling. Remove from heat. Note: 1 cup grated cheddar cheese may be added to this sauce, after it thickens, if you like. (Good for broccoli and baked potatoes)
+	
+Clam Chowder – Barbara Olsen
+3 to 4 cups diced potatoes
+1 lg. onion diced
+ 4-5 celery stalks, finely chopped
+Add water to cover and juice from
+3 cans minced or chopped clams
+Cook until vegetables are tender and 
+Add:
+1 quart of half and half 
+3/4 cup butter
+½ tsp. sugar
+1 tsp. salt
+Pepper to taste
+Add enough milk to make enough for your family.  Thicken with ½ - 3/4 cup Ultra Gel or use the medium white sauce recipe. Add clams.
+
+Creamed Peas & Potatoes – Barbara Olsen
+5 to 8 medium sized red potatoes
+1 to 2 cups frozen peas
+Wash potatoes. Cut into 1 inch pieces. Cover potatoes with water in a saucepan. Bring water to a boil. Boil for 8 minutes. Add frozen peas. Continue boiling for another 8 minutes. Remove from heat. Drain water. Top with one recipe of GF White Sauce. (Medium or Thick)
+Gluten Free Pasta – Barbara Olsen
+1/3 cup tapioca flour
+2 Tbsp. potato starch
+1/3 cup cornstarch
+½ tsp. salt
+1 Tbsp. xanthan gum
+2 large eggs
+1 Tbsp. oil
+Combine first 5 ingredients. Beat eggs lightly and add oil. Pour eggs into flour mixture and stir. This will feel much like pastry dough.
+Work together into a firm ball. Knead a minute or two. Place ball of dough on a bread board dusted with cornstarch and roll as thin as possible. (One pasta book suggests that you should be able to see the board through the dough.) The dough is tough and, although, almost transparent, will still handle well. Slice noodles into very thin strips or what ever size you prefer. The pasta is now ready to cook, or to freeze uncooked for later use.
+To cook:
+Put pasta into boiling salted water to which 1 Tbsp oil has been added and boil for 10 - 20 minutes, depending on the thickness of the noodles. Or cook in your favorite chicken broth.
+
+One Bowl Macaroons - Laurie Fryatt
+2 2/3 cups coconut
+2/3 cup sweetened condensed milk
+1 tsp. vanilla
+Heat oven to 350°. Mix coconut, milk, and vanilla in large bowl.  Drop by teaspoonfuls, about 1 inch apart, into well-greased cookie sheets, press down ends of coconut with back of spoon. Bake 10 to 12 minutes or until golden brown.  Immediately remove form cookie sheets. Cool on wire racks.
+
+GF Coconut Macaroons –Amy Badger –These cookies are delicious & fat free.
+6 egg whites
+¼ tsp. celtic sea salt
+½ cup agave nectar
+1 Tbsp. vanilla extract
+3 cups shredded coconut
+In a mixing bowl whisk egg whites and salt until stiff. Fold in agave, vanilla and coconut.
+Drop batter onto a parchment lined baking sheet, one rounded tablespoonful at a time.
+Pinch each macaroon at the top (like a kiss)
+Bake at 350° for 10-15 minutes, until lightly browned.
+
+Chocolate Peanut Butter Bars - Laurie Fryatt - Peanut and chocolate... a great combination.
+1/2 cup butter 
+1/2 cup packed brown sugar 
+2 1/2 cups confectioners' sugar 
+2 cups peanut butter 
+1 teaspoon vanilla extract 
+2 cups semisweet chocolate chips 
+Melt butter over low heat. Add sugars, peanut butter and vanilla and mix well. Press into a 9 x 13 inch pan. Melt chocolate chips and spread over the top. Cool and serve.
+Note: Instead of using it in a pan I make peanut butter balls and dip in the chocolate. It's easier to eat that way.
+
+Gluten Free Peanut Butter Cookies –Emily Hammerstad
+2 egg whites
+1/8 tsp. cream of tartar
+2/3 cup white sugar
+1/2 cup creamy peanut butter
+Beat egg whites and cream of tarter until soft peaks form. Gradually add sugar, beating constantly until stiff. Fold in peanut butter until just mixed. Drop by teaspoon onto greased cookie sheet. Bake at 300° about 20 minutes until lightly browned. Remove from cookie sheet at once and cook completely on racks.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Gluten Free Basic Cookie –Barbara Olsen
+Mix together:
+8 cups GF flour Mix
+2 Tbsp. xanthan or guar gum
+4 tsp. salt
+2 ½ cups granulated sugar
+1 ½ tsp. baking soda OR baking powder
+2-6oz. pkgs. instant vanilla pudding mix
+2 cups brown sugar, firmly packed	
+3 cups vegetable shortening
+In a large bowl, combine dry ingredients until well blended.  With a pastry blender, cut in shortening until evenly distributed.  Put in a large airtight container.  Label.  Store in a cool, dry place.  Makes about 16 cups of COOKIE MIX. Use within 10 to 12 weeks.
+
+Variations:
+Snickerdoodles –Barbara Olsen
+Preheat oven to 400°
+2 ½ cups cookie mix
+1 egg
+1/4 tsp. baking soda
+2 Tbsp. sugar
+1 tsp. cream of tartar
+1 tsp. cinnamon
+In medium bowl, combine cookie mix, baking soda, cream of tartar and egg.  Mix well.  Combine sugar and cinnamon in a small dish.  Shape dough into 1 ½ in balls.  Roll in sugar-cinnamon mixture and place 2 inches apart on ungreased baking sheets.  Flatten balls slightly.  Bake 8 to 10 minutes, until lightly browned with cracked tops.  Makes 24 cookies.
+
+Peanut Butter Cookies –Barbara Olsen
+Preheat oven to 375°
+3 cups cookie mix
+2 eggs
+1/4 cup brown sugar, firmly packed	
+½ cup chunky style peanut butter
+1 tsp. vanilla
+Lightly greased baking sheets.  Combine all ingredients in a medium bowl.  Blend well.  Shape into 1 inch balls.  Place on prepared baking sheets and flatten with fork tines.  Bake 10 to 12 minutes, until edges are browned.  Makes 30 to 36 cookies.
+
+Chocolate Chip Cookies –Barbara Olsen
+Preheat oven to 375°.
+3 cups cookie mix
+½ cup nuts or coconut
+3 Tbsp. milk
+1 tsp. vanilla
+1 egg
+1 cup chocolate chips or sugar coated Chocolate candies
+Grease baking sheet.  In a large bowl, combine 
+cookie mix, milk, vanilla, and egg.  Blend will.  Stir in nuts or coconut and chocolate chips.  Drop by teaspoonfuls onto prepared baking sheet.  Bake 10 to 15 minutes, until golden brown. Makes about 24 cookies.
+
+‘Mock’ Macadamia Nut Cookies 
+Use white chocolate chips and chopped nuts to above recipe.
+
+Pumpkin OR Applesauce Cookies –Barbara Olsen
+2 cups cookie mix
+½ tsp. cinnamon OR pumpkin pie spice
+1 egg
+½ tsp. vanilla
+1 cup applesauce OR pumpkin
+Mix well and add:
+Nuts, chocolate chips, or raisins as desires
+Bake at 350° for 12 - 15 minutes.
+
+Spice Drop Cookies –Barbara Olsen
+2 cups cookie mix
+½ tsp. cinnamon
+1/4 tsp. nutmeg
+1/4 tsp. allspice
+1/4 tsp. cloves
+1 egg
+3 Tbsp. milk
+Bake at 350° for 12 - 15 minutes
+
+“Sugar” Cookies –Barbara Olsen
+2 ½ cups cookie mix
+1 egg
+Roll into small balls and flatten out with the bottom of a glass or dish.
+Bake at 350° for 12 minutes.
+
+
+Gluten Free Chocolate Cake –Barbara Olsen
+1 3/4 cups G F flour (part Feather Lite mix and part regular GF mix)
+1/2 tsp. Xanthan or guar gum
+2 cup sugar
+3/4 cup cocoa
+1 1/2 tsp. baking powder 
+1 1/2 tsp. baking soda
+1 tsp. salt
+2 eggs 
+1 cup sour cream OR yogurt
+1/2 cup oil
+2 tsp. vanilla
+1 cup boiling water (I put the water in the microwave for 1 min 30 sec.)
+Preheat oven to 350°. Grease a 9x 13 pan and dust with GF flour. Combine dry ingredients in a medium bowl. In another larger bowl, beat eggs well. Add sour cream, oil and vanilla to eggs.  Beat in dry ingredients. Mix well. Slowly stir in boiling water. Mix well, scraping sown sides and bottom of the bowl. Pour into prepared pan.  Bake in a 9 x 13 pan for 30 to 35 minutes. Bake 13 x 18 pan for 17 - 20 minutes  
+Note: I usually add chopped pecans to my cake, but I think that nuts make everything taste better!!
+
+Doughnut Cake – Laurie Fryatt - This moist cake tastes just like a cake doughnut.
+1½ cups butter 
+8 oz. cream cheese
+2 ½ cups sugar 
+6 eggs 
+2 tsp. vanilla powder (or gluten free vanilla) 
+3 cups rice flour (I use Gluten Free All-Purpose Baking Flour)
+1 tsp. salt 
+1/4 tsp. fresh grated nutmeg
+Preheat oven to 350°. In a mixer beat the butter and cream cheese on low speed until smooth. Add the sugar and whip for 4 minutes. Add the eggs one at a time, vanilla, salt, and the flour. Beat on low until smooth. Pour into greased 9 x 9 pan (I use a 9x13 or 3 bread pans)and bake for 25-30 minutes until inserted toothpick comes out clean.
+
+
+Gluten Free Basic Cake Mix –Barbara Olsen
+In a large bowl combine well:
+6 cups GF flour *
+3 Tbsp. baking powder
+2 Tbsp. xanthan gum
+4 cups sugar
+2 tsp. salt
+With a pastry blender, cut into flour mix until it resembles cornmeal:
+1 ½ cups shortening
+Store in an airtight container in a cool, dry place. If possible us within one month, although it keeps well for a longer period of time. *(I use 3 cups feather light mix, 2 cups GF flour mix and 1 cup Sorghum flour mix.)
+
+Plain Cake – Barbara Olsen
+2 cups GF Basic Cake mix 
+1 tsp. vanilla
+1 egg, slightly beaten
+½ cup milk
+Dash of nutmeg, optional
+Stir ingredients until well blended. Pour into an 8 inch square pan. Bake at 350° for 25-30 minutes.
+Variations:
+Chocolate Cake: 
+2 cups GF Basic Cake mix 
+1/4 cup cocoa powder
+1 tsp. vanilla
+1 egg, slightly beaten
+3/4 cup ice cold water
+Ice Cream Sandwiches:
+Bake the chocolate cake in an 11 x 15 inches pan. Cool completely. Use ice cream in a rectangular box and cut into the size slices you like. . Then cut the cake to fit the ice cream. Keep frozen until ready to eat. They are yummy!!
+
+Cinnamon Swirl Cake –Barbara Olsen
+Prepare PLAIN CAKE as directed, before baking swirl gently through the batter 1/4 cup of your favorite cinnamon and sugar mixture.
+
+
+
+
+
+Marble Cake –Barbara Olsen
+Mix as for plain cake. Take one third of the batter and put into another bowl and add cocoa or food coloring to fit the occasion.
+Put white batter into the 8 x 8 pan and drop spoonfuls of colored batter over the top and swirl it into the mix with a spatula or knife. Bake as for plain cake.
+
+Pecan-Glazed Cake –Barbara Olsen
+Prepare the PLAIN CAKE recipe and bake as directed.
+Meanwhile in small bowl, mix:
+3 Tbsp. softened butter
+1/4 cup brown sugar
+1 tsp. vanilla
+1 Tbsp. milk.
+Fold in 3/4 cup chopped pecans. Remove cake from oven and spread butter mixture over cake.  Return to oven until bubbly.
+
+Chocolate Chip & Nut Cake –Barbara Olsen
+Prepare PLAIN CAKE recipe and. 
+Sprinkle on top:
+1/3 cup chocolate chips
+1/3 cup chopped nuts
+Bake at 350° for 25-30 minutes. 
+Hershey Heath bits are great, also!! 
+Or cinnamon or butterscotch chips.  
+
+Applesauce Cake–Barbara Olsen
+2 cups cake mix
+½ tsp. cinnamon
+1/4 tsp. nutmeg
+1/4 tsp. cloves
+1/4 tsp. allspice
+2 tsp. cocoa (optional)
+Mix well and add:
+1 egg
+1 cup applesauce
+1/3 cup raisins and/or nuts
+Mix well and bake in a 8 x 8 pan at 350° for 20 minutes. I use this recipe for Fruit cake and add cut up maraschino cherries and gum drops cut into pencil eraser size pieces and bake in little loaf pans for 30 minutes.
+
+
+
+Chocolate Zucchini Cake –Barbara Olsen
+2 cups cake mix
+1/4 tsp. cloves
+1/4 tsp. cinnamon
+1/4 cup cocoa
+1/4 cup sugar
+1 egg, slightly beaten
+1 tsp. vanilla
+1 ½ cups grated zucchini
+6-7 Tbsp. water
+½ cup chopped nuts
+Mix dry ingredients together well and add wet ingredients. Mix in nuts.  
+
+Pumpkin Cake Pie –Barbara Olsen
+Sprinkle in 8 x 8 pan:
+1 cup cake mix
+Sprinkle on cake mix:
+1/4 cup water
+Mix together and pour over cake mix & water:
+1 cup pumpkin
+1/3 cup sugar
+1/4 tsp. salt
+1 egg
+1 ½ tsp. pumpkin pie spice
+ Sprinkle over the top of pumpkin mix
+1 cup cake mix and:
+1/4 cup water
+Bake at 350 for 25 minutes.
+Serve with whipped cream or substitute.
+
+Chocolate Sundae Cake–Barbara Olsen
+Topping:
+1 tsp. vanilla
+1/4 cup white sugar
+½ cup brown sugar
+3 Tbsp. cocoa
+1/4 tsp. salt
+Mix ingredients and set aside for topping.
+Make the chocolate cake.
+Add:  ½ cups walnuts
+Pour batter into 9x9 baking dish, sprinkle with the above topping
+Pour 1 cup boiling water over all.
+Bake 1 hour (careful not to burn edges) at 350°.  Variations:
+1 cup marshmallows for nuts
+1/3 cup peanut butter and ½ cup nuts
+1 pkg. Butterscotch chips for nuts
+Raisin Pudding Cake –Barbara Olsen
+Prepare Plain Cake as directed, but omit the egg. Then add:
+1 tsp. cinnamon
+3/4 cup raisins
+3/4 cup chopped nuts
+Top with sauce of: (pour over back of spoon) 
+1 cups boiling water to dissolve brown sugar
+½ cup brown sugar
+2 Tbsp. butter		
+Bake as instructed for plain cake.
+Variation:
+Caramel Pudding Cake 
+Same as Raisin Pudding Cake, but substitute 
+3/4 cup pared, chopped apples for raisins
+
+Pecan Pumpkin Pie (Gluten Free) –
+Laurie Fryatt
+¾ cup sugar
+½ tsp. salt
+1 tsp. cinnamon 
+½ tsp. ginger
+¼ tsp. clove
+2 large eggs
+1 (15oz) can Pumpkin
+1 (12 fl. oz) evaporated milk
+½ pkg. Gluten Free white/yellow cake mix
+½ cup butter (melted)
+¾ cup pecans (Chopped) 
+Mix together sugar, salt, cinnamon, ginger, & clove.  Beat eggs slightly add sugar mix.  Add pumpkin then evaporated milk.  Put in two pie tins covered with waxed paper spray with non-stick cooking spray.  (I put it in a spring pan lined with waxed paper covered in non-stick spray). Sprinkle cake mix on top of pumpkin mix. Drizzle with the melted butter.  Sprinkle with pecans and press down lightly.  Bake at 350° for 50-60 minutes or until golden brown.  Cool for 2 hours on wire racks.    Carefully run knife around pan to loosen.  Invert pies onto serving plates.  Remove the waxed paper and chill.  Top with whipped cream.
+
+
+
+
+Lemon Bars – Laurie Fryatt – This is a recipe from Diane Anderson that I adapted and enjoy Gluten Free style.
+Crust:   1 cup margarine
+½ cup powdered sugar
+Dash of salt
+2 cups GF All-purpose baking flour
+Combine ingredients and mix well.  Press in 9x13 pan.  Bake 350° for 15 minutes.
+Filling:
+4 eggs
+1/4 cup GF All-purpose baking flour
+2 Tbsp lemon juice
+2 cups sugar
+1 tsp. baking powder
+Combine flour and sugar.  Mix in beaten eggs and lemon juice.  Pour over slightly cooked crust.  Bake at 350° for 25 minutes or until set.  Cool and sprinkle with powdered sugar. 
+
+Flourless Thunder Brownie –
+Emily Hammerstad
+1 cup brown sugar
+4-5 eggs
+½ cup olive oil
+5 Tbsp. cocoa
+1 tsp. vanilla
+1/8 tsp. salt
+¼ cup walnuts (slightly crushed)
+Preheat oven to 350°.  Combine all ingredients.  Pour into a greased pan and bake for 30-45 minutes, depending on elevation.  
+Note: I prefer to only use a glass, or specially made brownie pan when making this recipe.
+
+GF Cream Puffs – Emily Hammerstad
+1 cup water
+½ cup or 1 stick of butter
+1 cup GF flour (I like Bob's Redmill GF all- purpose flour)
+4 eggs
+Over medium heat melt butter in the water inside a pot.  When it is fully melted, turn heat off, add the flour and stir until it forms a ball.  Then add the eggs and stir until it is a consistent matter.  It should look similar to paste.  Use a small ice cream scoop and ball into a slightly greased mini cupcake pan.  Bake for 20 minutes at 350°.
+
+NEW YEAR’S:  
+
+Dennis' New Year's Eve Punch – Dennis Concoby- This is tradition in Dennis' family and he always makes sure we have the ingredients to make this punch for our New Year's Eve celebrations.
+Lime sherbet
+7-Up or Squirt
+Spoon sherbet into a large punch bowl.  
+Pour 7-Up over the top.  
+
+Bubble Bread - Marjean Spencer –
+ The Spencer Family’s New Year's Day Breakfast Tradition
+24 frozen Rhodes rolls
+1 cup brown sugar
+1 pkg. butterscotch pudding, non-instant
+1/4 cup sugar
+1 tsp. cinnamon
+½ cup chopped pecans
+1 cube melted butter or margarine
+Butter bundt pan and place frozen rolls evenly around it.  Mix together brown sugar and pudding and sprinkle over rolls.  Mix together sugar and cinnamon and sprinkle on top.  Next sprinkle on pecans.  Pour melted butter on last.  Cover with plastic wrap and put in frig overnight.  Next morning remove plastic wrap and place in cold oven.  Turn oven on. Set at 375° and bake for 30 minutes.  Let set in pan for 5 minutes.  Turn onto plate.
+
+PRESIDENT’S DAY:
+
+President’s Day Crepes - Clint Fielding – Enjoy this cherry filled dessert as you share George Washington’s famous tale of how he could not tell a lie and told his father he had cut down the cherry tree.
+½ cup flour
+3/4 cup milk
+1 egg
+1 1/2 tsp oil
+1/8 tsp. salt
+1/3 of a can of cherry pie filling
+1/4 cup powdered sugar
+Beat first 5 ingredients with an electric mixer till well blended.  heat a lightly greased small skillet.  Remove skillet from heat and spoon in about 2 Tbsps. batter.  Lift and tilt skillet to spread batter.  Return to heat.  Brown on one side only.  Invert pan over a plate and remove crepe.  Fill crepe with cherries, fold, and sprinkle top with powdered sugar.
+
+VALENTINE’S DAY:
+
+Rice Krispy Kisses – Amy Badger
+1 cup white corn syrup
+1 cup sugar
+1 cup peanut butter
+6 cups rice krispies
+Directions:
+Mix corn syrup and sugar in a sauce pan. Bring to boil.  Remove from heat and add peanut butter.	Mix well.  Fold in rice krispies. While the mixture is still warm mold it into a small funnel sprayed with cooking spray to make a “kiss” shape.  Or just use your hands to make a kiss type shape.  Make small strips of paper with printed sweet sayings on them to personalize your kiss.  Put strip on tin foil square.  Place krispy kiss on square of tin foil and wrap it up and around.
+
+“Pita-Pita-Patter Goes my Heart” Pockets- Amy Badger
+Use the recipes in Breakfast and Bread sections to make sausage patties and 
+Pita bread shaped like hearts.
+Cut the pitas open and add 2 small heart shaped sausages and the following:
+Diced tomato
+Diced cucumber
+Diced sweet onion
+Shredded lettuce
+Sauce:
+1/2 cup grated cucumbers, drain in a mesh colander 
+1 cup plain yogurt
+¼ cup sour cream
+1/2 tsp. garlic powder
+1 tsp. sugar
+Enjoy the loving looks from your loved ones as their hearts go “pita-pita-patter” while they eat their tasty pockets.
+
+Soft Sugar Cookie Mix – Amy Badger
+A fun idea for a Valentine’s Day or Christmas gift. Put the mix is a pretty cloth bag with a ribbon around the top. These cookies have been the easiest to roll and work with of any sugar cookie I have ever made.
+Dry Mix:
+1 cup powder sugar
+2 cups flour
+½ tsp. salt
+½ tsp. cream of tartar
+½ tsp. baking soda
+Directions to include with mix: 
+In a large bowl, cream: 
+½ cup butter
+½ cup margarine
+Add:
+1 egg
+1 tsp. vanilla
+Mix in the dry cookie mix.  Roll out dough on a well-floured surface. (Dough will be soft, but you don’t need to refrigerate it.  IF necessary, add just enough flour to work with it.)  Cut into desired shapes.  Decorate with colored sugar, or wait until the cookies are cooked to add frosting and decorations.  Bake at 350 degrees for 10 to 12 minutes.
+
+Valentine Cookies – Grandma Grace
+1 cup sugar 
+½ cup shortening (can use half margarine)
+2 eggs
+½ cup milk
+3 cups flour
+½ tsp. salt
+2 tsp. baking powder
+½ tsp. nutmeg
+½ tsp. lemon flavoring
+Cream together the sugar and shortening.  Add rest of ingredients.  Roll on floured board and cut.  Bake at 350° until very light tan.  Frost with pink frosting.
+
+
+
+
+
+
+
+Candy Bar Cookies-on-a-Stick-
+Amy Badger – I made a bouquet for Justin one Valentine’s Day out of these cookies.  As I was mixing the dough I put the rubber spatula to close to the mixer and it grabbed it and my hand pulling them both all the way through the mixing blades.  I put my blood, sweat, and tears into that gift, literally.
+*Be sure the dough completely covers the candy bar pieces on the sticks before baking, so none of the melted candy escapes
+1 cup peanut butter
+½ cup butter or margarine
+½ cup shortening
+1½ cups granulated sugar
+½ cup packed brown sugar
+1½ tsp. baking soda
+2 eggs
+1 tsp. vanilla
+2¼ cups all-purpose flour
+40 wooden sticks
+40 miniature Snickers or 20 fun-size candy bars (about 2x1 inch rectangles), halved crosswise.
+Small multicolored candies, chopped nuts, and/or colored sugar (optional) 
+Melted semisweet chocolate pieces or canned frosting (optional) 
+Beat peanut butter, butter or margarine, and shortening in a large mixing bowl with an electric mixer for 30 seconds. Add sugars, and baking soda; beat till combined. Beat in eggs and vanilla till combined. Beat in as much of the flour as you can. Stir in remaining flour with a wooden spoon.  Insert a wooden stick into each candy par piece. Form about 2 tablespoons of dough into a ball around each candy bar piece, making sure the candy is completely covered. If desired, roll ball into decorative candies, nuts, or colored sugar, gently pressing candies or nuts into dough. 
+Place the cookies 2½” apart on an ungreased cookie sheet.  Bake in a 325° oven for 15 to 20 minutes or till set. Cool on cookie sheet for 5 minutes. Transfer to wire racks; cool completely. If desired, drizzle or frost with melted chocolate or canned frosting.
+
+
+Valentine’s Day Dessert – Amy Badger –We love to invite people over for dinner in order to get to know them better.  After 10 years of marriage & 14 homes later, we know how important it is to reach out and make friends in a new area.  This dessert was brought over by some friends in Sierra Vista for dinner.
+8oz. cream cheese, softened
+2 cups mini marshmallows
+½ cup sugar
+1 tsp. vanilla
+1 angel food cake mix
+1 cup whipped cream
+1 can cherry pie filling
+Make angel food cake according to directions on box.  Bake and cool.  In a bowl beat cream cheese, sugar and vanilla until fluffy.  Fold in whipped cream and marshmallows.  Break cake into bit size pieces.  Layer cake, cream mixture & pie filling in a glass bowl. Refrigerate.
+
+ST. PATRICK’S DAY:
+
+Irish Soda Bread- Amy Badger – This recipe is from a good friend named Erin Callahan.  It had to be the perfect recipe for a St. Paddy’s Day meal. 
+2 cups flour
+2 Tbsp. sugar
+1 tsp. baking soda
+2 tsp. baking powder
+1/2 tsp. salt
+3 Tbsp. butter
+1/2 cup raisins (optional)
+1 cup buttermilk
+1 Tbsp. butter, melted
+Flour to dust
+In a large bowl, sift together flour, sugar, baking soda, baking powder, and salt.  Cut in butter until mixture looks like fine crumbs.  Add raisins, if desired.  Add buttermilk.  Mix with a fork until moistened.  Knead gently about 1 minute.  Shape into a ball.  Place dough on a greased cookie sheet or pie plate and flatten into a 7-inch circle.  Dough will be about 1 1/2 inches thick.  Bake at 375° for 30 to 40 minutes, or until top is golden brown.  Place on a wire rack to cool.  Brush top with melted butter.  Dust with flour.  Makes 1 loaf.
+Minty Mountain Cake – Amy Badger – This was a spin on “Better than Sex Cake” that I came up with when trying to figure out how to use up a package of thin mints in the pantry before moving to California.  Our Scout master, Gerhard Turner, and his family got to try the experiment and decided it was a winner.
+1 pkg. chocolate cake (eggs, oil, water to bake)
+1 can sweetened condensed milk
+1 pkg. thin mints or peppermint patties
+1 8oz. whipped topping
+2 tsp. mint extract
+green food coloring
+For decorating:
+chocolate chips, sprinkles or shavings 
+Gold coin candies
+Leprechaun figures
+Skittles to make a rainbow
+Bake the chocolate cake as directed in a 9x13” pan.  While the cake is baking, heat the milk in a sauce pan on medium heat, adding the mint and stirring until melted. While the baked cake is still warm, poke holes with a wooden spoon handle all over the top.  Pour the minty milk mixture all over the cake.  Let cool.  Add the mint extract and green food coloring to whipped topping.  Spread over cooled cake making mountains and valleys.  Decorate with fun St. Patrick ideas like a rainbow and pot of gold, leprechauns, etc.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+EASTER:
+
+Natural Easter Egg Dyes - Liz Bunderson
+You can juice your ingredients, or chop them small and boil them in small amounts of water. You can also mash the vegetables at the end to get the rest of the color out, and then strain it.
+The colors are as follows:
+Beets - red/purple
+Dried Peppers - orange (boil these until they are soft and the water is strongly colored)
+Carrots - yellow (you may add some turmeric when you boil the carrots to enhance the color)
+Spinach - Green
+Blueberries - blue
+Red Onion Skins - purplish red
+Yellow Onion Skins - Tan
+Put the vegetable juice or vegetable water in a non-reactive pan with vinegar. Use 1 Tbsp. vinegar for each cup of vegetable liquid. Boil the eggs in it for 10-15 minutes or until you like the color.
+
+Almond-Macaroon Easter Nests – Tawna Marsh -These Easter cookies are as delicious as they are cute.
+2 cups flour
+1 Tbsp. baking powder
+1/4 tsp. salt
+3/4 cup butter, at room temperature
+8 oz Neuchâtel or cream cheese, room temp.
+1 cup sugar
+3/4 tsp. almond extract
+1 pkg. flaked coconut (7 oz)
+Red and yellow food coloring
+120 pastel sugar coated almonds (M&Ms)
+Mix flour, baking powder and salt in a medium size bowl until blended.  Beat butter and Neuchâtel cheese in a large bowl with electric mixer.  Add sugar and almond extract.  Beat 2 minutes or until fluffy.  With mixer on low speed, gradually beat in flour mixture and 1 loosely packed cup coconut until well blended.  Cover and refrigerate 45 minutes or until firm enough to handle.  Meanwhile put ½ cup loosely packed coconut into each of 2 glass jars and the remaining ½ cup into a medium size bowl.  Add 1 drop red food coloring to 1 jar and 1 drop yellow food coloring to the other.  Close jars and shake vigorously until coconut is evenly tinted.  Add to untinted coconut and toss to mix.  Heat oven to 350º.  Have cookie sheets ready.  Divide chilled dough in half and put half back in refrigerator.  Roll slightly rounded tablespoonfuls dough in balls (You’ll have 40). Roll each in coconut until lightly coated. Place 2 inches apart on cookie sheets.  Press 1 almond into each (the other 2 almonds are added after the dough has spread while baking.)  Bake 12 minutes.  Remove from oven and gently press 2 more almonds into each cookie close to the first one, to resemble eggs in a nest.  Bake 4-5 minutes longer until edges are firm and coconut starts to turn golden.  Cook on cookie sheet 5 minutes before removing cookies to wire rack to cool completely.  Repeat with remaining dough. 
+Yield: 40 cookies
+
+APRIL FOOL’S DAY:
+
+Layered Meatloaf Cake – Amy Badger
+Make your favorite meatloaf in two 8” round cake pans or two 9” square pans.  Make up a large batch, about 6 cups, of instant potatoes and add about ¼ cup extra water to make it easier to spread.
+Invert one meat loaf onto a serving platter; invert the second loaf onto a cutting board. Spread 1-1/2 cups mashed potatoes over meat loaf on the platter. Carefully slide second loaf onto the potatoes. Spread 3-1/2 cups mashed potatoes over top and sides. Spoon remaining mashed potatoes into a pastry bag with open star tip #195. Pipe a shell border around bottom and top edges. Place ketchup and mustard in resealable plastic bags; cut a small hole in a corner of each bag. Pipe ketchup and mustard on cake alternating between shell boarder in small bead shape.
+
+
+
+
+
+
+
+
+MOTHER’S DAY:
+
+Mother’s Day Cinnamon Rolls – Tawna Marsh- This makes a lot of cinnamon rolls and they are yummy!  The eggs, nutmeg and vanilla do magical things to these rolls!
+1/2 cup lukewarm water
+3 pkgs. active dry yeast
+4 cups scalded milk (I just heat it in the microwave or make powdered milk with really warm water)
+1 cup sugar
+1 cup shortening 
+1Tbsp. salt
+5 eggs, beaten
+2 tsp. nutmeg
+1 Tbsp. vanilla
+10 cups (or more) flour
+Dissolve yeast in lukewarm water.  In large bowl, combine scalded milk, 1 cup sugar, shortening and salt.  When cool, add beaten eggs, nutmeg and vanilla.  Stir in dissolved yeast and mix well.  Add 10 cups flour or enough to make dough sticky and soft.  Cover dough and let rise until double in bulk.  Divide dough and roll out each part into a large rectangle- 1/2 inch thick.  Brush generously with melted butter.  Combine 1 cup sugar with 1 Tbsp. cinnamon and sprinkle half of mixture over top of dough.  Roll up dough as for cinnamon rolls and cut into 1 inch slices with dental floss.  Place on greased baking sheet.  Repeat with other part of dough.  Let rise 1 hour.  Bake at 375 for 20 minutes.  Frost with, 
+Confectioner's Glaze:
+Combine 3-4 cups confectioners sugar with a tablespoon or 2 of hot water (enough to make a spreading consistency) and 1/2 tsp. vanilla.
+Note:  You can add raisins when you sprinkle the cinnamon/sugar, but my kids just pick them out so I don’t add them.  Sometimes I have used brown sugar rather than white when sprinkling to make them more caramelish.  You could also do white sugar with orange peel to make orange rolls and use orange juice in the glaze rather than water.  The secret ingredient in these rolls is the 5 eggs...makes them almost cakelike!  Yummm!!
+
+CINCO DE MAYO: 
+
+Crock Pot Cafe Rio Sweet Pork –Amy Badger
+4 lbs. Butt Pork, (thawed)
+4 (8 oz.) cans tomato sauce
+3 tsp. minced garlic
+3 cups brown sugar (more or less depending on how sweet you like it)
+4 tsp. cumin
+4 cups Dr. Pepper (diet makes it less sweet)
+3 Tbsp. molasses
+1/2 tsp. salt
+Pepper to taste
+Cook in a crockpot on low for 12 hours- Remove fat and shred a few hours before serving.
+
+Cilantro-Lime Rice –Amy Badger
+1 cup uncooked rice (long-grain, white rice)
+1 tsp. butter or margarine
+2 cloves garlic, minced
+1 tsp. freshly squeezed lime juice
+1 can (15 oz) chicken broth
+1 cup water
+1 Tbsp. freshly squeezed lime juice
+2 tsp. sugar
+3 Tbsp. fresh chopped cilantro
+In a saucepan combine rice, butter, garlic, 1 tsp. lime, chicken broth and water. Bring to a boil. Cover and cook on low 15-20 minutes, until rice is tender. Remove from heat. In a small bowl combine lime juice, sugar and cilantro. Pour over hot cooked rice and mix in as you fluff the rice.
+
+Cilantro-Lime dressing –Amy Badger
+1 packet TRADITIONAL Hidden Valley Ranch mix (not BUTTERMILK)
+1 cup mayonnaise
+1 cup buttermilk
+2 tomatillos, remove husk, diced
+1/2 bunch of fresh cilantro
+1 clove garlic
+juice of 1 lime
+1 jalapeño (if you like it SPICY keep the seeds in it, if you like it mild, just remove the seeds)
+Mix all ingredients together in the blender. 
+
+
+Black Beans –Amy Badger
+2 Tbsp. olive oil
+2 cloves garlic, minced
+1 tsp. ground cumin
+1 can black beans, rinsed and drained
+1 1/3 cup tomato juice
+1 1/2 tsp. salt
+2 Tbsp. fresh chopped cilantro
+In a nonstick skillet, cook garlic and cumin in olive oil over medium heat until you can smell it. Add beans, tomato juice, and salt. Continually stir until heated through. Just before serving stir in the cilantro. 
+Note: You can add a can of corn, drained, to the beans with a dash of cumin and chili powder, it is AWESOME! I recommend doing this even though it's not "traditional Cafe Rio."
+
+Not Fried Ice Cream –Amy Badger – This is a simple way to get that delicious fried ice cream taste without the fuss.
+1/2 quart vanilla ice cream 
+2 1/2 cups cornflake cereal, crushed 
+1 Tbsp. butter 
+2 Tbsp. sugar 
+1 tsp. cinnamon 
+Make 8 vanilla ice cream balls and freeze on wax-lined cookie sheet for about an hour. 
+Mix remaining ingredients and spread on a cookie sheet to bake at 350°F until crisp and golden. (Cooking times will vary according to taste and oven temps.) Let cool. Roll ice cream balls in the cooled mixture and refreeze for 2 hours more. Serve with honey drizzled over each and a maraschino cherry.
+
+MEMORIAL DAY:
+
+Crispy Fried Chicken – Liz Bunderson - 
+My mother in law served this chicken at a Family Memorial Day gathering. Loved it!
+2 fryers about 3-4 lbs.
+1 ½ cups flour
+½ cup corn meal
+¼ cup corn starch
+1 Tbsp. salt
+2 tsp. paprika
+1 tsp. dried oregano
+1 tsp. rubbed sage
+1 tsp. pepper
+Put all ingredients in Ziploc baggie and mix together. Beat 2 eggs with ¼ cup water. Dip chicken in egg and then shake in flour mix. Fry in oil until golden brown. Drain on paper towels and then place on an ungreased and uncovered cookie sheet. Bake at 350° for 25-30 minutes. 
+
+HALLOWEEN:
+
+Ghostly Shepherd’s Pie – Amy Badger – This was a fun creation we enjoyed one year when Jared and his family came to visit us in AZ near Halloween time.
+1 lb. lean ground beef
+1 medium onion, chopped
+2 ½ cups mixed vegetables
+12oz. jar home-style beef gravy OR 1 ½ cups your favorite beef gravy
+1 ¾ cups water
+2 Tbsp. butter or margarine
+¼ tsp. garlic powder
+½ cup milk
+2 ¼ cups instant mashed potatoes
+¼ cup grated Parmesan cheese
+1 egg, slightly beaten
+Heat oven to 375º.  Cook beef and onions in large skillet on stovetop until brown; drain.  
+Set aside 12 peas for garnish.  Add remaining frozen vegetables, and gravy to beef mixture.  Heat to boiling; reduce heat to medium-love.  Cover and cook 8 to 10 minutes, stirring occasionally, or until vegetables are crisp-tender. Meanwhile, in medium saucepan, bring water margarine and garlic powder to a boil.  Remove from heat; add milk.  Stir in potato flakes and cheese.  Add egg; blend well.  Spoon ground beef mixture into ungreased 8” square (2 quart) glass baking dish.  With large spoon, make 6 mounds of potato mixture on top of beef mixture to resemble ghosts.  Place 2 reserved peas on each ghost to resemble eyes.  Bake at 375º for 20 to 25 minutes or until potatoes are set and mixture is heated.
+
+
+Dinner In a Pumpkin - Scott & Donna Chantry - Each Halloween we have Dinner in a Pumpkin after returning from Trick or Treating
+1 pumpkin (about 10 ")
+1 Tbsp, cooking coil
+2 lbs. ground beef
+2 ½ tsp. salt
+2 ½ tsp. grated onion
+1 chopped green pepper
+1 tsp. oregano
+1 tsp. vinegar
+2 cloves garlic (minced or salt)
+1 can tomato sauce
+3 eggs beaten
+1 tsp. pepper
+4-5 small potatoes cubed
+Cut off top of pumpkin; thoroughly clean out insides. Mark a face on the pumpkin.   Brown the ground beef.  Cooked cubed potatoes until tender. Combine all ingredients in the pumpkin. Place pumpkin on a cookie  sheet. Replace lid on pumpkin. Bake at 350° about 1 hour until pumpkin meat is tender. Serve from pumpkin, scooping out cooked pumpkin with meat. Makes 6 servings.  Serve with buttered rolls and apple cider.
+
+Monster-Faced Pizza – Amy Badger
+Use your favorite pizza dough to make several small pizzas so each person can decorate their own.  Refrigerator biscuits work just fine for ease and speed.  Spread pizza sauce over dough.  Use toppings to create a monster face.  For example:
+Strips of green pepper can be hair
+Onions and pineapple can be teeth
+Pepperoni and olives can look like eyes
+Let both kids and adults use their imagination and have a “Spookiest Monster” contest.
+
+
+
+
+
+
+
+
+
+
+THANKSGIVING:
+
+Ultimate Brine for Turkey – Scott Chantry
+-This is the way we do our Thanksgiving Turkey.  Brining a turkey results in an incredibly moist & juicy (not watery) bird every time. NOTE: Be sure that the container for the turkey in brine in non-reactive: use enamel, glass, crockery, stainless steel, even a plastic bucket – never cast iron or aluminum.  The pot should be just large enough to contain the turkey (so the brine will cover the bird.)
+1 ½ cups KOSHER salt (not regular)
+1 ¼ cups brown sugar
+10 whole cloves 
+3 tsp. black peppercorns
+1 ½ gallons (6 quarts) apple juice
+OR cider (non-alcoholic)
+peel from 2 oranges or tangerines
+(colored part only, not the white part)
+Optional: 3 tsp. dried thyme and/or dried sage
+Combine all ingredients in a non-reactive pot. Bring to a boil, lower heat and simmer for 15-20 minutes (partly covered). Cool completely.  Rinse turkey under cool running water, inside and out. (Remove giblets from body cavity – reserve them if desire for giblet gravy.) Pat turkey dry with paper towels, then immerse turkey in cooled brine.  Turkey should be COMPLETELY submerged in liquid (place a plate on top of the bird if necessary to keep it covered with the liquid). Cover the pot and refrigerate for at least 8 to 10 hours, up to 24.  Remove turkey from brine, rinse, pat dry, and roast as instructed in a cook book until internal temperature is 180 to 185 degrees.
+
+Cranberry Salad - Jill Olsen – This salad is a very pretty bright pink color.  
+2 cups raw cranberries
+3 cups mini marshmallows
+3/4 cup sugar
+2 cups chopped apples
+½ cup green grapes
+1 cup chopped pecans or walnuts
+1 cup whipping cream
+Grind cranberries, combine with marshmallows and sugar. Cover and refrigerate overnight.  Fold in remaining ingredients.
+Stuffing Balls – Amy Badger – Yum-o.
+1 lb. ground pork  
+1 pkg. (6oz.) stuffing mix for chicken  
+3/4 cup cranberry sauce  
+1 egg  
+1 cup water  
+2 Tbsp. melted butter  
+Preheat oven to 325°F. Cook pork in large skillet until cooked through, stirring frequently; drain. Place in large bowl; cool slightly. Stir in dry stuffing mix.  Add cranberry sauce, egg and water; mix well. Shape into 16 balls; place on foil-covered baking sheet. Brush evenly with butter.  Bake 20 minutes.
+
+Thanksgiving Yams –Becky Concoby
+2 cups mashed yams
+2/3 cup sugar
+3/4 stick butter (6 Tbsp.)
+2 beaten eggs
+1 tsp. vanilla
+Topping:
+1 cup brown sugar
+1/3 cup soft butter
+1/2 cup flour
+1 chopped pecans
+Mix first 5 ingredients and put in a 9 x 13 pan.  Spread topping over yams and bake at 350 for 30 minutes.
+
+Apple Pudding - Grandma Grace - Mama's recipe that she would make for the Walker Thanksgiving supper.
+1 cup sugar
+½ cup shortening
+1egg
+1 cup flour
+4 cups grated apples
+1 tsp. baking soda
+½ tsp. salt
+½ tsp. cinnamon
+½ tsp. nutmeg
+½ cup nuts or more
+Bake in a 350° oven about 35 to 45 minutes.  Serve with sauce
+2/3 cup Karo syrup
+2/3 cup canned milk
+2 cups sugar
+Bring to boil and add 1/4 cup butter
+Flaming Thanksgiving Pumpkin Pie - Pam Reber Grange
+Make pumpkin pie.  Top with:
+CRUNCHY PECAN TOPPING:
+In a small bowl, mix 1 cup coarsely chopped pecans with 2/3 cup firmly packed brown sugar.  Drizzle with 3 Tbsp. melted butter and stir until uniformly moistened.  Sprinkle over completely cooked pumpkin pie.  Broil about 5 inches from heat 1-2 minutes or until topping is bubbly.  Let cool, then garish with whipped cream and extra pecan halves if desired.  
+OR put under broiler & being chatting with the family who have come for Thanksgiving dinner.  In 10 minutes you will have created flaming Thanksgiving pumpkin pie.  As black smoke billows from oven, quickly remove pie & rush it out the front door, ignoring hysterical laughter from the rest of the family.
+
+Pecan Pie - Nancy Reber – A Thanksgiving classic pie.
+3 eggs
+1 cup light corn syrup
+1 cup sugar
+2 Tbsp. melted butter
+1 tsp. vanilla
+1/8 tsp. salt
+1 cup pecan halves
+1 9" unbaked pie shell
+Beat eggs slightly.  Add next 5 ingredients.  Stir in pecans.  Bake at 350° for 55 minutes or until knife comes out clean.
+
+Cookie Turkeys – Amy Badger – These make a great activity for kids while Thanksgiving dinner is cooking and a fun table favor.
+40 fudge-striped cookies
+1/4 cup chocolate frosting
+2 pkgs. (5oz. each) chocolate-covered cherries
+20 pieces candy corn
+Place ½ of cookies on a flat surface, solid chocolate side down. With frosting attach a 
+chocolate-covered cherry to the top of each base cookie. Attach another cookie perpendicular to each base cookie with frosting. With frosting, attach one piece of candy corn to the front of each cherry for the head. Let stand until set. Yield: 20 servings
+CHRISTMAS: 
+
+Christmas Potpourri – Kadie Allred
+4-5 fresh orange slices
+2-3 fresh lemon slices
+3 cinnamon sticks
+8-10 dried whole bay leaves
+1 tsp. whole cloves
+6 cranberries (or more!)
+Simmer with a pot of water and enjoy the wonderful smell of Christmas in your home!
+
+Cranberry Slush – Sue Reber- In our family a Christmas Eve tradition is to toast each other with this drink.  We will take turns saying something we appreciated about each person.  
+4 cups cranberry juice
+2 cups sugar
+2 cups water
+1 pkg. Knox gelatin
+1 cup orange juice
+1 cup lemon juice
+Red food coloring
+1 qt. 7-Up or ginger-ale
+Add 2 cup cranberry juice to gelatin to dissolve.  Bring sugar and water to boil.  Add gelatin mixture.  Add remaining juices and food coloring.  Freeze.  When serving, defrost for 1 hour and add 7-up or ginger-ale.
+
+Christmas Punch - Clint Fielding
+1 can frozen lemonade
+1 pkg. cherry Kool-Aid
+2 qts. water
+1 cup sugar
+1 bottle cranberry juice
+1 bottle 7-Up
+Mix everything except 7-Up.  Put into punch bowl.  Add 7-Up and add an ice ring.
+
+Cream of Broccoli Soup- Sue Reber – This family favorite is a traditional part of our Christmas Eve meal.
+3 to 4 cups broccoli
+1-8oz. cream cheese
+1 can evaporated milk
+1 can cream of chicken soup
+2 cups milk
+Steam broccoli. Add rest of ingredients and process in blender for a few seconds, so you can still see chunks of broccoli.  Heat, but do not boil.  Add a sprinkle of Italian seasoning.
+
+Sausage Cheese Balls - Angela Olsen -We make these the night before Christmas. I also bake them then & put them in the freezer so the kids can cook them in the toaster oven, for a quick filling breakfast before school.
+3 cups Bisquick
+1 lb. Jimmy dean hot sausage, uncooked
+4 cups shredded cheese
+1/2 cups milk
+Mix together with hands- roll into balls and bake for 20-25 minutes at 350°.
+
+Christmas Morning Casserole –Tawna Marsh
+2 ¼ cups grated cheese
+9 slices white bread, cubed
+1 ¾ -2 lbs. sausage, browned and crumbled
+6 eggs
+1/8 tsp. dry mustard
+3 cups milk
+1½ tsp. salt
+Butter 9x13 pan. Layer bread, sausage, and cheese.  Beat eggs, mustard, milk and salt. Pour over cheese, bread, and sausage.  Cover and refrigerate overnight.  Bake at 325 for 1 hour.   We put this in the oven when we wake up to open presents.  Then it is finished just in time.
+
+Breakfast Casserole –Angela Olsen - We have this for Christmas breakfast.  You can put it in the crockpot the night before.
+1 (26oz) bag frozen shredded hashbrowns
+1 lb. of bacon, ham, or sausage
+1 onion diced
+1 diced green pepper
+2 cups shredded cheese
+12 eggs
+1 cup milk
+1 tsp. salt
+1 tsp. pepper
+Layer potatoes, meat, onions, peppers and cheese in crockpot.  Repeat 2 or 3 times ending with cheese.  Beat eggs, milk, salt & pepper.
+Pour over crockpot mixture and cook on low for 10-12 hours.
+Broccoli Rice Casserole - Scott & Donna Chantry - As a part of our traditional Christmas dinner we have this dish.
+2 boxes frozen chopped broccoli
+2 cups Minute rice
+2 cans Cream of Mushroom soup
+1 8 oz. jar Cheese whiz
+1 chopped onion
+1 stick melted butter
+Thaw broccoli. Sauté onion in butter.  Add Cheese whiz to melt cheese. Combine rest of ingredients. Bake 1 hr in casserole dish at 350°.
+
+Three Wise Men Christmas Salad - Grandma Reber
+1 large pkg. each lime and raspberry Jell-O
+3/4 pkg. miniature marshmallows
+1 small lemon Jell-O
+1 20oz. can crushed pineapple, drained, reserve juice
+½ cup mayo
+1 cup whipping cream
+4oz. cream cheese
+Dissolve lime Jell-O in 1 cup boiling water and add 2 cups cold water.  Pour into 9x13 pan and set.  Dissolve lemon Jell-O in pineapple juice and just enough water to make 2 cups.  Bring to a boil and pour over marshmallow.  Stir to keep creamy.  Mix cream cheese and mayonnaise until smooth and add to lemon/pineapple mixture. Whip cream and drained pineapple then add this to lemon Jell-O mixture.  The mixture will melt down a little.  Spread entire mixture as second layer on the set lime Jell-O.  Set.  Prepare raspberry Jell-O the same way the lime Jell-O was prepared.  Pour on top of set lemon mixture.  Set.
+
+
+
+
+
+
+
+
+
+
+
+Candy Cane Coffee Cake –Amy Badger-This makes a delicious and pretty bread that we often use as teacher or neighbor gifts at Christmas time.  Just cover a large piece of cardboard with tin foil to put the candy cane on for a pretty presentation. I often use whatever dough I have on hand in the freezer to make this recipe.
+1 Tbsp. active dry yeast
+1/4 cup warm water (110° to 115°)
+1/2 cup butter or margarine, softened
+1/2 cup sour cream
+2 eggs
+3 Tbsp. sugar
+1/4 tsp. salt
+3 cups all-purpose flour
+FILLING:
+2 pkgs. (8oz. each) cream cheese, softened
+1/2 cup sugar
+2 egg yolks
+2 tsp. vanilla extract
+TOPPINGS:
+1 Tbsp. confectioners' sugar
+1 jar (12 oz.) cherry jam OR any red jam
+In a small bowl, dissolve yeast in warm water. In a mixing bowl, combine the butter, sour
+cream, eggs, sugar and salt. Add yeast mixture and flour; beat until smooth (do not knead). Place in a greased bowl, turning once to grease top. Cover and refrigerate overnight.    For filling, in a mixing bowl, beat cream cheese, sugar, egg yolk and vanilla until blended. Punch dough down. Turn onto a lightly floured surface; divided in half. Roll out each portion into a 16-in. x 10-in. rectangle on a greased baking sheet.  Spread filling down center of each rectangle. On each long side, cut 1-1/2-in.-wide strips about 3 in. into center. Starting at one end, fold alternating strips at an angle across filling. Pinch ends to seal. Curve one end, forming a candy cane. Cover and let rise until doubled, about 1 hour. Bake at 350° for 20-25 minutes or until golden brown. Carefully remove from pans to wire racks to cool. Sprinkle with confectioners' sugar. Stir jam, then spoon over top of leaves, creating candy cane stripes. Refrigerate leftovers. 
+Yield: 2 coffee cakes.
+
+Holiday Wreath – Sue Reber – This is a treat I made with my kids.  We loved putting on the red hoots and seeing the wreaths look like they were adorned with tiny berries.
+4 cups miniature marshmallows
+½ cup margarine
+1 tsp. vanilla
+2 tsp. green food coloring
+4 cups cornflakes
+Red hots
+Additional candies: silver balls, gum drops, etc. 
+Combine marshmallows and margarine in large saucepan.  Heat over medium heat until melted, stirring frequently.  Stir in vanilla and food coloring.  Stir in cornflakes.  Drop from spoon onto waxed paper; with buttered or wet hands shape into a 9” wreath.  Decorate with red hots and gum drops. For miniature wreaths:  Drop cornflake mixture from teaspoon onto waxed paper; with hands shape into tiny circular wreaths, about 2 inches in diameter. Decorate with 3 tiny Red Hots in a triangle patter to resemble small berries.  Yield: One large or 33 miniature wreaths.
+
+Cream Cheese Cookies – Amy Badger – You can use this one dough to make 4 different types of fun Christmas cookies.
+1 pkg. (8oz) cream cheese, softened  
+3/4 cup (1-1/2 sticks) butter, softened  
+1 cup sugar  
+2 ¼ cups flour  
+½ tsp. baking soda  
+Beat cream cheese and butter in large bowl with electric mixer on medium speed until well blended. Add sugar; beat until light and fluffy. Gradually add flour, beating until well blended after each addition. Add baking soda; mix well. Makes 3 cups of dough. 
+Preserve Thumbprint Cookies:
+½ cup finely chopped Pecans  
+½ tsp. vanilla
+¾ cup raspberry, or your favorite preserves  
+Add pecans and vanilla to 1 ½ cup of dough.  Mix just until blended. Cover. Refrigerate 30 min.  Preheat oven to 350°F. Shape dough into 1-inch balls. Place, 2” apart, on ungreased baking sheets. Indent centers. Bake 10 min.  Fill each cookie with about 1 tsp. preserves. Continue baking 8 to 10 minutes. 
+Snowmen:
+Powdered sugar
+Icing
+Small round candies
+Peanut butter cups, cut in half
+Preheat oven to 325°F.  Shape 1 ½ cups of dough into equal number of ½” and 1” diameter balls.  Using 1 small and 1 large ball for each snowman, place balls, slightly overlapping, on ungreased baking sheet. Flatten to 1/4-inch thickness with bottom of glass dipped in additional flour. Repeat with remaining dough.  Bake 19 to 21 minutes or until lightly browned. Cool on wire rack. Sprinkle each snowman with sifted powdered sugar, if desired.  Decorate with icing and candies to make a face and buttons.  Cut a peanut butte cup in half and attach to head with frosting for hat.  
+Choco-Orange Slices:
+1 ½ tsp. grated orange peel
+1/3 cup semi-sweet chocolate chips
+1 Tbsp. orange juice
+½ tsp. orange extract (optional)
+Add orange peel to 1 ½ cups of dough; mix well.  Shape into a 8x1½” log. Refrigerate for 30 minutes.  Cut log into ¼” slices.  Bake at 325º for 15 to 18 minutes or until edges begin to brown.  Remove from cookies sheets.  Cool on wire rack.  Store in airtight container.  Melt 1/3 cup chocolate chips, orange juice and orange extract on low heat, stirring until smooth.   Dip ½ of cookie into chocolate mixture; let excess drip off.  
+Chocolate Mint Cutout:
+¼ tsp. mint extract
+Green food coloring
+¼ cup semi-sweet chocolate chips
+Add mint extract and a few drops of green food coloring to 1 ½ cups of dough; mix well.  Refrigerate 30 minutes.  Roll dough to 1/8” thickness on lightly floured surface; cut with assorted 3 inch cookie cutters. Bake at 325º for 10 to 12 minutes or until edges begin to brown.  Remove from cookie sheets.  Melt ¼ cup chocolate chips on low heat, stirring until smooth.  Drizzle over cookies.  Makes about 3 dozen.
+Gingerbread House - Bonnie Chantry - This traditional recipe came from an old Relief Society magazine and has been used for many years in the Chantry home.  A FHE was held near the holiday where each child decorated a house (or more) then we would vote on whom to give them to.  It usually turned out to be the new people who had moved into the ward.  It was always someone who didn't expect anything for us.
+Regular batch		Bonnie size batch
+2 3/4 cup flour		13 ½ cup	
+½ tsp. salt		2 ½ tsp.
+1 tsp. ginger		5 tsp. 		
+2/3 cup molasses	3 1/3 cup	
+1 egg			5 eggs
+1 tsp. baking powder	5 tsp.	
+1/8 tsp. cloves		5/8 tsp.
+1 tsp. cinnamon	5 tsp.		
+1/3 cup brown sugar	1 2/3 cup 	
+½ cup oil		2 ½ cup	
+Mix thoroughly and chill several hours or overnight.  roll dough on an oiled piece of foil, place on cookie sheet and bake at 300° for 20-30 minutes.  Place pattern on hot gingerbread and cut immediately.  Lift out carefully and cool. The gingerbread should be very hard when cool.  The gingerbread should be very hard when cool.  If necessary the pieces can be laid back on the cookie sheet and placed in the oven for 5-10 minutes longer.  The roof sections will break off if the dough is not thoroughly baked. Decorate with Royal Icing.
+
+Royal Icing 
+3 egg whites (room temperature)
+4 cups sifted powdered sugar
+½ tsp cream of tartar
+Beat thoroughly in mixing bowl until the icing stands in peaks, then keep the bowl covered at all times with a damp cloth, as the icing dries quickly and becomes very hard.  Use icing to cement house pieces together and to place candies on for decoration.  Place on cardboard covered with foil.
+
+
+
+
+
+Playdough – Becky Concoby
+1 cup water
+1 cup flour
+2 Tbsp. cream of tarter
+1/4 cup salt
+Food coloring
+1 Tbsp. vegetable oil
+Cook in a saucepan for about 5 minutes.  When a ball forms in the middle take it out and knead.  This is the point that I put in the food coloring.  Store in a ziploc bag.
+
+Playdough – Amy Badger
+1½ cups flour
+1 cup salt
+1 Tbsp. powdered alum
+Add:
+1 Tbsp. oil
+1 cup boiling water
+Food coloring OR Kool-aid
+Stir the mixture until cool, then knead in food coloring.  Keep dough in an airtight container when not in use. Add food coloring for different colors OR Kool-aid for a fun color and scented dough.
+
+Play Dough – Kadie Allred
+2 cups water
+1 cup salt
+2 cups flour
+½ cup corn starch
+2 Tbsp. vegetable oil
+1 Tbsp. powdered alum
+Food coloring
+Combine all ingredients except food coloring and cook on medium heat until stiff.  
+Drop a few drops of desired color of food coloring into mixture and gently fold in. Let cool slightly.  Roll onto counter and knead.  
+
+Salt Dough –Kadie Allred
+1 cup salt
+1 ½ cups hot water
+Food coloring
+4 cups flour
+Add desired food coloring to water.  Pour water over salt and stir.  Let cool. Stir in flour.  Store in plastic bag.
+
+Peanut Butter Fudge Play Dough –Jill Olsen
+1 cup Peanut Butter
+1 cup Honey
+1 cup Powdered milk (dry)
+Mix well, pass out for all to enjoy!
+
+Peanut Butter Fudge Dough –Becky Concoby
+1 cup peanut butter 
+1 cup light corn syrup
+1 1/4 cup nonfat dry milk
+1 1/4 sifted powdered sugar
+Mix ingredients. Knead and form into balls.  Let them use their imaginations.  Let them wash their hands before molding the dough.  Let them eat their creations!  Decorate with edible things like chocolate chips or M&Ms.  Keep in a ziploc bag or airtight container.
+
+Finger Paint –Becky Concoby
+1/2 cup cornstarch
+1 1/3 cup boiling water
+1/2 cup soap flakes
+1 Tbsp. glycerin
+Mix starch with enough cold water to form a smooth paste.  Add boiling water and cook paste until glossy.  While mixture is still warm stir in the soap flakes.  Allow it to cool then add the glycerin.  Stir in desired color.  Pour into jars. It will keep for about a week.
+
+Sorta Silly Putty - Tiffanie Olsen
+1 3/4 cup water
+2 cups white glue
+Mix till smooth. Separately mix:  
+1/3 cup warm water
+1 tsp. Borax
+Combine and stir.
+Pour borax mix into glue mix.  Pull out globs.  If needed, mix another borax solution and add to remaining glue mix.  Color if desired with food coloring.  Keep in Ziploc baggie.
+
+Bubble Blow – Becky Concoby
+2/3 cup liquid dishwashing soap
+1 Tbsp. glycerin
+1 gallon water
+Mix together.  Add soap last so it doesn't get sudsy.  Ivory soap works best.  You can store it in a milk jug on the shelf for a long time.
+Crystal Garden –Becky Concoby
+5 parts hot water
+5 parts table salt
+5 parts laundry bluing (I think Rit makes this)
+1 part non-sudsy ammonia
+Small sponge or charcoal briquette
+small dish
+any food coloring.  
+Dissolve salt in hot water.  Add bluing and ammonia.  Put sponge or briquette in dish.  Pour enough solution to cover the bottom of the dish. Put drops of food coloring on sponge and watch them grow.  Add solution when necessary to keep the bottom of the dish wet.  The crystals will be very fragile.
+
+Quick and Quiet Fudge – Sammi Jo Stewart-
+We had the letter "Q" for our interactive snack at preschool.  Maybe a stretch but it was really fun for the kids
+Individual serving:
+1 Tbsp. cream cheese
+1 1/2 tsp. cocoa
+1 Tbsp. butter
+1/2 cup powdered sugar
+1/8 tsp. vanilla
+Put all ingredients in a sandwich size plastic baggie and mush together. Enjoy!
+
+Fudge in a Bag - Sarah Manis
+4oz. cream cheese, room temperature
+1/4 cup butter
+½ cup powdered milk
+½ cup cocoa
+½ cup powdered sugar.
+In a gallon size ziploc bag mix the dry ingredients.  (Make sure the powdered milk has no lumps).  Add the cream cheese and butter. Take turns kneading the baggie until it is well mixed.  Takes a while for this to happen.  When it is all mixed, pass the baggie for everyone to eat.
+
+
+
+
+
+
+
+Tootsie Rolls – Sue Reber
+Mix together
+2 Tbsp. soft margarine
+1 tsp. vanilla
+½ cup corn syrup
+2 squares melted chocolate (3 Tbsp. cocoa plus 1 Tbsp. shortening equals one square)
+Add 3/4 cup dry powdered milk
+3 cups powdered sugar
+Knead, roll into logs, refrigerate
+
+Rice Krispie Treats – Amy Badger
+3 Tbsp. butter
+1 pkg. (10 oz.) large marshmallows 
+OR 4 cup mini marshmallows
+6 cups Rice Krispies
+Melt butter in large saucepan over low heat.  Add marshmallows and stir till melted and well blended.  Cook 3 minutes longer stirring constantly.  Remove from heat.  Add cereal and stir well.  Spread and press firmly in a buttered 9x13 cake pan. Moisten your hands with cold water then press it. Your hands don't stick this way.  You can also cut them with cookie cutters if you refrigerate them for awhile.  
+Cut into squares when cool.
+Microwave method:  Melt butter, then add marshmallows and microwave.  Do this in the largest Tupperware bowl.  Beat with a wooden spoon until smooth.  Add cereal and press into buttered cookie sheet.  
+Options:  Use peanut butter for half of the butter for a different taste or add nuts.  
+For a fun holiday treat add food coloring like red for Valentine’s Day or green for St. Patrick’s to the melted marshmallows and stir before adding cereal. Can add fun candies like M&Ms, conversation hearts, gumdrops, etc.
+
+
+
+
+
+
+
+
+
+
+Roly Poly PB-Chocolate Balls – Catarina Badger – I have a “Cheerios Cookbook” that I love to use when we have cooking class at home with my friends.  This is my favorite recipe from that book.
+1 cup milk chocolate chips 
+2 Tbsp. water 
+1 cup creamy or crunchy peanut butter 
+1/2 cup powdered sugar 
+1/2 cup light corn syrup 
+2 cups Cheerios cereal 
+Line cookie sheet with waxed paper. In 1-quart saucepan, heat chocolate chips and water over medium heat, stirring constantly, until mixture is smooth. Set aside to cool. 
+In medium bowl, stir together peanut butter, powdered sugar and corn syrup until well blended. Stir in cereal until evenly coated. 
+Lightly spray hands with cooking spray. For each candy, roll 1 tablespoon of mixture into 1 1/2-inch ball; place balls on cookie sheet and press slightly so bottoms of balls are flat. 
+Spoon about 1 teaspoon cooled chocolate onto each ball. Refrigerate about 30 minutes or until firm. Store in covered container in refrigerator. 
+Makes 24 balls.
+
+
+Ice Cream in a Bag –Sue Reber – This is a recipe we use in my foods classes.  I got to share it with my granddaughter Catarina’s 2nd grade class when I visited her in El Paso, TX.
+2 Tbsp. sugar 
+1 cup whole milk 
+1 tsp. vanilla 
+1/2 cup rock salt 
+1 small Ziploc plastic bag 
+1 large Ziploc plastic bag 
+2 cups cubed ice
+Combine the sugar, milk and vanilla in the small bag and seal it tightly. 
+Place the salt and ice in the gallon-size bag, then place the sealed smaller bag inside as well. Seal the larger bag. Now shake, turn and toss the bags until the mixture hardens (about 5 minutes). Feel the small bag to determine when it's done. Take the smaller bag out of the larger one, add mix-ins if you would like, and eat the ice cream right out of the bag. Be sure to wipe or rinse all the salt off the small bag before you open it. Otherwise, you will have salty ice cream instead of sweet.
+
+Tin Can Ice Cream - Marjean Spencer
+1 cup milk
+1 cup whipping cream
+½ cup sugar
+½ tsp. vanilla
+Put  mixture into a quart bottle and then put bottle into a large Tang or Cannery #10 can.  Pack around quart bottle with ice and salt.  Put cover on large can and roll about 20 minutes.
+
+Fudgesicles - Sarah Manis
+Cook 1 small pkg. chocolate pudding according to directions using 3 cups milk and 1/3 cup sugar.  Take off heat, add 1 cup whipping cream and freeze in popsicle molds OR small paper cups with popsicle sticks inserted.
+
+Applesauce Muffins – Rachel Mitchell -Applesauce keeps these fat-free muffins moist and tender. Cade (age 5 in 2010) enjoys cracking the eggs and counting as we are adding ingredients to make this healthy snack.
+3/4 cup all-purpose flour 
+1/2 cup whole wheat flour 
+1/2 cup sugar 
+2 tsp. baking powder 
+1 tsp. cinnamon 
+1/4 tsp. baking soda 
+1/4 tsp. salt 
+2 cups All-Bran cereal 
+1 1/2 cups unsweetened applesauce 
+1/4 cup fat-free milk 
+3 egg whites 
+1/2 cup raisins (optional-we don’t add them)
+Stir together flours, sugar, baking powder, cinnamon, soda and salt. Set aside.  In large bowl combine bran cereal, applesauce and milk. Let stand about 5 minutes or until cereal softens. Add egg whites. Mix well. Add flour mixture and raisins, stirring until just combined. Portion evenly into eighteen 2 1/2-inch muffin-pan cups coated with cooking spray or lined with foil bake cups. Bake at 400° F about 15 minutes or until toothpick inserted near center comes out clean. Serve warm.
+Pretzels from the Bread Machine –
+Amy Badger – My kids love it when we have “cooking class” to learn about and try making fun foods.  Using the bread machine makes it easy for kids to just measure all the ingredients into one pan and does the hard work for us.
+1 cup water (Welbilt/Dak machines add 2 Tbsp.)
+3 cups flour
+2 Tbsp. oil
+1 Tbsp. sugar
+2 tsp. yeast (Panasonic machines use 4 tsp.)
+Place all ingredients in bread machine and select dough setting.  When dough is ready roll into 12 inch rope and cut into 6 or 7 equal pieces.  Roll each piece into a 14” rope.  Shape into pretzels by twisting the rope in the middle and laying down ends on each side of the loop.  Set on an oiled countertop, covered with a towel and let rise until almost double, about 20 minutes.  In a large pot bring 10 cups of water and 2 ½ Tbsp. baking soda to a boil.  Preheat the oven to 425º.  Gently pick up the pretzels and lower into boiling water on a slotted spoon.  Boil for 20 seconds on each side.  Set on cake rack and let water drip off.  Place on greased cookie sheet and sprinkle with coarse salt. Bake for 15 to 20 minutes or until golden brown.
+
+History of the Pretzel - Some historians say the pretzel is the oldest snack food ever developed. It is believed the pretzel was first developed in 610 A.D. by a monk in southern France. Using the dough left over from bread making, he formed the pretzel shape, which was meant to look like a child's arms folded in prayer. He used them as treats for children that learned their prayers. He called the snacks pretiola, which means little reward in Latin. The pretiolas eventually found their way into Germany and Austria where they became known as pretzels. The pretzels grew in popularity and are said to have been brought over to America on the Mayflower in 1620. The first pretzels were of the soft variety. Legend has it that one night a baker who was baking a batch of pretzels fell asleep. When he woke up all the moisture was cooked out of them and the hard pretzel was born.
+Pretzels & Cheese Sauce –Amy Badger –For those who don’t own a bread machine.
+1 pkg. (1/4oz.) OR 2 ½ tsp. active dry yeast
+1 cup warm water (110° to 115°)
+2 Tbsp. butter, softened
+1 Tbsp. sugar
+1/2 tsp. salt
+2-3/4 cups all-purpose flour
+4 cups water
+2 Tbsp. baking soda
+Coarse salt
+Cheese Sauce:
+8oz. process American cheese, cubed
+1 pkg. (3oz) cream cheese, softened
+1 to 2 Tbsp. milk
+Dissolve yeast in warm water. Add butter, sugar, salt and 2 cups flour; beat until smooth. Add enough remaining flour to form a soft dough. Cover and let rise for 20 minutes. Punch  down & divide into 12 pieces. On a lightly floured surface, roll each piece into a 15-in. long strip; twist into a pretzel shape. In a large pot, bring water to a boil; add baking soda. Drop two pretzels into water; boil for 1 minute. Remove with a slotted spoon; drain. Place on a greased baking sheet; sprinkle with coarse salt. Repeat for each pretzel. Bake at 475° for 10-12 minutes. For dip, microwave cheeses in bowl on high for 2-3 minutes or until melted, stirring occasionally. Stir in milk. 
+
+Hot Mustard Pretzel Dip – Amy Badger
+1/4 cup ground mustard
+1/4 cup vinegar
+1/4 cup sugar
+1 egg yolk
+2 Tbsp. honey
+In a small saucepan, combine mustard and vinegar; let stand for 30 minutes. Whisk in the 
+sugar and egg yolk until smooth. Cook over medium heat, whisking constantly, until mixture just begins to simmer and is thickened, about 7 minutes. Remove from the heat; whisk in honey. Chill. Serve with pretzels. Store in the fridge.
+Pizza Fish –Liz Bunderson - Makes 3 fish.
+Perfect Pizza Dough
+Olive oil for coating
+1 cup pizza sauce
+2 ¼ cup grated Mozzarella cheese
+1 6oz. pkg. sliced pepperoni
+3 black olives
+Follow the first 3 steps on Perfect Pizza Recipe,  dividing dough into 3 portions. Roll 1 portion of dough into an oval about 12 inches long and 8 inches wide and place it on a baking sheet.  About 3” from one end, pinch in the dough to create a tail. Spread sauce on the “fish”, leaving a ½” border. Top with cheese.  Vertically overlap pepperoni slices to make scales (about 20 slices per fish) and add an olive for the eye. Bake 15 min. or ‘til underside is golden brown.
+
+Octopus & Seaweed – Amy Badger – A fun way to make a boring lunch seem exciting.
+1 pkg. beef flavored ramen noodles
+4 hot dogs
+5 drops liquid green food coloring
+Cook noodles according to package directions.  Add food coloring.  Boil or microwave hotdogs to heat through.  Cut the bottom 2/3 of the hot in half, turn and cut in half again so you have 4 long sections. Slice each of the sections length-wise in half again. You will end up with 8 long legs dangling from the top 1/3 of the hot dog.  Place noodles in a bowl and them place hot dog on top with legs spread out.  Use ketchup or mustard to make eyes and a mouth on octopus.
+
+Mexican Top Hats - Dennis & Tina Chantry
+Take one piece of baloney place on a cookie sheet.  Center in the middle of the baloney, mashed potatoes & cheddar cheese Cook for about two minutes on 350°.
+
+Little Elvis Sandwiches – Stephen Badger-My favorite from the Banana Hut Hawaiian BBQ.
+2 slices of your favorite bread
+Peanut butter
+Nutella
+Banana slices
+Spread peanut butter on one slice of bread & Nutella on the other slice. Add banana slices and put slices together. Note: Try it grilled.
+Homemade Butter – Catarina Badger – My Mommy comes into my classroom each Friday to teach about a famous artist, composer or scientist and to do fun activities with us.  One day for Scientist of the Month we learned how to turn a liquid into a solid & made this butter.
+Fill a baby jar or container with a screw on lid half way full of whipping cream.  Shake the container for 6 to 8 minutes.  Taking turns with other kids is a good idea.  A ball of butter will form in the middle of the buttermilk liquid that is left over.  Enjoy on crackers.
+
+Chocolate Teddy Bears - Tiffanie Olsen
+2/3 cup margarine
+1 cup sugar
+2 tsp. vanilla
+2 eggs
+½ tsp. baking soda
+½ cup cocoa
+1/4 tsp. salt
+2½ cup flour
+Mix well and refrigerate over night, Dough will be stiff.  Form balls for head, body, arms legs, nose and ears.  Press together and place on a greased cookie sheet. Bake 6-8 minutes at 325°.
+
+Yummy Cookies - Tiffanie Olsen
+Kid stuff - with parental help.  
+½ cup cake mix, any flavor
+½ tsp. soft margarine
+1½ tsp. water
+Preheat oven to 350°.  Combine mix & margarine.  Add water and blend.  Dough needs to be stiff but mixes vary so more water may be needed; add by drops.  Roll dough on floured surface then cut cookies with floured cutters.  Bake on cookie sheet 5-8 minutes.    
+ICING:
+½ cup powdered sugar
+½ tsp soft margarine
+2 tsp milk or fruit juice
+few drops vanilla
+Mix margarine and sugar, then add the rest.  If it is too thick, add more liquid drop by drop.  
+
+BEEF:
+
+Grilled T- Bone with Chipotle Chili Rub & Cilantro-Lime Compound Butter-
+Liz Bunderson - Serves 4
+1 stick butter
+3 Tbsp. Finely chopped cilantro leaves
+½ lime juiced and zested
+2 Tbsp. Steak seasoning blend for the grill 
+1 Tbsp. Chipotle (smoky) ground chili powder 1 Tbsp. Sweet paprika
+4 T-bone, 1 ½ inch thick
+Preheat grill. Cut butter into chunks & microwave on high for 15 seconds. Stir in chopped cilantro and lime zest and juice into the butter using a rubber spatula. Transfer the butter onto a large strip of plastic wrap. Gather the ends of the plastic wrap in on 1 hand and use a straight edge, like a small cookie sheet pan, to push the butter back and away from your body making the butter take on a log shape. Gently roll the log wrapped in plastic back and forth on the countertop to evenly round out the shape. Twist ends and place log into the freezer. Remove the steaks from the refrigerator and unwrap.  Combine the steak seasoning blend with hot chipotle pepper and sweet paprika. Rub the seasoning blend into the steaks. Place steaks on screaming-hot grill. Cook steaks 6 to 7 minutes on each side for medium doneness. Remove steaks and let them rest so that the juices can redistribute, 5 minutes.  When ready to serve, top steaks with disks of sliced compound butter. 
+
+Steakhouse Steaks –Kathy Brown- This is a recipe that I like to make for company.  I like to buy my steaks at Costco, they have excellent meat, and their filets are perfectly cut for this.
+2 (6 to 10 oz) filet mignon (cut thick)
+2 Tbsp. vegetable oil
+Salt and fresh cracked pepper
+2 Tbsp. unsalted butter, room temp.
+Take steaks out of fridge about 30-40 minutes before, they need to be close to room temperature before you start cooking them.  Preheat oven to 400°. Heat a large, cast iron skillet over high heat on your stove top for about 5-7 minutes.  Pat steaks dry, brush with oil.  Salt and pepper heavily on all sides (bottom, top, and sides).  When skillet is completely heated up, sear the steaks for 1 ½ to 2 min. per side, it will get smoky!  Don’t move the steaks around, just leave them alone or they won’t get a good sear and make sure to sear all the sides (again bottom, top and sides). This should take about 10 minutes total.  Put a pat of butter on top of each steak, and slide the whole cast iron skillet in the oven.  Cook until it is done how you’d like – probably 10 minutes for medium rare. Remove from oven and let rest under aluminum foil for 5 to 10 min.  THIS IS IMPORTANT! If you don’t let it rest, it won’t finish cooking, & the juices will all run out.  
+
+Pot Roast & Gravy - Bonnie Chantry
+Use roasting pan with tight fitting lid.  Brown roast in 2-3 Tbsp. melted fat.  Sprinkled with minced onions and season with salt, pepper, seasoning salt and 1-2 tsp basil.  May use onion soup mix to season.  Fill pan with water 2-3 inches deep.  Place lid on tightly and place in 325° oven.  Cook about 30 minutes per pound or use 250° oven and cook several hours while at church meetings.  Add enough water to keep from burning.  When ready to serve, thicken liquid for gravy with a mixture of water and cornstarch. (3 Tbsp. cornstarch to ½ cup water)  Bring to boil.  Add more cornstarch mixture if needed. Note: Can also cook on stovetop of  in a large skillet.  After adding water, turn heat to low and cook  for 2 ½ hours. Can add potatoes, carrots and onions the last 45-60 minutes.
+
+Pot Roast and Gravy - Barbara Olsen
+Brown roast in heavy pan with lid. Add sliced onion and 1 cup water.  Bake covered for 2- 3 hours depending on size of roast.  Add seasoning you like such as garlic salt or seasoning salt, bay leaf, etc. Cut up potatoes and carrot may be added.  To make gravy remove meat and vegetables.  Add water as needed to make enough gravy for the group.  Thicken with flour and water paste. (1 cup water, ½ cup flour for the 4 cups liquid.  Salt and pepper to taste.  Add gravy zest for flavor and color.) *If having mashed potatoes use the potato water.
+Herbed Pot Roast - Liz Bunderson
+1 pot roast
+½ tsp. dried marjoram leaves
+1/4 tsp. dried basil
+1 tsp. salt
+½ tsp. pepper
+2 cloves garlic crushed
+1/4 cup apple cider OR just water
+1/4 cup water
+1 tsp. dried parsley
+Trim excess fat from roast.  Brown roast on all sides.  Sprinkle with spices and add liquid.  Heat to boiling, reduce heat.  Cover and simmer 2 hours.
+
+Beef Pasties - Barbara Olsen - Great way to use left over pot roast
+2 cups cubed cooked roast beef (1/4 in. pieces)
+1 ½ cups cubed cooked potatoes
+1 cup beef gravy
+½ cup diced cooked carrots
+½ cup diced cooked onion
+1 Tbsp chopped fresh parsley
+1/4 tsp dried thyme
+½ tsp salt 1/8-1/4 tsp pepper
+Pastry for double-crust pie*
+In a bowl, combine the first nine ingredients; set aside.  On a lightly floured surface, roll out one eighth of the pastry into a 8 inch circle.  Mound 1 cup filling on half of circle.  Moisten edges with water; fold dough over filling and press the edges with a fork to seal.  Repeat with remaining pastry and filling.  Cut slits in top of each; brush with cream.  Bake at for 20-25 minutes or until golden brown.  Yield: 4 servings
+Note: If using purchased pre-rolled pastry, cut each circle in half.  Mound filling on half of the pastry; fold pastry over forming a wedge.
+
+Chinese Pepper Steak - Sue Reber
+1 1/2 lbs. sirloin steak
+1/4 cup oil
+1 clove garlic crushed
+1 tsp. salt
+1 tsp. ground ginger
+½ tsp pepper
+3 large green peppers, seeded and sliced
+2 large onions, thinly sliced
+1/4 cup soy sauce
+½ tsp. sugar
+1 cup beef bouillon
+1 Tbsp. cornstarch
+1/4 cup water
+4 green onions, cut in 1 inch pieces
+Freeze steak 1 hour to make it easier to slice,  then cut into 1/8 inch slices.  Heat oil in skillet; add garlic until golden.  Add steak slices brown lightly 2 minutes.  Remove meat.  Add green pepper and onions.  Cook 3 minutes.  Return beef to pan.  Add soy sauce, sugar, bouillon, chestnuts, cornstarch dissolved in water and green onion.  Simmer 2 minutes or until sauce thickens.  Serve over hot rice.
+
+Lipton Pepper Steak - Barbara Olsen
+1 ½ lb boneless chuck steak
+2 Tbsp. shortening
+1 envelope dry onion soup mix
+2 med. green peppers cut in strips
+1 ½ Tbsp. cornstarch
+Cut meat into thin strips 2 inches long.  In a large skillet, heat shortening and brown meat turning frequently.  Stir in onion mix and 2 cups hot water.  Cover and simmer 30 min.  Stir in peppers, simmer covered 10 min., or until meat is tender.  Blend in cornstarch with ½ cup water.  Stir into skillet.  Cook until thickened.  Serve hot over rice or noodles.
+
+Joyce’s Stroganoff - Grandma Grace
+Brown 1 ½ lbs stew meat
+Add 1 pkg. onion soup mix
+1 can cream of celery soup
+1 can cream of chicken soup
+1 pint sour cream
+Cook 4-5 hours in 250° oven. 
+
+Stroganoff - Liz Bunderson
+Mix together & brown meat:
+strip of round steak OR hamburger
+1 med. onion, chopped
+Season with: salt, pepper & garlic salt
+Add and simmer:
+1 can cream of mushroom/cream of chicken
+paprika
+Just before serving add: 1 cup sour cream
+Serve over egg noodles.
+Hamburger Stroganoff - Sue Reber
+2 Tbsp. margarine 
+½ cup minced onion 
+1 clove garlic, minced 
+1 lb. lean ground beef 
+2 Tbsp. flour 
+½ tsp. salt 
+1/4 tsp. pepper 
+1 can cream of mushroom soup  
+1 cup sour cream
+Heat margarine in skillet over medium heat. Sauté onions and garlic until lightly browned. Add meat and brown. Drain fat; stir in flour, salt, and pepper. Cook 5 min. Stir in soup; simmer uncovered about 10 minutes, stirring occasionally. Stir in sour cream. Heat through, but do not boil. Serve over rice or egg noodles. 
+
+Chicken Fried Steak - Barbara Olsen
+Cut 1 lb. round steak in 4 pieces. 
+Dip in seasoned flour, then in mixture of: 
+1 egg
+2 Tbsp. water, beaten together
+Dip in flour again.  Brown on both sides in hot fat.  Cover and cook slowly 20 - 30 minutes.  To make gravy remove meat and add ½ cup flour mixed with 2 cup milk.  Stir until gravy comes to a boil. Season with 1 tsp. salt and 1/4 tsp. pepper.
+
+Cube Steak Casserole - Trisha Olsen
+4-5 pieces of cube steak
+6 large potatoes, peeled and cubes
+2 small bag baby carrots
+1 can cream of chicken soup
+3/4 cup milk
+Brown cube steak for 10-15 minutes.  Place meat at the bottom of a casserole dish.  Put potatoes and carrots on top of steak; season.  Mix soup and milk together and pour over the top of the vegetables.  Bake at 350° for 1 hour.
+
+
+
+
+
+
+
+Cracked Pepper and Roasted Garlic Burger – Liz Bunderson
+1 lb. ground beef
+1/2 tsp. Worcestershire sauce
+1/2 tsp. paprika
+1/2 tsp. ground mustard
+1 whole garlic, roasted (to roast garlic, cut top off garlic, drizzle olive oil over it, wrap tightly in foil, bake at 400° for about 30-35 minutes)
+1/2 cup cracked pepper corns 
+1/4 cup kosher salt
+1 cup shredded lettuce
+4 slices havarti cheese
+1/4 cup onion, sliced (optional)
+4 slices tomato (optional)
+1 avocado, peeled, pitted, and sliced
+1/4 cup honey
+1/4 cup mayo
+1/4 cup stone ground mustard 
+4 hamburger buns
+Combine the ground beef, roasted garlic, Worcestershire sauce, paprika, and ground mustard in bowl. Use hands to mix & then divide into 4 patties. Season with peppercorns and salt. Grill patties until done. Combine honey, ground mustard and mayo into honey mustard.  Top with Havarti cheese and avocado. Dress buns with honey mustard, lettuce, onions and tomatoes to serve. 
+
+Power Burger – Amy Badger – Justin’s co-worker Eric Carlson competes in the Iron Man competitions and loves these burgers.
+1 lb. extra-lean ground beef
+1 Tbsp. sunflower seeds
+1 Tbsp. finely chopped onion
+1 Tbsp. finely chopped bell pepper
+¼ tsp. ground black pepper
+1 cup toasted wheat germ
+Preheat grill or skillet to medium-low. Mix together all ingredients but wheat germ. Form into 4 to 6 patties.  Roll patties in wheat germ until they’re covered.  Grill or pan-fry for 8 to 10 minutes for medium or 14 to 18 minutes for well-done. Serve on whole wheat buns or wrap in lettuce with your favorite toppings.
+
+
+
+Sloppy Joes –Chrissy Probst
+1 small onion, diced
+1 lb. hamburger
+4 Tbsp. brown sugar
+3 tsp. lemon juice
+½ tsp. mustard
+3 Tbsp. Worcestershire sauce
+1 cup ketchup
+¼ cup water
+Brown hamburger with onions. Mix all ingredients together .  Cool completely and freeze for later.  When ready to serve, simmer for 15 minutes and enjoy on hamburger buns!!  
+
+Sloppy Joes – Liz Bunderson
+serves 6-8
+1 lb. ground beef
+1 lg. onion, chopped
+1 bay leaf
+1 Tbsp. worcestershire sauce
+1 tsp. salt
+3/4 tsp. curry powder
+2/3 cup ketchup
+2/3 cup tomato juice
+Brown meat and onion.  Add other ingredients and simmer 1½ to 2 hrs.
+
+Sloppy Joes - Bonnie Chantry - This is a recipe our family has used for at least 50+ years. 
+1 lb hamburger
+½ cup chopped onion
+1 8-oz tomato sauce
+1 1/2 tsp. Worcestershire sauce
+1/4 cup chopped green peppers
+1 tsp. salt
+1/8 tsp. pepper
+1/4 cup catsup
+1 Tbsp. sugar
+1 Tbsp. vinegar
+Brown meat, add vegetables & cook ‘til tender.  Add remaining ingredients & simmer 20 minutes.  Serve on hamburger buns. Serves 6.
+
+Sloppy Joes - Jill Olsen
+2 lbs. hamburger
+green pepper
+celery 
+onion
+Cook and drain, add:
+1 can tomato soup
+1 Tbsp. vinegar
+1 ½ cups catsup
+1 Tbsp. sugar
+salt and pepper to taste
+Serve on hamburger buns
+
+Sloppy Joe – Suzanne Reber – This is my Mom’s tried and true recipe.
+1 lb. browned hamburger, drained
+Add:
+¼ cup chopped onions
+1/3 cup chopped celery
+Cook with hamburger until soft
+Stir in: 1Tbsp. flour
+Add: ¾ cup ketchup
+1/3 cup water
+2 tsp. brown sugar
+½ Tbsp. vinegar
+1 ½ tsp. lemon juice
+½ tsp. worcestershire sauce
+½ tsp. salt
+1/8 tsp. pepper
+Bring to a boil and simmer for 1 hour.  
+
+Hidden Sloppy Joes - Barbara Olsen
+Brown:
+1 lb hamburger
+1 sm. onion, chopped
+Add and simmer uncover for 5 min.:
+3 Tbsp. catsup
+2 Tbsp. prepared mustard
+1 can Chicken Gumbo soup
+Heat oven to 375°.  Grease a bundt pan.
+Mix and beat vigorously for 30 seconds:
+3 cups Bisquick Mix
+2/3 cup milk
+2 Tbsp. softened butter
+2 eggs
+Spread 2 cups of batter in bottom of pan and 2 inches up the sides. Spoon meat mixture onto center of the batter.  Drop remaining batter by teaspoonfuls, ½ inch apart into meat mixture.  Bake until light brown about 25 minutes.  Invert on heat proof plate.  Slice and serve.
+
+
+
+Chicken Gumbo Sloppy Joe - Marjean Spencer
+1 lb. ground beef
+½ tsp. salt
+2/3 cups onion chopped
+½ tsp. pepper
+Brown together then add:
+1 can chicken gumbo soup
+1/4 cup water
+2 Tbsp. catsup
+1 Tbsp. mustard
+Mix well.   Simmer 30-40 minutes.  Serve on hamburger buns.
+
+Chuck Wagon Filled Rolls –Becky Concoby - This is one of my favorite things to eat!
+1 lb. ground beef
+1/2 cup chopped green pepper
+1/2 cup chopped onion
+1 small can mushrooms
+1 cup chopped olives
+1 can cream of mushroom soup
+2 cup grated cheese
+French Rolls
+Brown meat peppers and onions, drain. Stir in remaining ingredients.  Simmer 10 minutes.  Fill rolls with mixture.  Wrap each roll in foil and bake 20 minutes at 350°.  
+
+Goo Burgers - Jill Olsen
+18 hard rolls (cut off end, remove centers, crumble centers, save for later)
+2 lbs. browned hamburger
+4 stalks celery, chopped
+1 onion, chopped
+1 green pepper, chopped
+2 Tbsp. Worcestershire sauce
+salt
+Cook all together until veggies are tender.  Add 2 cans cheddar cheese soup and the crumbles from the center.  Yes, all of the insides are put back in!! Stuff into rolls, replace ends, wrap in tin foil.  May be frozen for later use.  Bake 300° for 15 minutes or 1 hour if frozen. Obviously a microwave will do just fine also.
+
+
+
+
+Oven Porcupines - Barbara Olsen  
+1 lb. ground beef
+½ cup uncooked regular rice
+½ cup water
+1/3 cup chopped onion
+1 tsp. salt
+½ tsp. celery salt
+1/8 tsp. garlic powder
+1/8 tsp. pepper
+1 (15oz.) can tomato sauce
+1 cup water 
+2 tsp Worcestershire sauce
+Mix meat, rice, ½ cup water, onion & seasonings. Shape into balls.  Place balls in ungreased 8x8 pan.  Stir together remaining ingredients and pour over meatballs.  Cover with aluminum foil.  Bake 350° for 45 minutes.  Uncover and bake 15 minutes more.
+
+Meat Loaf - Grandma Grace
+1 lb. hamburger
+1 cup soft bread crumbs
+1 small onion chopped
+1 tsp. salt
+1 egg
+½ cup milk
+Mix well with hands. Place in loaf pans.  Bake at 350° for 40 to 60 minutes.  Let meat loaf stand 5-10 minutes before serving.  This will allow it to cut easier.
+
+Meatloaf - Annalisa Fielding
+Combine in a bowl:
+2 eggs
+2 Tbsp. chopped onion
+1 cup tomato juice
+½ tsp. salt
+2/3 cup rolled oats
+1/4 tsp. garlic salt
+½ tsp. sage
+few shakes of savory salt
+1 lb. hamburger
+Put in loaf pan sprayed with Pam.  Top with Bull’s-eye BBQ sauce.  Cook at 350° for 45 minutes to an hour.
+
+
+
+
+Meat Loaf - Derlene Olsen
+1 egg
+1 pkg. stew mix seasoning
+2 lbs. hamburger
+1/4 cup canned milk
+1 cup mashed soda crackers
+Mix all together and cook for 45 minutes at 375°.  Can top with ketchup before cooking.
+
+Macaroni & Tomatoes - Grandma Grace
+Cook 1 pkg. macaroni with some onion.  Season 1 lb. hamburger with small diced onion, onion powder, celery salt, & Greek seasoning.  Be careful not to get too much salt.  Add 1 qt. bottled tomatoes & heat through.
+
+Chili Beef Casserole - Annalisa Fielding
+1 lb. hamburger
+1 small onion
+1 can of your favorite chili
+1 can tomato soup
+2 cups uncooked macaroni
+grated cheese
+Cook macaroni, while waiting brown the hamburger, add onion, cook well.  Add chili & tomato soup to hamburger and heat.  Drain macaroni and add to hamburger.  Top with cheese.  Let stand until cheese is melted.
+
+Italian Delights - Barbara Olsen
+Cook ½ lb spaghetti and drain
+3 slices bacon
+1 med. onion, chopped
+1 clove garlic, minced
+1 green pepper, chopped
+Sauté these ingredients and add:
+1 can tomato soup
+1 small can corn
+½ cup grated cheese
+3/4 lb. cooked & drained hamburger
+1 can mushrooms
+½ tsp. each salt, pepper, paprika, and cayenne.
+Mix all together and pour into buttered baking dish and sprinkle with Parmesan cheese. Bake for 30 minutes at 375°.
+
+
+
+Eva’s Macaroni Casserole -Lisa & Trisha Olsen's Mom
+Cook macaroni as directed.  Brown ½ lb. hamburger with onions. Mix macaroni and hamburger in casserole dish: add 1 can Niblets corn, drained.  Mix in 1 can tomato soup and top with cheese.  Bake at 350° until bubbly and the cheese is melted. 
+
+Great Grandma Reber Casserole - Sue Reber
+1 cup chopped onion
+1 cup chopped green pepper
+1 cup chopped celery
+1 lb. hamburger
+1 can tomato soup
+2 tsp. sugar
+1 small pkg. noodles
+2 cups grated cheese
+Cook noodles in salted water.  Simmer onions, green pepper, and celery in fry pan about 20 minutes.  Brown hamburger with cooked veggies.  Layer noodles, then hamburger, then soup mixture (Tomato soup, sugar, half can of water, ½ Tbsp. soy sauce, onion salt and garlic salt to taste.)  Top with grated cheese.  Bake at 350° until cheese is melted.
+
+Jamazetta – Amy Badger – A wonderful recipe my friend Kelly Keesecker introduced me to in Alaska.  Our boys were born exactly one month apart so they had fun going through those first year milestones soon after each other.
+1 lb. ground beef
+1 -3oz. pkg. cream cheese, softened
+1 can tomato soup
+1 small onion, chopped
+½ pkg. egg noodles (or whatever available)
+Sauté hamburger and onion together.  Drain.  Cut cream cheese into cubes.  Add soup and cream cheese to meat and heat through.  Cook and drain noodles.  Mix all ingredients together and bake at 350ºfor 30 minutes.
+Note: Or for faster results, microwave until heated through.
+
+
+
+
+Potatoes and Hamburger - Grandma Grace – “Mother's chopping can was a tin can with one side open and holes punched in the top lid so steam could come through.” – Sue Reber
+Cook potatoes in their jackets with salted water.  Brown 1 lb. ground beef with lots of onion.  Slow cook until ground beef is browned.  (The onions make the mixture a bit watery so cook until moisture is mostly gone.)  Chop potatoes with a chopping can or cut up potatoes.  Mix well and steam to mix flavors. 
+
+Hamburger-Potato Casserole - Bonnie Rachea Hinkle
+1 1/2 lbs. hamburger
+10 med. potatoes, sliced thinly
+2 cups gravy
+1 can green beans, drained
+Salt & Pepper
+Minced onion
+9 x 13-inch cake pan
+Brown hamburger. Slice potatoes. Make gravy (your favorite or packaged). Put browned hamburger in cake pan. Put ½ of sliced potatoes in pan. Add spices as desired.  Add drained green beans & remaining potatoes.  Season again. Cover with foil. Bake at 350° for 1 hour.
+
+Tater Tot Casserole - Barbara & Bonnie
+1 lb. hamburger
+1 medium onion
+2 lbs. frozen tater tots
+1 can cream of mushroom soup
+½ cup finely chopped celery
+1 qt. green beans
+Brown hamburger with onion.  Drain off fat. Season to taste and spread in oblong casserole.  Spread beans on next, then celery.  Spread cream soup then top with tater tots.  Bake for 30 min at 350°.    
+
+Olsen’s Hash - Barbara Olsen
+Brown and drain hamburger enough for your family.  Add chopped onions.  Add peeled, sliced potatoes.  Layer with onions on top of hamburger.  Sprinkle with salt and pepper.    Can add cream of mushroom or chicken soup and ½ can of water on top of the hamburger. Bake in covered pan 45-60 minutes at 350°.
+
+Shepherd’s Pie - Barbara Olsen - This is a recipe dating back to the ancient Britons.  Used in the cold bleak Yorkshire moors and the Penine Chain in England.  The shepherd's wives would cook this hot nourishing meal to warm the shepherds up, after a cold day of caring for their sheep on the moor. It is a good way to use up leftover veggies.  
+2 lbs. hamburger
+1 large onion, diced
+several cups of favorite veggies
+1 pkg. gravy mix (modern touch)
+mashed potatoes
+cheese
+Brown and crumble hamburger and onion. Place in a large pan or casserole dish and add any or all of these vegetables.  Peas, carrots, tomatoes, cabbage, green beans. Make gravy according to package directions and add to meat and veggies in casserole dish. Mash up some boiled potatoes and milk, butter, salt, pepper and about one cup of grated cheese.  Top meat mixture with mashed potatoes.  Some of the cheese can be added to the potatoes and some on top.  Bake at 350° for 30 minutes.
+
+Vegetable & Meat Dish – Barbara Olsen 
+Brown in a heavy saucepan and drain
+   1 lb. ground beef
+   1 med. onion, chopped
+Add:
+   1 tsp. salt & Pepper to taste
+   2 cups water
+Cut: 
+1 med cabbage in 8 pieces
+Simmer for about 15 minutes. Do not boil.  
+Add:
+    2 or 3 potatoes cut small. 
+Boil until tender.  Add more water is needed.  This depends on how juicy you like this dish. A grated raw carrot may be added if you like for the last 10 minutes.  It looks pretty.
+
+
+
+
+Japanese Fried Rice - Grandma Grace
+Cook 2 cups rice. Add salt and soy sauce to taste.   Cook ½ head cabbage, finely shredded and 3 diagonally cut stalks celery, just until tender.  In another pan, fry 1 lb. hamburger.  Add 3 large grated carrots and 1 finely shredded onion. Cook.  SAVE ALL JUICES. Combine all ingredients.  Feeds a bunch of people
+
+Hungry Boy Casserole - Bonnie Chantry - This is my simplified version of the family favorite. 
+1 1/2 lb. hamburger
+1 cup sliced celery
+½ cup chopped green pepper
+½ cup chopped onion
+6 oz. can tomato paste
+3/4 cup water
+1 tsp. salt
+1 tsp. paprika
+½ tsp. accent
+1 large can pork and beans 
+Refrigerator biscuits or Bisquick drop biscuits
+Sauté beef, celery, green pepper, and onion until tender.  Add tomato paste, water, salt, paprika, Accent & beans.  Pour into 9x13 baking pan. Top with biscuits.  Bake 25 to 30 minutes at 425°.
+
+Baked Beans - Barbara Olsen
+1 lb. hamburger
+½ chopped onion
+1 cup celery diced
+1 gr. pepper chopped
+Brown these ingredients and add
+1 ½ tsp. vinegar
+1 ½ tsp. prepared mustard
+1 lg. can pork and beans
+1 can tomato soup
+Mix all together and bake for 35 min. at 350°.
+
+Taco Salad – Sue Reber – This is a recipe from an Education Week class.  It helped in transitioning our family to a healthier diet.  
+½ pound lean ground beef
+1 medium onion, chopped
+1 pkg. taco seasoning 
+OR 1 Tbsp. chili powder and ½ tsp. cumin
+1-15oz. can kidney beans, undrained
+1 cup cooked brown rice
+1 head lettuce, shredded
+4 medium tomatoes, diced
+1 can sliced olives (optional)
+1 cup finely grated cheese (optional)
+3-4 cups tortilla chips
+Salsa
+Catalina dressing OR Ranch dressing
+Brown the ground beef and onion, Drain fat.  Add taco mix and beans.  Simmer 10 minutes.  Stir in rice and let cool a few minutes.  Mix lettuce, tomatoes, olives, and cheese in large serving bowl.  Add meat mixture and slightly crushed chips just before serving.  Toss lightly.  Serve immediately with salsa and dressing.
+Hint: Make up a big batch of ground beef, seasoning, beans and rice, then freeze in quart size freezer bags.  This meat mixture can also be used for tacos or any other Mexican dish calling for seasoned ground beef.   
+
+Navajo Tacos - Emma Largo - Emma stayed with Garth and Ruby on the Indian Placement Program and soon became a beloved part of the Fielding Family.  
+Fry Bread:
+5 cups flour
+2 tsp. baking powder	
+1 tsp. salt
+1/3 cup powdered milk
+Mix flour, baking powder, salt, and milk together.  Stir in lukewarm water to form soft dough.  Knead for 5 min.  Let stand for ½ hour.  Melt shortening in frying pan to make 2 inches.  Pinch off two inches of dough and pat out into thin taco size.  Place in hot grease.  Brown both sides about 10 seconds.
+Filling:
+1 can red kidney beans	
+1 pkg. chili OR taco seasonings
+1 lb. hamburger		
+1 cup grated cheese
+ Brown hamburger, add beans and seasonings.  Top each fry bread with filling and sprinkle cheese on top.
+
+
+
+Tamale Pie - Bonnie Chantry - This was Dennis' favorite school lunch meal so I got the recipe from the "lunch lady" for him.
+Crust:
+5 cups water		
+1 tsp. oregano
+2 ½ cups cornmeal	
+2 tsp. garlic powder
+Cook over medium heat until thick and stiff about 10 minutes, stirring often.
+Meat Filling:
+1 1/2 lb. hamburger browned and drained
+½ small onion, chopped
+1 can cheddar cheese soup
+1 can drained corn
+5 Tbsp. salsa
+Spread a thin layer of cornmeal mixture on a cookie sheet that has sides on it. Cover this with meat sauce and top with rest of cornmeal.  Bake in 350° oven for about 20 minutes. (Actually I am guessing since no time was given.) Cut into squares and serve warm.
+
+Spanish Rice Dinner – Chrissy Probst
+1 pound cooked and drained hamburger
+1 can stewed tomatoes
+1 can cut green beans
+1 cup cooked long grain rice
+1 Tbsp. dried minced onion
+1 Tbsp. sugar
+1 tsp. salt
+1 tsp. Worcestershire Sauce
+½ tsp. ground mustard
+¼ tsp. garlic powder
+1/8 tsp. pepper
+Mix all ingredients together in a bowl.  Put in a gallon size freezer bag and freeze for later!  To eat, defrost and warm in microwave.  Enjoy!
+
+Texas Hash -   Bonnie Chantry - This recipe came from the ward cookbook I helped put together when I was Relief Society President in Granger. BJ
+2 large onions
+3 Tbsp. shortening
+2 cups canned tomatoes
+1 tsp. chili powder
+1/4 tsp. pepper
+1 small green pepper, cut fine
+1 lb. hamburger
+½ cup uncooked rice
+1 tsp. salt
+Cook onion and green pepper slowly in shortening until onions are yellow.  Add ground beef and sauté until mixture falls apart.  Add tomatoes, rice and seasoning.  Arrange in large casserole.  Cover and bake in 375° oven for 45 min. Note: if mixture seems a little dry after cooking add ½ cup water.
+
+Burrito Bake –Liz Bunderson - Serves 6
+1 lb. lean ground beef 
+1 pkg. taco seasoning Mix 
+3/4 cup water 
+12 flour tortillas (6 inch) 
+1 can refried beans 
+1 cup shredded cheddar jack cheese 
+Heat oven to 350°.  Brown meat in large skillet; drain. Stir in seasoning mix and water. Bring to boil. Cook on low heat 10 min., stirring occasionally. Place 4 tortillas on bottom of greased 9-inch pie plate. Cover with half each of the refried beans, meat mixture and cheese. Repeat layers once. Top with remaining tortillas. Bake 30 min. or until heated through and cheese is melted. Cut into wedges to serve.  Serve burrito wedges topped with shredded lettuce, chopped tomato and salsa.
+
+Beef Olé - Grandma Reber
+1 onion chopped fine
+1 green pepper, chopped fine
+3 stalks celery, chopped fine
+1 lb. ground beef
+1 (15 oz.) can tomato sauce
+1 tsp. cumin
+1 tsp chili powder
+Brown ground beef add vegetables.  Simmer 20 minutes only with tomato sauce. Add seasoning when almost cooked. Served over handful of corn chips.  Top with grated cheese and finely shredded lettuce.
+
+
+
+
+
+Mexican Lasagna – Amy Badger - I was introduced to this recipe by the YW in Monterey, CA as we made huge batches of it for a ward dinner we were in charge of.  
+1 lb. ground beef, browned
+2- 8oz. cans of tomato sauce
+1 -14 ½ oz. can of chopped tomatoes
+1 pkg. taco seasoning
+2 eggs, beaten 
+1-15 oz. container of ricotta cheese 
+1 lb. of Monterey-jack cheese, grated
+1 dozen corn tortillas, cut in half
+Brown the ground beef and add the tomato sauce, tomatoes, and taco seasoning.  Simmer for 5 minutes.  In a separate bowl, beat the eggs and add the ricotta cheese.  In a 9x13” pan layer several times the meat sauce, tortillas, ricotta cheese mixture, and grated cheese.  Cover with foil and bake at 350º for 45 min.  
+Variation: Use crushed tortilla chips in place of the corn tortillas – Chris Reber Graham
+
+Enchilada Pie - Sue Reber
+1 lb. ground beef
+1 medium onion 
+1 lb. cheese, grated
+1 can enchilada sauce
+1 pkg. flour tortilla
+1 can kidney or chili beans or refried beans
+Brown ground beef and chopped onions.  Add kidney beans.  Warm enchilada sauce in small pan.  Can tone it down with tomato sauce.  Layer in this order: Tortillas, meat mixture, sauce, cheese.  Place in hot oven just long enough to melt cheese and bubble sauce.  Serve immediately.
+
+Spanish Casserole - Bonnie Chantry
+The Chantry's first tasted this recipe while on a trip to Nebraska to visit Gene's sister Wanda Jordan.  We enjoyed it then and still do.  
+16 oz. Fritos corn chips
+2 small cans pinto beans 
+1 can tomato sauce (8 oz.)
+1 can enchilada sauce
+2 cups grated cheese
+1 lb. hamburger
+Salad made of lettuce, tomato, onion, etc.
+Heat chips in a baking pan in 375 degree oven for 10 minutes.  Heat beans, enchilada sauce and tomato sauce in a pan on stove.  On top of the chips layer hamburger then cheese, salad, heated sauce/beans, and more cheese. Heat until cheese melts.  Serve immediately.
+
+Taco Casserole - Tawna Marsh
+Brown and drain off fat
+   1 lb. Hamburger
+   1 lg. onion chopped
+   small amount of green pepper, diced
+Add:
+   2 (8 oz.) cans tomato sauce
+   1 can cream of mushroom soup
+   1 can chili beans with gravy
+   ½ tsp. oregano
+   Dash of garlic salt
+   Salt and pepper to taste
+Simmer 10 min.--stir often
+   Grated cheese
+    1 pkg. corn or flour tortillas
+Put a thin layer of meat mix on bottom of
+casserole dish, then a thick layer of tortillas, broken in pieces---a layer of cheese. Continue with layers 3 times, ending with cheese.  Bake at 350° for 30 min.
+
+Mexican Casserole - Liz Bunderson
+1 lb. hamburger
+½ onion, chopped
+1- (12 oz) can refried beans
+1 small can sliced olives
+1 sm. can diced green chilies
+½ pkg. taco seasoning
+5 Tbsp. sour cream
+½ cup shredded cheese
+Brown hamburger and onion.  Mix in rest of ingredients.  Spoon onto flour tortillas and roll up.  Melt more cheese on top.  Serve on a bed of shredded lettuce and a scoop of sour cream.
+
+
+
+
+
+
+
+
+Beef Enchiladas - Marjean Spencer
+1 lb. hamburger
+3 slices of onion, chopped
+1 can tomato soup
+1 can enchilada sauce
+1 pkg. flour tortillas
+grated cheese
+green onion, chopped
+olives, slices
+Fry hamburger and onion.  In saucepan combine soup and enchilada sauce, heating until bubbly.  Add ½ cup of sauce to hamburger and stir well.  Warm tortilla shells on hot skillet.  Place 2-3 Tbsp. meat mixture on one end of tortilla shell, top with cheese and roll.  Pour small amount of sauce in bottom of 9x13 pan and place rolled tortillas on top of sauce.  Pour remaining sauce on top, sprinkle with cheese, chopped green onions, and sliced olives.  Bake at 350° for 30 minutes.
+
+Beef Enchiladas – Liz Bunderson – 
+1 lb. ground beef 
+1 onion, diced
+1 pkg. taco seasoning
+1 can black beans
+1 can enchilada sauce (will need more sauce if freezing)
+2 cups Monterey jack cheese
+8 to 10 flour tortillas
+Brown ground beef & onion in large skillet, drain.  Add taco seasoning according to package directions.  Add black beans and 1 cup cheese.  Fill tortilla, place seam side down in a 9x13” baking dish.  Top with enchilada sauce and cheese. Bake at 350° for 30 minutes.
+
+Creamy Hamburger Enchiladas - Trisha Olsen
+1 lb. ground beef
+1 can cream of mushroom soup
+1 can cream of chicken soup
+1 small container sour cream
+1 small can mild chilies
+Mozzarella and cheddar cheese
+1 pkg. soft flour tortillas
+Brown and season ground beef.  Mix together soups, sour cream and chilies add ½ of the mixture to the meat.  Fill tortillas with the mixture and roll.  Put rolled tortillas in a Pam sprayed casserole dish.  Pour remaining sauce over top, then sprinkle with shredded cheese.  Bake for 25 minutes at 350°. 
+
+Chimichangas –Jill Olsen
+1 pound ground beef-browned (or shredded roast beef-the best)
+1 small onion pureed
+1 small green pepper pureed
+1/2 tsp. cumin
+1 tsp. garlic salt
+1/2 tsp. salt
+1/4 tsp. pepper
+2-4 Tbsp. Chili powder
+1 cup refried beans
+1 cup cheese grated
+Brown beef with onion and pepper mix. Add seasonings, beans and cheese. Put 1/2 cup mixture on tortilla. Fold like burrito and fry until light brown on both sides.  I use a small bit of oil heated in a cast iron skillet.  Top with red sauce, guacamole and sour cream, tomatoes, lettuce, etc...
+Red Sauce
+1 pound can whole tomatoes
+1 can diced green chilies (mild)
+1/2 small onion
+1 Tbsp. vinegar
+1-2 Tbsp. white sugar (more if want sweeter)
+Blend all ingredients for 2-3 minutes. Heat on stove. Pour on top of chimichangas.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Meatballs in BBQ Sauce –Tawna Marsh
+2 lbs. hamburger
+½ cup saltine cracker crumbs
+2 eggs, beaten
+2 tsp. salt
+¼ tsp. pepper
+1 Tbsp. chopped onion 
+Mix well and form into balls.  Brown lightly in a skillet over medium heat.  Place in a baking dish and cover with sauce.  Bake covered at 350° for 1 hour.
+BBQ Sauce:
+3 Tbsp. Worcestershire sauce
+3 Tbsp. vinegar
+4 Tbsp. sugar
+2 cups catsup
+1 cup water
+1 medium onion, chopped.
+Stir together to dissolve sugar.  Pour over meatballs before baking.
+
+Sweet and Sour Meatballs –Liz Bunderson 
+Meatballs:
+1 lb. ground beef
+3 egg whites
+1/2 cup bread crumbs
+1 small onion, chopped
+1/4 tsp salt
+1/4 tsp pepper
+Beat eggs w/ fork and add remaining ingredients from above.  Mix and roll into 1" balls.
+Sauce:
+8 oz. tomato sauce
+3/4 cup ketchup
+1/4 cup brown sugar
+2 Tbsp sugar
+ Preheat oven to 350°.  Cover cookie sheet w/ foil and spray.  Mix sauce. Dip meatballs in sauce and place on foil.  Bake 30 minutes.  Brush balls with sauce.  Bake another 15 minutes.  Serve with white rice.
+
+
+
+
+
+
+Meatloaf and Spaghetti Meatballs -Chrissy Probst
+4 pounds of raw hamburger
+3 eggs
+2 cups of Italian Bread Crumbs
+Minced onion to taste (or fresh onion diced)
+1 cup of ketchup
+Mix all ingredients together in mixer.  Form two loaves for meatloaf.  Put formed meatloaf on greased pans and freeze until firm.  Place loaves in Gallon size bags.  When ready to eat, preheat oven to 375 degrees and bake covered (with foil) for one hour.  Add ½ cup of shredded cheese to rest of mixture.  Roll into meatballs.  Place on cookie sheet and freeze until firm.  Place partially frozen meatballs in Freezer bags and label.  When ready to serve, place frozen meatballs in Spaghetti sauce, cover and simmer for 15-20 minutes or until done.  Enjoy!
+
+Shelly's Spaghetti Sauce - Sammi Jo Stewart-
+I got this recipe from a lady I met while living in Virginia.  She is Italian and a fabulous 
+and simple cook.  I use this recipe for spaghetti and lasagna.  Amounts of spices and some ingredients just depend on your preference.
+Diced small onion 
+Minced garlic
+Sauté in extra virgin olive oil until golden brown.
+Add: 3 small cans tomato paste (with a little water) Heat 1 minute
+Add: 2 small cans tomato sauce (with a little water)
+1 large can whole tomatoes (pureed in blender)
+Salt, pepper, garlic salt, onion salt, Italian seasoning, oregano and basil.  (I use a lot of the last three seasonings and add browned hamburger that I cook with garlic salt and Italian seasonings.) Bring to a boil then simmer for 1 ½ hours.  Enjoy!
+
+
+
+
+
+
+
+Come & Get it Casserole - Sue Reber
+8 oz. spaghetti
+2 Tbsp. shortening
+1 lrg. onion
+1 green pepper, opt.
+2 cups tomatoes
+3/4 lb. hamburger
+1 tsp. salt
+½ tsp. pepper
+1 tsp. chili powder
+2 tsp. sugar
+1½ cups grated cheese
+Cook spaghetti in boiling salted water until tender.  Drain.  Melt shortening, add chopped onion and green pepper, and cook until yellow.  Add meat and break up as it cooks.  Add tomatoes, seasonings, cooked spaghetti and 1 cup cheese.  Sprinkle other ½ cup cheese over top and bake in warm oven to melt the cheese.
+
+Spaghetti Pie – Amy Badger – This nice and light alternative to lasagna comes from my favorite cooking magazine, Light&Tasty.  It went over well with everyone in the family.
+1 pound lean ground beef
+1/2 cup finely chopped onion
+1/4 cup chopped green pepper
+1 cup canned diced tomatoes, undrained
+1 can (6 ounces) tomato paste
+1 tsp. dried oregano
+3/4 tsp. salt
+1/2 tsp. garlic powder
+1/4 tsp. sugar
+1/4 tsp. pepper
+6 ounces spaghetti, cooked and drained
+1 Tbsp. butter, melted
+2 egg whites, lightly beaten
+1/4 cup grated Parmesan cheese
+1 cup (8 oz.) fat-free cottage cheese
+1/2 cup shredded part-skim mozzarella cheese:
+Cook the beef, onion and green pepper over medium heat until meat is no longer pink; drain. Stir in the tomatoes, tomato paste, oregano, salt, garlic powder, sugar and pepper; set aside. In a large bowl, combine the spaghetti, butter, egg whites and Parmesan cheese. Press onto the bottom and up the sides of a 9-in. deep-dish pie plate coated with nonstick cooking spray. Top with cottage cheese and beef mixture. Bake, uncovered, at 350° for 20 minutes. Sprinkle with mozzarella cheese. Bake 5-10 minutes longer or until cheese is melted and filling is heated through. Let stand for 5 minutes before cutting.
+
+
+Perfect Pizza –Liz Bunderson
+Makes 2 -12inch pizzas
+Perfect Pizza Dough
+Olive oil for coating or cornmeal for dusting
+1 cup pizza sauce 
+1 ½ cup grated Mozzarella cheese
+1 ½ cup grated Muenster cheese
+1. Prepare Perfect Pizza Dough as directed.  
+Heat oven to 450°.  Punch down the risen dough, knead a few times to remove all the air, and divide it in two.  On a lightly floured work surface, use a rolling pin to roll one portion into a 12-inch round.  Place on a lightly oiled baking sheet.  If you are using a pizza peel (wooden paddle) sprinkle it with cornmeal and then place dough on the peel.  Spread a thin layer of sauce on the crust  -- not too much or the crust will go soggy. Top your pizza with half of the Mozzarella and Muenster cheese and garnish with toppings of your choice. Bake 12-15 minutes.  When done, the crust will be golden underneath.
+Topping Ideas:
+Thinly sliced sautéed mushrooms
+Sautéed, diced, or thinly sliced green peppers
+Blanched tiny broccoli florets
+Sautéed diced onions
+Pepperoni sliced
+Roasted red peppers, patted dry and thinly sliced
+Sliced black olives
+Crumbled cooked sausage or hamburger
+
+
+
+
+
+
+
+
+
+Pizza - Sue Reber – This is the recipe my kids grew up on. It comes from my “Cooking of Italy” travel guide & cookbook set.
+1 pkg. yeast
+4 ½ cups flour
+1 tsp. salt
+1 ½ cups water
+Combine yeast, 2 cups flour, and salt.  Heat water to 120-130°. Just blend with dry ingredients.  Beat 2 minutes.  Add rest of flour to make a soft dough.  Knead 8 minutes.  Let rise until doubled, about 1 hour.  In the meantime prepare sauce:
+Olive oil or salad oil
+1 medium onion diced
+1 clove garlic minced
+2 cups canned tomatoes
+1 (6-oz) can tomato paste
+1 ½ tsp. sugar
+1 tsp. Italian seasoning
+½ tsp. crushed red pepper
+Cook onions, garlic until tender.  Add tomatoes and paste.  Stir to break up tomatoes.  Add sugar, herbs, red pepper, and salt.  Heat to boiling, then simmer 20 minutes.  When dough has doubled, punch down.  Cover for 15 minutes.  Preheat oven 450°.  Grease 2 large cookie sheets, or pizza pans.  Roll dough out and put on baking pan.  Brush with olive or salad oil.  Top with pizza sauce.  Add sausage, ham, pineapple, green pepper, pepperoni, olives, hamburger, etc. sprinkle each pizza with 8 oz mozzarella cheese.  Bake 20 minutes. Note: The dough is this recipe is such that you can throw it in the air and catch it!
+
+Pizza  -  Barbara Olsen
+1 pkg. yeast dissolved in 1/4 cup water
+2 cups flour
+2 Tbsp. shortening
+1 tsp. salt
+water to make dough
+Knead and let rise once.  Roll out onto 2 pizza pans.  Bake 5 minutes at 375°.
+Sauce:
+1 can tomato sauce
+1/4 can water
+diced onions
+good shake of parsley
+½ tsp. Italian seasoning
+Add green pepper, mushroom, sausage, pepperoni, etc.  Top with Mozzarella or Monterey Jack.  Bake until cheese melts.
+
+Mini Pizza -  Barbara Olsen
+Refrigerated biscuits.
+pizza sauce
+toppings of choice
+Monterey jack cheese
+Separate biscuits and flatten out.  Spread pizza sauce (canned or home made.) Put on slices of pepperoni, green pepper chopped, chopped olives, sausage or hamburger browned or anything that would taste good.  Sprinkle grated Monterey Jack and bake until cheese melts at 400° for 8-10 minutes.
+
+Pizza Cups - Sue Reber
+1/4 lb. ground beef
+1/4 cup chopped onion
+1/4 cup tomato sauce
+½ tsp. Italian seasoning
+1/8 tsp. salt
+1/8 tsp. pepper
+1 pkg. refrigerator biscuits
+½ cup shredded mozzarella cheese
+½ cup shredded Monterey jack cheese
+Nonstick cooking spray
+Preheat oven 400°.  Cook ground beef and onion until brown.  Drain off fat. Stir in tomato sauce, Italian seasoning, salt and pepper.  Spray muffin pan with cooking spray.  Place a biscuit in each cup.  Press the biscuit to cover the sides and bottom. Place about 1 tablespoon of cheese in each biscuit cup. Top with rounded tablespoon of meat mixture.  Next top with remaining cheese.  If desired, top with sliced green onion, sliced olives, sliced mushrooms or chopped green peppers before baking.  Bake about 12 minutes or until golden.  Cool on a rack for 5 minutes.  Serve warm.
+
+
+
+
+
+
+
+Pizza Burger - Barbara Olsen
+1 loaf French bread
+1 lb. ground beef
+1/3 cup grated Parmesan cheese
+1/4 cup finely chopped onion
+1/4 cup chopped ripe olives
+1 tsp. salt
+1 tsp. oregano
+Dash pepper
+1 (6 oz.) can tomato paste
+3 tomatoes, slices
+5 slices sharp cheese, halved diagonally.  
+Cut loaf lengthwise.  Combine meat, Parmesan cheese, onions, olives, seasonings, and tomato paste.  Spread evenly on each half-loaf.  Broil about 5 inches from heat 12 minutes or until done.  Alternate tomatoes and cheese slices on top.  Broil 1- 2 minute or until cheese melts.  Cut each half loaf in 4-5 slices.  You can use English muffins split in half.  This was the way I tasted them and it was really delicious.  
+
+Lasagna - Russell Olsen
+Russell's spaghetti sauce - found in sauce section
+Lasagna noodles
+Besciamella sauce (explained below)
+cheese  (whatever is your favorite)
+Besciamella - This is a creamy substance
+1 cup butter
+1 cup flour
+1 quart milk
+Parmesan cheese
+Melt butter and add flour. Cook 2-3 minutes stirring constantly. Add milk and stir until thickened.  Add grated Parmesan cheese until melted. Coat cake pan with RSS (Russell's Spaghetti Sauce).  Put a layer of partially cooked lasagna noodle. (Careful not to burn your fingers in the pasta water).  Another layer of sauce, then besciamella, then cheese...get the picture.  The top layer should be sauce.  You should add the final layer of cheese about 10 minutes before, it's done in the oven.  Bake it whatever temperature you feel like for however long it takes. Note: The besciamella will become thick before you get a chance to add it all to the dish, so initially prepare yourself for the pain in the neck that it will be to clean.  It doesn't hurt to use plenty of sauce.  I've never done this with raw noodles, but if you know how to do it, have at 'er. 2-3 beaten eggs can be added to RSS before putting it all together to make the lasagna come out like cake instead of "mush".  Actually "mush" is just as good. (Ask me I've made "mush”  more times than "cake".)
+
+Cottage Cheese Lasagna – Bonnie Chantry - This is a good starter recipe for lasagna because of the details given.  
+2 Tbsp. butter		
+1/4 tsp. pepper
+3/4 cup chopped onion	
+2 tsp. oregano
+2 cloves garlic, minced	
+1 Tbsp. sugar
+1 lb. ground chuck	
+12 oz. lasagna noodles
+1 quart whole tomatoes	
+2 cups grated cheddar cheese
+1 (6 oz.) can tomato paste	
+1 lb. cottage cheese
+1 tsp. salt		
+3/4 cup grated Parmesan
+Melt butter.  Add onion and garlic.  Sauté until tender.  Add ground chuck and cook until meat is browned.  Drain off fat.  Mash tomatoes and add to browned meat along with tomato paste, salt, pepper, oregano, and sugar. Simmer 1½ hours or until sauce is thick.
+Cook noodles in boiling, salted water until tender. About 10 minutes.  Rinse with cold water until cool enough to handle. Drain. Lightly grease a 13x9 pan.  Place small amount of meat mixture on bottom of pan.  Arrange 1/3 of the noodles on it.  Cover with 1/3 of remaining meat sauce, 1 c. cottage cheese and 1/3 of both cheeses. Repeat twice using remaining cottage cheese on middle layer.  Top with meat mixture and cottage cheese.   Bake at 350° for 30-40 minutes until surface is brown and bubbly.
+
+
+
+
+
+
+Lasagna - Janine Hinkle
+Use Vermicelli sauce below, except do not use caraway or celery seed.  Make a thicker sauce.  Use less sugar.  Use more marjoram.  Layer in a greased pan (use olive oil)
+	Lasagna pasta
+	Meat sauce
+	Grated mozzarella cheese
+	Lasagna pasta
+	Meat sauce
+	Ricotta cheese (not cottage cheese)
+	Lasagna pasta
+	Meat sauce
+Top with a thick layer of mozzarella enough to completely cover sauce.  Bake 375° for 30 minutes or until cheese starts to brown and is completely melted together.
+
+Vermicelli with Sauce - Janine & Daniel Hinkle - Rachea's favorite - Daniel likes grated cheese on noodles before the sauce.  For other noodles make a thicker sauce with more meat.
+2 large cans of crushed or stewed tomatoes or 2-3 lbs. of Roma tomatoes
+2 (6 oz.) cans of tomato paste 
+1 to 1 ½ Tbsp. sugar
+1 tsp. sweet basil
+1 tsp. thyme
+½ tsp. oregano
+2 large bay leaves
+1/4 tsp. caraway seed (optional)
+½ tsp. marjoram
+3 cloves of garlic OR 1 tsp. garlic powder
+½ tsp. celery seed
+1/4 tsp. black pepper
+Salt to taste
+Combine and simmer for 30 minutes.  Add:
+1 large red onion, chopped
+½ cup green pepper, chopped
+½ cup celery, sliced
+Add 1 lb. ground beef and ½ lb. Italian sausage. (If you use sausage eliminate caraway seeds).  Simmer about 10-15 minutes more. We prefer vermicelli noodles.  Do not over cook pasta.  
+
+Zucchini Casserole - Marjean Spencer
+1 lb. hamburger
+16 oz. cottage cheese
+1 1/2 cups sliced zucchini
+1 cup instant rice
+1 tsp. oregano
+1 tsp. garlic salt
+1 can cream of mushroom soup
+1 cup grated cheddar cheese
+Steam zucchini & place ½ of them in casserole dish. Brown hamburger, add rice, oregano and garlic salt. Put half of burger mixture on top of zucchini.  Add half of cottage cheese.  Layer zucchini, hamburger mixture and cottage cheese again.  Pour undiluted soup on top & sprinkle with cheese. Cover. Bake at 350°  35-45 minutes.
+
+Oh Boy Supper - Sue Reber – One of Nathan's favorite's
+1 lb. ground beef, browned
+Add: 1 small onion, diced
+¼ cup diced green pepper, optional
+1 1/2 cups rice cooked
+1 cup celery diced
+1 can cream of mushroom soup
+1 can cream of chicken soup
+1 Tbsp. soy sauce
+Simmer ten minutes, pour over Chinese noodles. Variation: Add ½ cup of uncooked rice & 1½ cups water  in place of cooked rice. Bake covered at 350° for 30 minutes.
+
+Block Party Baked Beans - Blaine Anderson
+2 lbs. ground beef
+2 cups chopped onion
+1 cup chopped celery
+1 can tomato soup
+1 (6oz.) tomato paste
+½ cup catsup
+1 can lima beans, drained
+1 can waxed beans, drained
+1 can chili beans, drained
+1 can pork and beans, undrained
+1/2 cup packed brown sugar
+2 Tbsp. prepared mustard.
+Brown beef on medium heat, drain fat.  Add onion and celery, cook until medium tender.  Stir in soup, tomato paste and catsup.  Simmer 15-20 minutes.  Add remaining ingredients.  Stir.  Bake 1 hour at 325°. Serves 25 people.
+
+
+CHICKEN:
+
+Wienerschnitzel / Cordon Bleu - David Marsh - Wienerschnitzel and its close cousin, cordon bleu, are my favorite main dishes.  I learned to make them on my mission to Austria in the early 70's.  Since then they’ve become some of our kid’s most requested  foods (Sally loves them especially).  I’m sure you’ll enjoy them as well. But first of all, you need to know that Wienerschnitzel has absolutely nothing to do with hot dogs.  A Wienerschitzel is a breaded veal cutlet, but can also be made of pork or chicken. (The word “Schnitzel” means cutlet, and “Wiener” means it comes from Vienna).  Since our family prefers the chicken version, that’s the recipe I’ll give below, but if you want to use either pork or veal, just substitute that for the chicken in the recipe.
+Cordon bleu is actually my very favorite dish – to make it you start with a Wienerschnitzel, then add ham and Swiss cheese on top (or inside). The German way of serving schnitzels is with a gravy on top, but Austrians frown on that– to them the only “real” way of eating Wienerschnitzel is with lots of lemon juice squeezed on top.  And so that’s the way I like it – with lemon juice!!
+Wienerschnitzel
+1 package of chicken breasts (6-8)
+4 eggs
+2 cups flour (seasoned with salt and pepper)
+2 cups bread crumbs (use plain or Italian)
+vegetable oil (or olive oil or canola oil)
+lemons, cut up (or lemon juice)
+First, trim all the fat from the chicken breasts.
+Next, cut the breasts into thirds.  Then put one of the chicken pieces in a strong gallon-size plastic freezer bag (a Ziploc bag), and then pound it (and I mean really pound it!) with the flat side of a meat hammer until it’s very thin and flat. The freezer bag will keep the meat from spraying all over the kitchen. Remove the flattened chicken patty from the freezer bag and put it on a large plate.  Then do the same thing to each of the other chicken pieces, stacking each of them on the plate.
+While you are working on the chicken, pour the oil in a large frying pan, about ½ inch deep, and carefully heat until it’s hot.  Next, get three pie tins (or bowls), and put flour in the first, egg in the second (beaten), and bread crumbs in the third.  Dip each of the chicken patties (front and back) in the flour first, then the egg, and last the bread crumbs.  Then carefully lay each in the hot oil and fry them until golden brown. Remove and drain on paper towel.  Can be served immediately or kept in oven to keep warm.  Serve with lemon wedges. 
+Cordon Bleu
+To make cordon bleu, lay some slices of ham and Swiss cheese on top of some of the Wienerschnitzels (you can try to fold the ham and cheese inside the schnitzel and secure it all with a toothpick, but that always seemed too much work to me).  Then heat them in the oven until the cheese is melted.  Serve with lemon wedges.  Yummm!  Or as they say in Austria, “Mahlzeit!”
+
+Outback Chicken –Becky Concoby
+4 chicken breasts, pounded to 1/2 inch thick
+1 tsp. season salt
+6 slices bacon, cut in half
+1/4 cup Dijon mustard
+1/2 cup honey
+2 Tbsp. corn syrup
+2 Tbsp. mayonnaise
+onion powder, to taste
+1 cup mozzarella cheese
+1/2 cup sliced mushrooms
+Sprinkle chicken with salt & chill 30 minutes
+Cook bacon until crisp, set aside
+Mix next 5 ingredients, set aside. Brown chicken in a little bacon grease for 3 to 5 minutes per side.  Place in 9 in. square pan.  Pour half of sauce over chicken, spread to cover.  Top with bacon, mushrooms, and then cheese.  Cover and bake at 350 for 15 to 20 minutes or until juice runs clear.  Serve with extra sauce.
+
+
+
+
+
+
+
+Sweet and Sour Chicken –Liz Bunderson
+I got this recipe from a good friend of mine, Jesse Thalman.  I don’t love sweet and sour foods but I tried this recipe and really liked it.  So did my kids.
+6-8 boneless, skinless chicken breast halves, cut into bite size chunks.
+¾ cup sugar
+4 Tbsp. ketchup
+½ cup vinegar
+1 Tbsp. soy sauce
+½ tsp. garlic powder
+Place chicken in 9x13 pan.  Mix sauce ingredients together and pour over chicken.  Bake uncovered at 325° for 1 hour, turning chicken every 15 minutes.  Serve over white rice.  Note: Can also be made on the stove top.
+
+Barbecue Chicken - Grandma Grace
+2 lemons thickly sliced OR 4 tsp. lemon juice
+1/4 cup vinegar
+1 tsp. salt
+1 Tbsp. prepared mustard
+½ tsp. pepper
+2 Tbsp. sugar
+1/4 tsp. cayenne pepper
+1/4 cup margarine
+Simmer 20 minutes. 
+Add ½ cup catsup, 
+2 tsp. Worcestershire sauce 
+1 ½ tsp. liquid smoke
+Bring to boil.  Pour over skinned chicken pieces.  Bake slowly at 350° for 1½ hours or 325° for 2 hours, or 300° for 3 hours.
+
+Lemon Herb Marinated Chicken - Liz Bunderson
+2 Tbsp. oil
+1 Tbsp. lemon juice
+½ tsp. rosemary or tarragon crushed
+½ tsp. salt
+1/4 tsp. pepper
+1 lb. boneless, skinless chicken breasts, halved
+In a cup mix oil, lemon juice, herbs, salt and pepper.  Pour over chicken, cover, let stand at room temperature no longer than 30 minutes.  Turning once.  Broil 10 minutes or until thoroughly cooked, turning once.
+
+Microwave Chicken - Grandma Grace
+1 frying chicken	
+1 Tbsp. dried onion flakes
+1/3 cup catsup		
+1 tsp. prepared mustard
+1/3 tsp. orange juice	
+2 Tbsp. soy sauce    
+½ garlic bud	
+2 Tbsp. flour
+1/4 tsp. salt	
+pinch of pepper
+Place chicken in glass 9x13” cake pan. Mix rest of the ingredients with wire whisk until well blended. Pour over the chicken. Cook 10 minutes on Hi in microwave.  Turn over.  Put plastic wrap on & microwave for 10 more min.
+
+15 Minute Chicken & Rice Dinner - Trisha Olsen
+1 Tbsp. oil
+4 sm. boneless, skinless, chicken breast halves
+1½ cups water
+1 can cream of chicken soup
+1/4 tsp. paprika
+1/4 tsp. pepper
+1½ cups Minute Rice (uncooked)
+2 cups fresh or frozen (thawed) broccoli 
+Heat oil in large nonstick skillet on medium high heat.  Add chicken, cover.  Cook 4 minutes on each side on until cooked through.  Remove chicken from skillet.  Add water, soup and seasoning, stir.  Bring to a boil.  Stir in rice and broccoli.  Top with chicken, cover.  Cook on low heat for 5 minutes.  Serves four.
+
+Chicken Almond Casserole –Becky Concoby
+1 1/2 cups cooked rice
+2 cups cooked cubed chicken
+1/2 cup chopped onion
+1/2 cup chopped celery
+1/2 cup chopped green pepper
+1 can cream of mushroom soup
+1 can milk
+salt and pepper
+Top with: 1cup buttered bread crumbs and slivered almonds.  Bake at 350° for 35 to 45 minutes
+
+
+Chicken Nuggets - Liz Bunderson
+2 small whole skinless, boneless chicken breasts (about 1 lb) cut into 1 inch pieces
+1 Tbsp. oil
+½ cup Bisquick
+½ cup cornflake crumbs
+3/4 tsp. paprika
+1/4 tsp. salt
+1/4 tsp. pepper
+Toss chicken in oil.  Mix remaining ingredients in a plastic bag.  Shake chicken in mix a few pieces at a time until coated.  Shake off excess.  Arrange on cooked sheet in a single layer.  Bake at 350° for a few minutes until done.
+
+Chicken Parisienne - Delsa Laxton
+8 chicken breasts
+2 cans cream of mushroom soup
+1 tsp. chicken bouillon added to 1 cup water
+Put chicken in 4 quart pot. Pour soup and bouillon mixture over top.  Bring to boil.  Reduce heat to medium low and simmer for at least 1 hour.  Remove chicken.  Add:
+2 cups sour cream
+½ cup flour
+Mix in the soup mixture.  Cook 30 minutes or until thickened.  Serve over cooked spaghetti and chicken breast.
+
+Thai Chicken Stir Fry – Sue Reber
+1 lb boneless chicken breast, cut 1” strips
+1 Tbsp. olive oil
+1 pkg. frozen stir fry vegetable blend, thawed
+¼ cup apple juice
+¼ cup soy sauce
+¼ cup creamy peanut butter
+2 Tbsp. brown sugar
+2 tsp. garlic powder
+¼ tsp. ground ginger
+¼ tsp. cayenne pepper
+In a large skillet, stir fry chicken in oil for 3-4 minutes or until no longer pink.  Stir in vegetables, cook uncovered for 4-6 minutes or until vegetables are tender.  Meanwhile, in a small bowl, combine the apple juice, soy sauce, peanut butter, brown sugar, garlic powder, ginger and cayenne.  Stir into chicken mixture; heat through.  Serve with rice
+
+Chow Mein - Barbara Olsen
+1/4 cup butter
+1 med. onion, chopped
+Melt butter and sauté onions for 3 min.
+2 cups celery, sliced diagonally
+1 ½ cups broth or chicken bouillon
+Add: celery and broth and simmer for 5 min.
+2 1/4 cups diced cooked pork roast or chicken 
+1 (16oz.) can bean spouts
+1 (5oz.) can water chestnuts
+1 (4oz.) can sliced mushrooms
+Stir in and simmer 5 more min.
+2 Tbsp. soy sauce
+2 Tbsp. cornstarch
+1 tsp. sugar
+Combine remaining ingredients and add to chicken mixture.  Serve over rice or Chinese noodle.
+
+Chicken Picatta –Liz Bunderson
+Serves 6
+6 chicken cutlets
+flour for dusting
+4 Tbsp. oil  (more if needed)
+2 ¼ cup chicken broth 
+3 tsp. garlic, minced
+6 Tbsp. fresh lemon juice
+3 Tbsp. capers, drained
+6 Tbsp. butter
+fresh lemon slices
+Chopped fresh parsley, optional
+Season cutlet with salt and pepper, then dust with flour.  Heat oil in sauté pan over medium-high heat. Sauté cutlets 2-3 minutes on one side. Flip over and sauté other side 1-2 more minutes  with the pan covered.  Transfer cutlets to a warm plate; pour off fat from the pan.
+Deglaze pan with ¾ cup of chicken broth and add garlic.  Cook until garlic is slightly brown and liquid is nearly gone, about 2 minutes.  (watch garlic it burns easily) Add the rest of the broth, lemon juice and capers.  Return cutlets to the pan and cook on each side one minute.  Transfer cutlets to warm plate. Finish with butter and lemon slices.  Once butter melts, pour sauce over cutlets.  Garnish with chopped fresh parsley and serve.
+
+
+Lemon Cream Chicken - Amy Badger
+This is a nice, easy, and impressive chicken dish.  I love the cream sauce and often find myself wanted to lick the pan clean after making it. 
+1/2 cup plus 1 Tbsp. all-purpose flour, divided
+1/2 tsp. salt
+1/2 tsp. pepper
+6 boneless skinless chicken breast halves
+1/4 cup butter or margarine
+1 cup chicken broth
+1 cup whipping cream, divided
+3 Tbsp. lemon juice
+1/2 lb. fresh mushrooms, sliced
+In a large re-sealable plastic bag, combine 1/2 cup flour, salt and pepper. Add chicken and shake to coat. In a large skillet, cook chicken in butter for 8-9 minutes on each side or until juices run clear. Remove chicken and keep warm.  Add broth to the drippings. Bring to a boil over medium heat; stir to loosen browned bits from pan. Simmer, uncovered, for 10 minutes or until broth is reduced to 1/3 cup. Stir in 3/4 cup cream, lemon juice and mushrooms. Cook over medium-low heat for 5 minutes.  Combine 1 Tbsp. flour and ¼ cup cream until smooth; stir into skillet. Bring to a boil; cook and stir for 2 minutes or until thickened. Return chicken to skillet and heat through. Yield: 6 servings.
+
+Artichoke and Chicken Casserole –Becky Concoby
+1/2 lb. fresh mushrooms, sliced
+2 Tbsp. butter
+1-14oz. can chicken broth
+4 chicken breasts
+1- 14oz. can artichoke hearts
+1/4 cup butter
+1/4 cup flour
+dash salt
+dash pepper
+3/4 cup light cream
+1/2 cup parmesan cheese
+1/2 tsp. rosemary
+Sauté mushrooms in butter. Put chicken in broth and cook for 20 minutes.  Remove and let cool.  Put chicken in a 9x13” pan.  Top with artichoke hearts.  Melt butter add flour salt and pepper.  Gradually stir in 3/4 cup chicken broth and light cream.  Cook until thickened, blend in parmesan cheese and rosemary.  Pour sauce over all, then mushrooms.  Bake at 325° for 30 minutes.
+
+Chicken –A-La-King - Tawna Marsh
+6 Tbsp. butter
+6 Tbsp. flour
+1 tsp. salt
+1/8 tsp. pepper
+1 cup half and half
+1 ½ cup well seasoned chicken broth
+1 cup cooked frozen peas, thawed
+1 hard cooked egg (optional)
+1 Tbsp. lemon juice
+1 cup sautéed mushrooms
+½ cup diced green peppers
+1/4 cup diced pimento (optional)
+2 cups diced cooked chicken.
+Melt butter, blend in flour.  Add salt & pepper.  Cook over low heat.  Add broth and half & half.  Bring to a boil for 1 minute.  Reduce heat.  Add remaining ingredients.  Serve over noodles, toast or biscuits.  Serves 8-10.
+
+Grilled Bruschetta Chicken – Liz Bunderson - I got this recipe out of a Kraft foods magazine. It is sooooo yummy! Serves 4.
+¼ cup sun dried tomato vinaigrette dressing, divided
+4 boneless skinless chicken breast halves
+1 tomato, finely chopped
+½ cup mozzarella cheese
+¼ cup chopped fresh basil or 1 tsp dried basil
+Place large sheet of heavy duty foil over half of grill grate; preheat grill to medium heat. Refrigerate chicken in baggie with 2 Tbsp. of dressing for 10 minutes to marinate. Remove chicken from marinade & grill chicken on uncovered side of grill 6 minutes. Meanwhile, combine tomatoes, cheese, basil and remaining 2 Tbsp. of dressing. Turn chicken over: place, cooked side up, on foil on grill. Top evenly with tomatoes mixture. Close lid. Grill an additional 8 minutes or until cooked through. Serving suggestion: Enjoy with cooked spaghetti and grilled or steamed vegetables. 
+
+Chicken & Rice - Barbara & Bonnie
+1 1/2 cups raw rice
+3 cups cold water
+1 can cream of chicken soup
+3-4 lb fryer
+1 pkg. onion soup mix
+1 1/2 cup grated cheese
+Spread rice in bottom of 9x13” pan. Sprinkle 1 cup cheese over rice.  Place chicken pieces over rice, salt and pepper. Sprinkle onion soup mix on chicken.  Beat chicken soup until smooth and spread over chicken. Pour in cold water. Bake uncovered at 350° for 1 hour. Remove from oven sprinkle with remaining cheese. Cover with foil and bake ½ hour more. 
+
+Chicken & Rice - Janine Hinkle
+Bread about 4 lbs skinned, deboned chicken pieces.  
+Boil together for 10 minutes the following:
+1 can cream of chicken soup
+2 ½ Tbsp. onion
+1 Tbsp. parsley
+1 tsp. salt
+½ tsp. thyme
+½ tsp. celery salt
+1 1/3 cup water
+After boiling add:
+1 1/2 cup Minute Rice
+Add in layers in casserole dish:
+½ soup mixture / chicken / ½ soup mixture
+Bake at 375° for 30 minutes.
+
+Sunday Chicken - Grandma Reber – A  quick, easy, and delicious meal any day of the week.
+2/3 cup rice 
+1 envelope dry onion soup mix
+6-8 large pieces of chicken
+1 can cream of mushroom soup
+1 can cream of chicken soup
+2 cans water
+Layer rice, onion soup, & chicken.  Cover with mixture of soups and water.  Pour over chicken.  Cover with foil.  Bake 300° for 2 hours.
+
+
+
+
+Sunshine Chicken - Grace Ann Skousen - This was our favorite recipe in Israel. All the meat in Israel is Kosher. We found Kosher beef to taste very different than our beef...so we used a lot of Kosher chicken.
+8 thighs and 8 drumsticks (or other pieces)
+1 tsp. salt                
+1 tsp. basil
+1/4 tsp. pepper
+½ cup soy sauce   
+½ cup catsup
+1/4 cup honey
+1/4 cup oil
+garlic to taste  
+Sprinkle chicken with salt, pepper and basil.  Place in baking dish.  Mix rest of ingredients in bowl.  Pour over chicken, save some for basting.  Bake 350° for 1 hour.
+
+Apricot Glazed Chicken - Jill Olsen
+5 lbs. chicken pieces, skinned
+1 cup Catalina dressing 
+1 cup apricot preserves 
+1 envelope dry onion soup mix
+Place chicken in large baking pan. Mix remaining ingredients; pour over chicken. Bake at 350 ° for 1 hour to 1-1/4 hours or until chicken is cooked through and tender. 
+
+Wedding Luncheon Chicken – 
+Grandma Reber
+Pound chicken breast into ½ inch thick.  Dip in milk, then flour, then milk again.  Then coat with seasoned bread crumbs.  Heat ¼” oil in frypan.  Fry until gold brown.  Cover with white sauce and serve.
+WHITE SAUCE:  Make a thin white sauce with half chicken broth and half light cream.  Season with salt and pour over chicken.
+
+
+
+
+
+
+
+
+
+
+Chicken Pot Pie - Trisha Olsen
+1 or 2 chicken breasts
+1 cup cooked and cubed potatoes
+½ cup cooked and sliced carrots
+1/4 cup frozen peas
+1/4 cup frozen corn
+1 can cream of chicken soup
+½ cup milk
+1 ready made crust (I like Pillsbury brand.  It has a flaky crust.)
+Mix chicken, vegetables, soup and milk together.  Pour into prepared pie shell.  Follow pie shell direction for baking.  I usually bake at 425° for about 45 minutes. Tin foil edges after the first 20 minutes to prevent burning.
+
+Chicken Ala Crescent Rolls - Barbara Olsen
+1 small pkg. cream cheese
+juice of ½ lemon
+4-5 cups cooked chicken
+2 cans Pillsbury crescent rolls
+Mix together first 3 ingredients. Separate dough and put spoonful of mixture on roll and roll it up.  Pull edges together to cover chicken mixture.  Dip in melted butter.  Roll in bread crumbs.  Bake at 375° for 20 minutes.  Make gravy from chicken broth.  Sprinkle in celery salt and pepper.  Thicken with cornstarch.  
+
+One Dish Chicken & Stuffing - Liz Bunderson
+4 cups herb seasoned cubed stuffing
+6 skinless, boneless, chicken breasts, halved
+paprika
+1 can cream of mushroom soup
+1/3 cup milk
+1 tsp fresh parsley
+Mix stuffing mix.  Spoon stuffing across center of a 2 qt shallow baking dish.  Place chicken on each side of the stuffing.  Sprinkle chicken with paprika.  Mix soup, milk and parsley.  Pour over chicken.  Bake covered at 400° for 15 minutes or uncovered 15 minutes or until chicken is no longer pink.
+
+
+
+
+
+
+Chicken & Stuffing Supreme  - Trisha Olsen
+However many chicken breast you need.  Put in baking dish - top with sliced or grated mozzarella or Swiss cheese - Mix 1 can cream of chicken soup and 1 can water. Pour over chicken.  Make Stove Top stuffing according to package directions.  Put on top of soup.  Bake 350° for 1 hour.
+
+Compassionate Service Chicken & Stuffing Casserole –Amy Badger-This is my favorite easy to whip up meal when I am taking dinner to someone in need.
+2 boxes of stuffing- cooked as directed.
+3 lg. cans chicken OR 3 cups cooked chicken
+1 can cream of chicken soup
+½ cup milk
+1 cup sour cream
+1 cup shredded cheese
+Layer chicken in bottom of 9x13” pan.  Mix sour cream, soup & milk together.  Pour over chicken.  Spread cooked stuffing over top.  Bake at 350° for 20 minutes.  Add cheese the last few minutes on top to let it melt.
+Note: This meal can easily be made in two 8x8 square pans.  One for you and one for a friend or an extra to freeze for later.
+
+Hawaiian Haystacks Or Chinese Sundaes - Bonnie Chantry - This was a favorite recipe at Relief Society parties in Summit Park. 
+1 (9 oz) can chow mein noodles
+4 cups cooked long grain rice
+2 cups cream of chicken soup diluted with 1 cup chicken broth
+1 cup chopped celery
+3 medium tomato wedges
+½ cup chopped green peppers
+½ cup chopped green onions
+1 cup grated cheddar cheese
+1 (20 oz) can pineapple chunks, drained
+½ cup grated coconut
+½ cup slivered almonds
+maraschino cherries
+Stack the 13 ingredients on plate in order given, topping with cherry as a sundae.  Variation:  Ham chunks and mushroom soup can be used instead of the chicken.
+
+Ranch Chicken - Grace Ann Skousen
+4-6 boneless, skinless chicken breasts
+1 cup crushed Ritz cracker
+1 cup Parmesan cheese
+1 pkt. dry ranch dressing mix
+Melted butter
+Wash chicken, dip in melted butter.  Mix crackers, cheese and ranch mix.  Coat chicken in mixture and bake at 350° for an hour in a glass pan covered with foil.
+
+Chicken Olé - Amy Badger – This recipe is from Kyla Evenson, a friend I met at Snow College.  I was in charge of the Home & Family Studies Club which had a nice budget, but not many people involved.  For an activity I took everyone to the grocery store and let them buy what ever they needed to make their favorite recipe.  This was a favorite that night.
+1 can cream of chicken soup
+1 can cream of mushroom soup
+1 cup (8oz.) sour cream
+4 oz. can chopped green chilies
+2 to 3 cups of diced cooked chicken
+3 cups shredded Colby-jack cheese
+1 pkg. white corn tortillas
+Mix together soups, sour cream, chilies & chicken.  Set aside.  Cut tortillas into quarters and cover bottom of a 9x13” pan.  Cover with sauce and then sprinkle with about 1 cups cheese.  Repeat layers ending with cheese. Bake at 350º for 35 to 45 minutes or until bubbly hot.
+
+Baked Chicken Enchilada - Sarah Manis
+½ cup onion
+1 can chopped green chilies
+2 cups chicken
+1 can cream of chicken soup
+grated cheese
+Corn tortillas
+Sliced olives
+Sauté onions.  Add green chilies and chicken. Can add sliced olives to chicken mix.  Layer chicken mixture.  Add layer of torn up tortillas.  Layer back and forth then pour can of cream of chicken soup diluted with ½ cup water over top of all.  Cover with cheese & bake at 350° until bubbly.
+Chicken Enchiladas - Lisa Olsen
+8 chicken breasts cooked and shredded, (I use skinless, boneless breasts)
+1 pint sour cream
+2 cans cream of chicken soup
+2 small cans or 1 large can mushroom pieces
+1 cup Monterey or mild cheese
+8 soft tortilla shells
+Mix chicken, sour cream, soup and mushrooms.  Fill tortilla shells.  Roll and place in baking dish.  Bake in 350° oven until heated through.  Top with grated cheese & bake until melted.
+
+Honey Lime Chicken Enchiladas – Amy Badger – One of the best things about living in El Paso is all of the amazing Mexican restaurants.  I had to start learning to cook good Mexican food or go broke always eating out.  My whole family loved these enchiladas.
+3/4 cup honey
+Lime juice (1-2 limes)
+1 tablespoon chili powder
+1/2 teaspoon garlic powder
+1 teaspoon cumin
+------------------------
+1 pound chicken, cooked and shredded (I used 3 chicken breasts)
+8-10 flour tortillas
+1 pound monterey jack cheese, shredded
+16oz. green enchilada sauce
+1 cup heavy cream
+Mix the first five ingredients and toss with shredded chicken. Let it marinate for at least 1/2 hour (I tossed mine together in a ziploc bag in the morning and let it sit in the refrigerator all day). Pour about 1/2 cup enchilada sauce on the bottom of a 9X13 baking pan. Fill flour tortillas with chicken and shredded cheese, saving about 1 cup of cheese to sprinkle on top of enchiladas. Mix the remaining enchilada sauce with the cream and leftover marinade. Pour sauce on top of the enchiladas and sprinkle with cheese. Bake at 350 degrees for 30 minutes until brown and crispy on top.
+
+
+
+
+Baked Chicken Chimichangas - Tawna Marsh
+1 can green chilies
+1 envelope taco seasoning
+1 whole chicken breast for 4 people
+large flour tortillas (as many as people you are feeding)
+butter or margarine
+Boil chicken breast, de-bone the meat and shred.  Save the water from boiling the chicken.  Add the taco seasoning and green chilies.  Boil water down to about 2 cups.  Add chicken and cook gently with lid off for 1-2 hours (Can put in crockpot on low all day). Coat flour tortillas with melted butter then fill with the chicken mixture. Fold up tortilla chimichanga style. Cook at 500° for 8-10 min. on greased cookie sheet.  Place shredded cheese on top and place back in oven to melt. Serve with all the Mexican toppings.
+
+Mexican Chicken Lasagna – Amy Badger – This is a favorite Mexican dishes.  Anything with cream cheese in it has to taste good.
+1/4 cup fresh cilantro leaves, lightly packed 
+1 (8oz) pkg. cream cheese, softened
+2 cups monterey jack cheese, shredded, divided 
+1 medium onion (about 2/3 cup chopped) 
+1 (28oz.) can enchilada sauce 
+12 (6-inch) corn tortillas 
+3 cups cooked chicken (diced or shredded) 
+fresh cilantro leaves, chopped (optional) 
+Add ¼ cup cilantro and 1½ cups of the Monterey Jack cheese to the softened cream cheese; mix well. Spread 2/3 cup of the enchilada sauce over bottom of casserole dish. To assemble lasagna, using tongs, dip four tortillas into remaining enchilada sauce and arrange over sauce in 9x13 pan. Scoop half of the cream cheese mixture over tortillas and spread flat. Top with 1 cup of the chicken and one-third of the onion. Repeat layers one time. Dip remaining tortillas into sauce and arrange over second layer. Top with remaining chicken and onion. Pour remaining enchilada sauce over lasagna and sprinkle with remaining ½ cup Monterey Jack cheese. Bake at 350° for 25 to 30 minutes or until bubbly hot. Sprinkle with additional chopped cilantro. 
+Kenna’s Chicken Taco Rich - Rachel Mitchell
+1 pound chicken breast cut into chunks
+2 Tbsp. vegetable oil
+1 can (13 oz.)  chicken broth
+1 can (8 oz.) tomato sauce
+1 pkg. taco seasoning
+1 can (12 oz.) corn, drained
+1 medium red pepper cut in strips
+1 ½ cups Minute rice
+Cook and stir chicken in hot oil until lightly browned.  Add broth, tomato sauce, seasoning mix.  Bring to a boil and stir in rice.  Cover and remove from heat.  Let stand 5 minutes.  Cover with shredded cheese.  
+
+Fajita Pitas - Barbara Olsen
+2 Tbsp. oil
+1 small onion, sliced
+1 small green pepper, sliced
+2 boneless skinless chicken breasts, thinly slices
+1 (15 oz) chunky salsa
+Pita bread or warmed tortillas
+In large pan stir fry first 4 ingredients.  When chicken is cooked, stir in salsa.  Heat through and spoon into pita or tortillas.  Makes 4-6 servings
+
+Chicken Stir Fry - Liz Bunderson
+2 Tbsp. oil
+1 lb. skinless, boneless chicken breasts cut into thin strips
+1 bag frozen vegetables, thawed
+½ tsp. ginger
+1/4 tsp. garlic powder
+1 cup tomato soup
+2 Tbsp. soy sauce
+1 Tbsp. vinegar
+4 cups hot cooked rice
+In a skillet over medium heat, brown half of the chicken in the hot oil.  Remove and cook other half of chicken.  Remove.  Add remaining 1 Tbsp. hot oil.  Stir fry vegetables with ginger and garlic powder until tender crisp.  Add soup, soy and vinegar.  Heat to boiling.  Return chicken to skillet.  Heat through. Serve with rice.
+
+Greek Grilled Chicken and Vegetable Salad with Warm Pita Bread for Wrapping – Amy Badger – Greek food has become a family favorite…except for Stephen.
+1 ½ lbs. chicken breast, cut in strips OR tenders
+Salt and pepper 
+8 pita breads 
+1 ripe lemon, zested and juiced 
+3 Tbsp. red wine vinegar, eyeball it 
+1/2 cup extra-virgin olive oil, eyeball it 
+2 Tbsp. fresh chopped oregano (4 stems, stripped of leaves and chopped) 
+3 cloves garlic, chopped 
+2 hearts Romaine lettuce, chopped 
+1/2 cup pitted Kalamata olives, chopped 
+8oz. feta cheese, crumbled 
+2 vine ripe tomatoes, seeded and diced 
+1/3 seedless or English cucumber, diced 
+1/2 red onion, chopped 
+1/2 cup flat leaf parsley leaves, chopped
+Preheat grill pan over high heat. Place chicken in shallow dish and season with salt and pepper. Preheat oven to 275°. Wrap pita breads in foil. Place in warm oven and heat until dinner is served.  Combine lemon zest, juice and vinegar in a bowl and whisk in oil. Add oregano, garlic and whisk again to combine into dressing. Pour half the dressing over chicken tenders. Turn tenders in dressing to coat.  Combine remaining salad ingredients in a bowl. Pour remaining dressing over salad and toss well. Season salad with salt and pepper. 
+Grill tenders 4 to 5 minutes on each side. Transfer hot tenders to the salad lined serving platter. Remove pitas from oven and cut in half. To serve, each person can pile grilled chicken and veggies onto pita halves, wrap up on either side and enjoy!
+
+Chicken Garlic Noodles - Alice Chantry
+1 whole Chicken (boiled, skinned & boned)
+2 Tbsp. Butter or Margarine
+2 Tbsp. chicken bouillon granules
+2 cans evaporated milk
+2 cups chicken stock (saved from boiling the chicken)
+6 cloves garlic (cleaned & diced)
+1 small onion (pealed & diced)
+12 oz. noodles, cooked and drained (any kind of noodles will do) I've used angel hair, spaghetti, elbow mac, shells & even Japanese noodles.
+Cut chicken in to small chunks, and set aside.  In a large frying pan (I use a cast iron one) melt butter and sauté garlic and onion.  When they are golden brown, add chicken chunks, and brown chicken slightly. Add bullion and stock.  Cook for ten minutes at medium low.  Add canned milk and cook for five more minutes at medium.  You need to increase the temperature when you add the milk. Sauce is complete.  You can either pour the noodles and sauce in a big bowl and mix before serving or you can arrange noodle on a platter and pour the sauce on top.  Serve while still hot.  Serving size 6
+
+Chicken & Broccoli Braid – Alecia Bales
+An impressive braid filled with a cheesy combination of chicken & crisp veggies from my Pampered Chef phase.
+2 cups cooked chicken, chopped
+1 cup broccoli, chopped
+½ cup red bell pepper, chopped
+1 garlic clove, pressed
+1 cup shredded sharp cheddar cheese
+½ cup mayonnaise
+2 tsp. dill
+½ tsp. salt
+2 pkg. refrigerated crescent rolls
+1 egg white, lightly beaten
+2 Tbsp. slivered almonds
+Preheat oven to 375° Mix together chicken, pepper, broccoli, mayo, seasonings, garlic and cheese.  Unroll crescent dough and arrange on a 12x15” cookie sheet.  Roll dough and seal perforations.  On outer edge of dough cut strips 3” deep.  Spread filling evenly over middle of dough.  Braid strips of dough across mixture to meet in center. (The next two steps you can do or skip.  I like it either way.) Brush egg white over dough.  Sprinkle with almonds.  Bake 20 minutes or until golden brown. 
+
+
+
+
+
+Chicken and Broccoli Bake - Marjean Spencer - Dustin's favorite
+Chicken, boneless and skinless
+1 lrg. bunch broccoli
+1 can cream of chicken soup
+½ cup milk
+1/4 cup mayonnaise
+1/4 cup salad dressing
+2 tsp. lemon juice
+1 cup grated cheddar cheese
+Fry chicken in small amount of oil until cooked and chopped into bite size pieces.  Place in bottom of casserole dish.  Cook broccoli and drain, put over chicken is dish.  In a sauce pan combine soup, milk, mayonnaise, salad dressing and lemon juice.  Heat until smooth.  Remove from heat and add cheese, stirring until melted.  Pour sauce over broccoli.  Bake at 350° for 45 minutes.
+
+Chicken Broccoli - Sue Reber 
+2 cups diced chicken
+10 oz. frozen broccoli, cooked.
+Layer the broccoli, then chicken bits, sprinkled with paprika and pepper.
+Sauce:  1 can cream of chicken
+	½ cup mayonnaise
+	½ tsp lemon juice
+	½ tsp curry powder
+Sprinkle with paprika and Parmesan cheese.  Bake at 350° for 35 minutes.
+
+BBQ Chicken Pizza – Suzanne Reber– This is a favorite pizza for Reber family get-togethers.   
+1 cup warm water
+3 cups bread flour
+2 Tbsp. powdered milk
+3 ½ Tbsp. sugar
+1 tsp. salt
+3 Tbsp. butter, cut into 6 pieces
+2 tsp. active dry yeast
+Toppings:
+½ to ¾ of a bottle of BBQ sauce
+4 chicken breast, cut into 1”cubes
+shredded mozzarella cheese
+Add water to bread machine pan.  Add dry bread ingredients in order listed.  Add butter last.  Choose dough setting on bread machine.  After bread has risen and cycle ended, divide dough in half and roll out each piece into a circular shape and place on pizza pan sprayed with cooking spray and dusted with cornmeal.
+Cook chicken in skillet until juices run clear, add BBQ sauce and heat through. Spoon chicken and BBQ sauce over pizza dough.  Cover with cheese. Bake at 400º for 15 to 20 minutes or until golden brown. 
+
+Chicken Bacon Calzones – Amy Badger- This are a specialty of Priscilla Bingham my workout buddy in Sierra Vista, AZ. Simple to make but they taste like lots of effort.
+2 cups cooked chicken, cubed
+½ jar Alfredo sauce
+6 pieces bacon, cooked & crumbled
+2 tomatoes, diced
+½ cup cheese, (any kind you like)
+Your favorite bread dough
+Mix together all ingredients, except for bread dough.  Roll out bread dough into 12 inch circle.  Place chicken mixture on one side of circle.  Fold over other side of circle onto chicken mixture and pinch edges shut.  Cut slits into dough.  Let rise for about 20 to 30 minutes.  Bake at 375º for 35 to 45 minutes or until golden brown.
+
+TURKEY:
+
+Turkey - Jill Olsen
+Rub entire turkey with soy sauce, pour some inside.  Wrap in foil, breast side down.  After cooking add enough hot water to drippings to make one quart.
+Add:
+1 cube butter
+2 chicken bouillon cubes
+Accent to taste
+Salt and pepper to taste
+Heat if necessary.  Slice turkey and set in foil lined dripper pans.  Pour mixture over top, cover with foil and freeze.  Reheat when ready.
+
+
+
+
+
+Mormon Miracle Pageant Barbecued Turkey and Marinade
+This famous recipe has been handed out at the Mormon Miracle Pageant ward diners served every year in July.  Over 100,000 people attend this famous pageant each year.  To feed the crowds of hungry people, the local Mormon Church hosts these dinners.  The following recipe is delicious and will feed a crowd.
+1 pint Wesson oil
+1 tsp. horseradish
+1 quart 7-Up
+½ tsp. garlic powder
+1 pint soy sauce
+10 lbs boneless turkey breast
+Combine all ingredients together.  Marinate breast strips in a plastic container with a cover.  Refrigerate for 18-24 hours.  Barbecue the meat slowly.  Do not over cook. Turn frequently.  Dip the meat in extra sauce with each turn of the meat.  Cook until meat is white.  To store leftover meat, cover it with sauce and place in an airtight plastic bag.  You can freeze the meat for up to 6 months.
+
+Reber Turkey Legs - Grandma Reber
+Turkey legs
+salt and pepper
+crushed oregano
+basil         
+thyme
+Sprinkle turkey legs with salt, pepper, oregano on both sides.  Basil or thyme on just one side. Wrap in foil. Bake 1 hour at 350°.
+
+Creamy Cranberry Turkey Terrific Sandwich - Liz Bunderson
+½ cup cranberry sauce
+2 Tbsp. mayonnaise
+½ tsp. grated orange zest (opt.)
+6 slices oatmeal bread
+3 curly leaf lettuce leaves
+1 pkg. (6 oz) Turkey lunchmeat or leftover Thanksgiving turkey
+In small bowl whisk cranberry sauce, mayonnaise and orange zest until blended.  Spread on 3 slices of bread. Top with lettuce and turkey.  top with remaining cranberry mixture and bread.
+Turkey Casserole - Jill Olsen
+2 cups diced turkey, chicken or ham
+2 Tbsp. diced onion
+1 tsp. salt
+1 cup slivered almonds
+2 cups diced celery
+2 cups cooked rice
+6 hard cooked eggs
+Mix above together.
+Combine:
+2 cans cream of chicken soup
+3/4 cup evaporated milk
+1 ½ cup mayonnaise
+Mix with turkey mixture. Put in 9x13”pan. Top casserole with ½ cup bread crumbs and 2 Tbsp. melted margarine.  Bake 375° for 30 minutes.
+
+Turkey Enchilada Casserole –Sammi Jo Stewart
+1 lb. ground turkey
+1 med. green pepper (chopped)
+1 med. onion (chopped)
+3 garlic cloves (minced)
+2 (15 oz.) cans black beans (rinsed and drained)
+1 jar (16 oz.) salsa
+1 can (15 oz.) tomato sauce
+1 can (14.5 oz.) Mexican stewed tomatoes
+1 tsp. onion powder
+1 tsp. garlic powder
+1 tsp. ground cumin
+12 corn tortillas
+2 cups shredded cheese
+Cook turkey, green pepper, and onion over medium heat until meat is no longer pink.
+Add garlic and cook 1 minute longer.  Drain if needed.  Stir in beans, salsa, tomato sauce, tomatoes, onion powder, garlic powder and cumin. Bring to a boil. Reduce heat and simmer uncovered for 10 minutes.  Spread 1 cup meat sauce in 9x13 pan.  Top with 6 corn tortillas.  
+Spread with half of the remaining sauce and 1 cup of cheese.  Layer the remaining tortillas and meat sauce.  Cover and bake at 350° for 20 minutes.  Uncover and sprinkle remaining cheese.  Bake 5-10 minutes or cheese is melted.  Note: I've only used ground turkey but I think it would be good with chicken or hamburger.
+
+
+Turkey Stuffing Casserole - Alecia Bales
+1 box prepared stuffing with 1 cup water
+2 cups diced turkey
+1 can cream of chicken soup
+1/4 cup milk
+Place stuffing on bottom and sides of 1 1/2 quart casserole dish creating a hollow in the center.  Place turkey in the hollow area.  Mix soup and milk and pour over turkey, cover and bake at 350° for 30 minutes.
+
+Turkey Enchiladas - Alecia Bales
+Diced turkey
+Chopped onion
+Grated cheese
+12 flour tortillas
+1 pint sour cream
+1 can cream of chicken soup
+Mix soup, sour cream and onion.  Place diced turkey on flour tortilla, spoon some sauce over meat and top with cheese.  Roll up and place in baking dish.  Repeat with all tortillas.  Pour remaining sauce over top of enchiladas top with some cheese, cover and bake 350° for 30 minutes.  Serve with olives and salsa.
+
+Simple Lo-Mein - Amy Badger- From one of my favorite cookbooks called “How to Cook Without a Book” I still need the book. ☺
+1 lb. turkey kielbasa, cut into slices
+1 onion, cut into wedges
+8 oz vegetables, cut into bite-sized pieces
+(OR a package of frozen stir-fry veggies)
+1 1/2 tsp. minced garlic OR 1tsp. garlic powder
+1 1/2 tsp. minced fresh ginger 
+OR 1 tsp. ginger powder
+2 Tbsp. vegetable oil, divided
+8 oz. cooked spaghetti, (1/2 package)
+Mix the flavoring sauce ingredients together; Flavoring Sauce:
+1/4 cup chicken broth
+1/4 cup soy sauce
+2 tsp. rice wine vinegar
+2 tsp. toasted sesame oil
+1 tsp. red pepper flakes
+1 tsp. sugar
+Heat a large (12-inch) heavy-bottomed skillet over low heat while preparing onion, vegetables, garlic, and ginger. Three to four minutes before stir-frying, turn on the exhaust fan and increase the heat to high. Put 1 Tbsp. of oil and the onion in the skillet; stir-fry until the onion is still crisp but starts to turn brown, about 1 minute. Add the first ½ of the veggies; stir-fry until tender-crisp, about 1 min. Add the second ½ of veggies; stir-fry about 1 min. longer. (Adding all the veggies at once makes it so they don’t stir-fry very well) Stir in garlic and ginger. Transfer to a bowl and set aside. Put the remaining 1 Tbsp of oil in the skillet; heat until shimmering. Add the spaghetti; stir-fry until heated through, about 2 minutes. Return the meat/vegetable mixture to the pan, along with the flavoring sauce; heat through. 
+
+Spicy Turkey Sausage Lasagna - Amy Badger
+1 lb. spicy fresh turkey sausage links in casing, squeezed out of casing.
+1 box lasagna noodles
+2 large cans spaghetti sauce (about 26oz.)
+½ can of water (this extra liquid is what allows you to use uncooked noodles)
+1 cup diced onions
+½ cup diced green peppers
+½ cup sliced mushrooms
+1 can olives, sliced
+1-15. oz. container Ricotta cheese (I use cottage cheese pureed in the blender because it is usually cheaper and tastes the same to me)
+½ cup shredded parmesan cheese
+1 Tbsp. Italian seasoning
+1 egg
+2 cups shredded mozzarella cheese
+Cook sausage in a large skillet until no longer pink in the center.  Add diced veggies to sausage when about ½ way done.  Cook until veggies are tender.  Add spaghetti sauce. Heat through.  In a separate bowl mix together the ricotta cheese, parmesan cheese, egg and Italian seasoning.  In a 9x13 pan, ladle enough sauce to cover the bottom.  Cover with 1 layer of uncooked lasagna noodles.  Spread about 1/3 of the cheese mixture over the dry noodles.  Repeat layers of sauce, noodles, cheese mixture, ending with sauce.  Cover tightly with tin foil.  Bake in 350º oven for one hour or until noodles can easily be cut. Uncover and sprinkle with mozzarella cheese for the last 10 min. 
+PORK, HAM, BACON, & SAUSAGE:
+
+Portobello Pork Chops – Sue Reber – The “Pork Lady” comes to school to do a presentation for the foods classes and this is a delicious recipe she shared with us.
+4 bone-in pork rib or loin chops ¾” thick  
+1 1/2 cups mild chunky salsa  
+1 cup chopped Portobello mushrooms  
+1 cup shredded cheddar cheese  
+2 Tbsp. maple syrup  
+1/4 cup snipped fresh parsley  
+Heat oven to 375°. Trim fat from chops.
+Spoon salsa into a 3-quart rectangular baking dish. Arrange chops on top of salsa. Combine Portobello mushrooms, cheddar cheese and maple syrup in a medium bowl. Spoon over chops. Bake, uncovered, for 25 to 30 minutes. Sprinkle with parsley. Serve chops with salsa mixture.
+
+Pork Chops & Rice - Angela Olsen
+Layer in a 9x13” baking dish
+1½ cups long grain rice
+1½ cups shredded sharp cheese
+	(Save ½ cup for later)
+3 cups cold water
+1 pkg. dry onion soup mix
+Add pork chops (1 layer) then add on top 2 cans cream of mushroom soup
+Bake uncovered for 1 hour at 350°.  Uncover, spread on remaining cheese and bake for ½ hour more.
+
+Pork Chop Skillet Meal – Barbara Olsen  
+4 pork chops (½ inch thick)
+2 Tbsp. vegetable oil
+1 1/4 cups water
+2/3 cup uncooked long grain rice
+½ cup chopped onion
+1 tsp. salt, divided
+1 can (11 oz.) whole kernel corn, drained
+1 can (14 ½ oz.) diced tomatoes, undrained
+1/4 tsp. pepper
+In a large skillet, brown chops in oil; drain.  Remove chops.  Combine water, rice, onion and ½ tsp salt in the skillet.  Place pork chops over rice mixture; top with corn and tomatoes.  Sprinkle with pepper and remaining salt.  Bring to a boil.  Reduce heat; cover and simmer for 20-25 minutes or until pork chops and rice are tender.  Let stand 5 minutes before serving.  
+
+Kalua Pig (Hawaiian) - Alecia Bales - The very delicious main dish served at Hawaiian luaus.  The original recipe is made by digging an imu (pronounced e-moo in Hawaiian, meaning "a pit") The pig is cooked in a covered pit for a feast (luau).
+3 to 5 pounds pork butt
+2 to 3 tsp. salt
+Preheat oven to 400° (high- altitude 425°).  Rub pork generously with salt, pepper, and liquid smoke.  Arrange several layers of heavy duty aluminum foil on table or over baking dish.  Wrap pork several times in foil, at least 5 to 6 times, sealing foil after each wrapping.  Place wrapped pork into baking dish. Bake for 4 hours.  Remove from oven.  Unwrap the pig very carefully so as not to burn yourself when steam escapes. Shred pig with two forks before serving with rice.
+
+Barbecued Spare Ribs – Amy Badger – This is from the Food Nanny cookbook Grandma Sue got for us at her foods convention.  Our family loves watching the Food Nanny rescue dinner for families all over the place. Catarina thought Grandma Sue must be pretty important to be able to talk with the Food Nanny and even get her to sign our cookbook with a special message for the budding chefs in our family. You are pretty important to all of us Grandma Sue and we all love dinner time because of the many things you have taught us.  You are our “Food Nanny”!  
+4 lbs. country style pork ribs
+1 can condensed tomato soup
+½ cup cider vinegar
+¾ cup packed brown sugar
+1 Tbsp. soy sauce
+1 tsp. celery seed
+1 tsp. chili powder
+Trim fat on ribs and put in slow cooker. Combine ingredients and pour over ribs. Cook on low 7 -8 hours or high 4 to 5 hours.
+
+Sweet & Sour Pork - Sue Reber - We like it even better with chicken.
+1-1/2 lbs. lean pork, cut in 1-inch cubes (or use chicken breast cubes)
+sprinkle with salt
+Batter: 2 Tbsp. cornstarch
+	4 Tbsp. flour
+	2 eggs, beaten
+Coat meat, fry until brown.
+1 small green pepper, cut in strips 
+½ medium onion, thinly sliced
+Continue to cook 2-3 minutes until everything is heated through
+Sauce:  2/3 cup sugar
+	1/4 cup catsup
+	1/3 cup pineapple juice
+	½ cup vinegar
+	2 Tbsp. soy sauce
+	garlic powder 
+Cook sauce over medium heat.  Stir in 2 Tbsp. cornstarch mixed well with 1/3 cup water. 
+1 small green pepper, cut in strips 
+½ medium onion, thinly sliced 
+Add 1 cup well drained pineapple chunks & a few drops of red food colorings.  Mix well and serve immediately over hot cooked rice
+
+Colorful Kielbasa – Barbara Olsen
+1 can cream of celery soup
+3/4 cup water 
+1 Tbsp. butter or margarine
+1 pound smoked kielbasa, cut in ½ inch pieces
+3/4 cup uncooked long grain rice
+1 pkg. (10 oz) frozen peas
+1 jar (4 ½ oz) sliced mushrooms, drained
+1 cup (4 oz) shredded cheddar cheese
+In a skillet, combine soup, water and butter; bring to a boil.  Add kielbasa and rice.  Reduce heat; cover and simmer for 15-18 minutes or until rice is almost tender.  Stir in peas and mushrooms. Cover and simmer 1`5 minutes or until the rice is tender and peas are heated through.  Sprinkle with cheese; cover and let stand until melted.  Yield: 4-6 servings
+
+Ham Fried Rice – Sue Reber
+3 cups cooked rice
+2 Tbsp. oil
+1/4 cup diced ham
+1 stalk celery, sliced 
+1 green onion, sliced
+2 Tbsp. water chestnut, chopped
+2 eggs
+Sauté celery and ham in oil for 3 minutes, stirring constantly.  Stir in rice, water chestnuts and green onion. Push food to one side and cook the slightly beaten eggs.  When egg is cooked mix in thoroughly. Season with soy sauce.
+
+Ham Casserole - Jill Olsen
+5 cups noodles
+10 cups water
+1½ tsp. salt
+Cook until tender, drain, set aside
+Sauté together:
+2 cups diced ham
+1 small onion diced
+2 Tbsp. margarine
+Add:
+1 ½ cups cheese
+1 ½ cups canned milk
+2 cans cream of mushroom soup
+½ cup water
+Top with bread crumbs or potato chips.  Bake at 350° until heated through.
+
+Zucchini Boats-Amy Badger – An impressive dinner for that time of year when zucchini are in abundance. 
+4 zucchinis
+1 onion, chopped
+¾ cup mushrooms, sliced
+2 Tbsp. parsley
+1 clove garlic, minced
+2 cups tomatoes, diced
+1/3 cup bread crumbs
+¼ cup grated Parmesan cheese
+2 to 3 Tbsp. crisp cooked bacon 
+Cook zucchini in microwave for 1 ½ minutes to tenderize shell.  Cut lengthwise and scoop out meat.  Chop up zucchini meat and set aside.  Sauté garlic and veggies, including chopped zucchini, adding tomato and parsley at the end.  Allow veggies to cool slightly.  Add bread crumbs, cheese, & bacon to veggies.  Place veggie mixture into zucchini shell boats.  Bake at 400º for 20 to 25 minutes.
+Spinach & Ham Twist – Amy Badger – This is a delicious recipe from the Rhodes “Fresh Ideas with Frozen Dough” cookbook.  You can easily substitute your favorite dough for the rolls. It tastes great and looks very impressive, but doesn’t take long at all to put together.
+8 Rhodes Texas Rolls, thawed and risen
+2 cups chopped ham
+8 oz. pkg. cream cheese
+3 cups chopped fresh spinach
+1/2 tsp. basil
+1/2 tsp. rosemary
+1 egg
+1/4 cup Parmesan cheese
+2 cups chopped ham
+1 cup sliced fresh mushrooms
+1/2 cup chopped onion
+1 clove garlic, minced
+2 Tbsp. butter
+1/4 tsp. salt
+1/8 tsp. pepper
+1 egg, beaten
+Parmesan cheese, if desired
+Press rolls together and roll out to a 10x13-inch rectangle. Mix cream cheese, spinach, basil, rosemary, egg, Parmesan cheese and ham in bowl. Spread mixture over dough. Sauté mushrooms, onion, garlic, butter, salt and pepper. Spread over cream cheese mixture. Starting with the longest side, roll dough up tightly and place seam side down. Tuck ends under. With a long, serrated knife, cut roll lengthwise in half. Carefully, roll each half so the cut side is facing out. Twist halves together 3 times and then pinch ends together and tuck under. This will form a long twist. Place on a large sprayed baking sheet. Brush with egg and sprinkle with Parmesan cheese, if desired.
+Cover with Pam sprayed plastic wrap and let rise until double. Remove wrap and bake at 350° 45 minutes. Do not underbake. Cover with foil the last 15 minutes. Let cool for 5 minutes before slicing.
+
+
+
+
+
+
+Sausage, Peppers & Potatoes - Liz Bunderson
+1 Tbsp. oil
+1 lb. sweet Italian or turkey sausage  
+2 lrg. red and/or green bell peppers cut into ½ inch strips
+1 lb. potatoes, peeled and diced about 3 cups
+1 envelope onion soup mix
+1 1/2 cup water
+In 12” skillet, heat oil over med-hi heat and brown sausage.  Remove sausage.  Cut sausage into 1 inch chunks and set aside.  Reserve drippings.  Add red peppers to reserved drippings and cook, stirring frequently, 2 minutes.  Add potatoes and onion soup mix blended with water.  Bring to a boil over high heat.  Reduce heat to low and simmer covered 10 minutes.  Return sausage to skillet and simmer covered an additional 5 minutes or until sausage is done and potatoes are tender.  Serve, if desired, with hot crusty Italian bread.
+
+Rice and Sausage Casserole – Becky Concoby
+1 lb. ground sausage
+1 med. onion
+1 pkg. dry chicken noodle soup mix
+1 cup uncooked rice
+2 cups water
+Brown sausage and onion.  Add chicken soup mix, rice and water. Place in a 9x13” pan, cover and bake at 350° for 1 hour.
+
+Feijoada (Brazilian Beans)-Amy Badger
+Olive oil
+½ lb. chorizo, Brazilian sausage
+1 medium onion, diced
+1 medium pepper, diced
+3-15 oz. cans of beans, drained
+Slice the chorizo and fry in a large skillet with the olive oil.  Add the onion and pepper after the chorizo is lightly browned.   Cook for several minutes until veggies are soft and then add drained beans.  Heat through and serve over hot Portuguese rice.
+
+
+
+
+Portuguese Rice -Amy Badger-This is the typical side dish for almost every meal in Portugal
+2 cups of rice, rinsed off
+4 cups of water
+ cup chopped onions
+1/4 cup shredded carrots
+2 Tbsp. olive oil
+Brown the onions and carrots in the
+olive oil.  Then add the rice and cook
+until slightly brown.  Add the water and
+bring to a boil.  Turn heat to low and let cook 20 minutes.  Serve hot with Feijoada.
+
+Baked Italian Sausage Rotini –Liz Bunderson
+My little Hannah loved this recipe.
+1 Tbsp. olive oil 
+2 tsp. minced garlic 
+1 pkg. uncooked ground Italian sausage
+1 pkg. curly, bowtie, or wagon wheel noodles - cooked
+1 bottle 4 cheese spaghetti sauce
+2 tsp. red pepper flakes
+2 cups mozzarella cheese (divided)
+Roll the ground Italian sausage into small balls. In a large fry pan, brown the garlic in olive oil. Then add sausage balls and cook until browned. In a large bowl toss together the sausage with all the other ingredients reserving 1 cup of cheese. Pour pasta mixture into a 9x13 inch pan lined with cooking spray. Bake at 375° for 25 min. Top with remaining cheese and bake 5 more minutes.
+
+Sausage & Broccoli Bake - Barbara Olsen
+1 lb. bulk sausage
+2 beaten eggs
+2 cup soft bread crumbs
+1 8 oz. can water chestnuts, drained and     sliced
+1 (10 oz.) frozen chopped broccoli, cooked and drained
+3/4 cup sour cream
+1/4 cup mayonnaise or salad dressing
+2 tsp. prepared mustard
+1 tsp. parsley flakes
+In skillet cook sausage till browned: drain.  In bowl combine first five ingredients.  Mix well and pour into 8x8” pan. Bake uncovered for 35 min at 350°.  Combine remaining ingredients and spread over sausage mixture, Sprinkle with parsley flakes.  Bake 5-7 min. more or till hot.
+
+Egg Rolls - Amy Badger
+1 lb. sausage (I use turkey sausage)
+½ tsp. garlic salt
+2 Tbsp. soy sauce
+1 medium onion, finely minced
+1 lb. fresh bean sprouts
+1 (16 oz.) egg roll wrapper
+3 cups vegetable oil
+Stir fry meat, stir in garlic salt and soy sauce.  Add chopped onions and cook until onions are soft.  Add bean sprouts and cook for 2 minutes.  Drain and discard any excess liquid; cool filling.  Spoon about 2 Tbsp. of filling onto the lower half of each egg roll wrapper and moisten edges with water.  Fold bottom edge up just to cover filling and fold left and right edges ½ inch toward center, moisten edges with water and roll up to seal.  Deep fry a few rolls at a time in hot oil at medium heat (375°) until golden (about 3 minutes) Drain excess oil and serve immediately with spicy mustard, sweet & sour sauce or dipping sauce of equal amounts of soy sauce & vinegar and a bit of sugar.  
+
+Bonnie’s Original Nachos – Bonnie Chantry - Gene Jr. said we would have to send him a plate of these regularly or he wouldn't allow us to go to Greece on our mission.  He didn't get any for a year and a half and survived but soon after we got home he was able to indulge with us.
+Tortilla chips
+½ lb. bulk sausage (browned)
+1 can sliced olives
+½ can diced green chilies
+½ lb. med. cheddar cheese (grated)
+½ lb. jack cheese (grated)
+Mild Salsa
+Cover microwaveable plate with a layer of chips and sprinkle half of the sausage, olives, chilies and cheeses evenly over the chips.  Make another layer with the other half. Microwave 2-3 minutes.  Serve with salsa (or guacamole) as desired.
+Swedish Meatballs (Köttbullar) - Given to Grandma Grace by Patti Walker
+Meatballs:
+1 1/2 lbs. ground beef
+½ lb. ground pork
+1 onion, minced and sautéed
+3 slices dark bread (dry)
+1 cup water
+2 eggs
+2 potatoes boiled and mashed
+2 tsp. salt
+1/8 tsp. pepper
+½ tsp. sage
+1/4 cup cranberries or grape jelly
+2 Tbsp. Worcestershire sauce
+Gravy:
+3-4 Tbsp. real butter
+½ cup flour
+3 cup stock made from beef cubes
+1 cup sour cream
+Salt and Pepper to taste
+Have the butcher grind the meat a couple of times.  Soak the bread in water.  Mix all the meatball ingredients in a large bowl and keep working until you have a smooth sponge mass. Heat some butter in frying pan.  Shape meat into small balls, brown evenly by shaking pan while cooking. Remove meatballs from pan.
+Gravy: Make gravy in the same pan.  Heat butter and add flour.  Stir to a golden paste.  Add stock gradually stirring briskly to avoid lumps.  Add sour cream and Worcestershire sauce.  Season to taste.  Simmer 4 to 5 minutes.  Then add the meatballs and simmer 40 to 60 minutes.  (Patti likes to add mushrooms.)
+
+FISH:
+
+Deep Fried Cod - Grandma Reber
+Dip fillets in milk, then in fine cracker crumbs.
+Deep fry 2-3 minutes on both sides. Salt slightly and sprinkle with thyme.
+Tartar Sauce:
+1 cup mayonnaise
+1 tsp. grated onion
+1 tsp. minced parsley
+2 Tbsp. minced dill pickle
+1 Tbsp. pimento
+dash of Tabasco sauce
+Sammi's Salmon –Liz Bunderson
+I got this recipe from Sammi Jo.
+10-12 pieces (2-3 inch) salmon
+1/2 cup Worcestershire sauce
+1/3 cup brown sugar
+1 Tbsp. lemon pepper
+1/2 tsp. butter, for each piece of salmon
+ Place salmon on baking sheet.  Poke salmon with fork.  Pour Worcestershire sauce over salmon.  Sprinkle with brown sugar and lemon pepper.  Place 1/2 tsp. butter on each salmon. Cover w/ foil.  Bake at 350° for 25 minutes.
+
+Salmon Croquettes - Barbara Olsen
+1 can salmon
+2 Tbsp. butter
+5 Tbsp. flour
+dash salt and pepper
+Drain and clean salmon.  Save liquid and use to make 1 cup with milk.  Make white sauce with flour and liquid.  Cook sauce until thick and stir in fish.  Chill in shallow pan.  Shape into balls, dip balls into a beaten egg, and then roll in cornflake crumbs.  Fry in hot fat in deep fryer or frying pan.  
+
+Salmon Patties - Amy Badger – I loved eating Salmon Patties that my Grandma Reber would make growing up smothered in tartar sauce.  I tried making them for my husband and he thought they were way too dry.  With this recipe we both enjoy eating salmon patties that are moist and delicious w/out the tartar sauce.
+1 pkg. (6 oz.) chicken stuffing mix  
+3/4 cup water 
+1/3 cup mayonnaise 
+2 cans (6 oz. each) salmon, drained, skin discarded. Smash the bones fine between your fingers and mixed in (A trick from my Grandma Reber to get more calcium)
+1 Tbsp. lemon juice, 
+1 cup shredded mozzarella cheese  
+chopped green onions  
+Mix all together. Shape into 12 patties, using about 1/3 cup of the stuffing mixture for each patty; cover. Refrigerate 1 hour. Cook 6 min. on heated skillet or until golden brown on both sides, turning carefully after 3 min. 
+Variation: Can use 2 cans of tuna or crab.
+Teriyaki Seafood Kabobs  - Liz Bunderson
+½ - 1 lb. raw med-large prawns
+½ - 1 lb. raw large scallops
+1 small pineapple trimmed, cored and cut into 1 1/2 inch chunks
+2 bell peppers, cut 1 1/2 inch chunks
+16 cherry tomatoes
+½ cup Teriyaki cooking sauce and marinade
+8 skewers
+Place seafood in boiling water for approximately 1 minute.  Drain.  Shell prawns, leaving tails in place.  Alternate seafood with pineapple, peppers and tomatoes on skewers.  Thoroughly coat skewers with marinade and let stand 20-30 mins.  Grill or broil 3-4 minutes on each side.
+
+Shrimp Scampi Verde –Amy Badger- This is a favorite from Rachael Ray. I have always been scared of cooking fish, but Rachael is slowly helping me get over my fears. Serves 4
+Salt
+2 (12oz) packages fresh linguine 
+1/2 cup chicken stock
+1 cup fresh basil leaves, loosely packed, about 20 leaves 
+1/2 cup flat-leaf parsley, 3 handfuls 
+15 to 20 fresh chives, coarsely chopped 
+2 cups arugula, packed, remove stems.  (I  just used fresh spinach as arugula is hard to find).
+Black pepper 
+Zest and juice of 1 lemon 
+6 Tbsp. EVOO (extra-virgin olive oil) 
+1 1/2 pounds shrimp, peeled and deveined 
+4 garlic cloves, finely chopped 
+1 tsp. red pepper flakes (eyeball it) 
+1/2 cup chicken broth (eyeball it)
+2 Tbsp. cold butter, cut into pieces 
+Fill a pot with water for the pasta. When it boils, salt it liberally. Add pasta to water when the shrimp are about half done. Place the stock, herbs, and arugula in the bowl of a food processor with salt and pepper to taste, lemon zest, and 2 Tbsp. of the EVOO. Grind into a coarse paste. Heat a deep skillet with remaining 1/4 cup of EVOO. When the oil ripples, add the shrimp and season liberally with salt and black pepper. Toss and cook the shrimp for 3 minutes, then drop your linguine into the boiling water. Add the garlic and red pepper flakes to the shrimp and cook for 1 to 2 minutes more. Deglaze the pan with the broth, then add the green paste. Swirl in the butter and lemon juice. As soon as the pasta is al dente, use kitchen tongs to transfer it from the pot to the skillet with the shrimp and sauce. Toss to work the green sauce through the pasta and serve immediately.
+
+Italian Shrimp with Bowties - Liz Bunderson
+1 pkg. Lipton Pasta & Sauce Italian cheese 
+2 cups cooked shrimp or 6 ½ oz can of tuna 
+(drained and flaked)
+1 medium tomatoes coarsely chopped
+½ cup frozen peas thawed
+Prepare pasta according to package direction.  When 2 minutes are left on timer stir in remaining ingredients.
+
+Tuna Melts Provencal – Amy Badger – My husband LOVES Tuna Melts, just tuna on bread with melted cheese,  so I enjoy  having this grown-up version from Rachael Ray.
+3 or 4 cans of tuna in water, drained
+5 to 6 sprigs tarragon
+1/2 cup basil leaves
+1/4 cup parsley leaves
+12 black or green pitted olives
+2 shallots
+2 Tbsp. capers
+1 Tbsp. lemon juice
+2 Tbsp. extra-virgin olive oil (EVOO)
+1 French baguette
+4 Tbsp. butter
+4oz. Gruyere or Swiss cheese
+Directions:  
+Split baguette and slather with butter.  Place a large skillet over medium heat; add the bread butter side down and toast until deep golden brown; 3 or 4 minutes.  Preheat the broiler.  In a bowl combine the tuna, herbs, olives, shallots, capers, lemon juice, and olive oil.  Mix well; season with salt and pepper to taste.  Put tuna on baguette and top with cheese.  Put under broiler until cheese is bubbly, about 2 minutes.
+
+
+
+Tuna Confetti Casserole - Kadie Olsen
+1 (6 ½ oz.) can tuna, drained and flaked
+6 cups water
+1 (7 ¼ oz.) pkg. macaroni & cheese
+¼ cup margarine
+½ cup milk
+1 can condensed cream of mushroom soup
+1 (10 oz.) pkg. frozen peas
+1 Tbsp. margarine
+½ cup corn flakes
+Cook macaroni. Drain.  Add margarine, milk and cheese packet.  Stir.  Add soup, peas and tuna.  Mix well.  Put in casserole dish.  Melt margarine, & mix in corn flakes.  Sprinkle on top of casserole. Bake at 350° for 30 minutes.
+
+The Surprise Casserole - Daneen Hinkle
+3 cups cooked rice
+2 half cans of any cream soup like cream of chicken
+1 can of tuna
+Add the cans of soup with the tuna.  Put the mixture with the rice and it's ready to serve.
+
+Busy Day Casserole - Jill Olsen
+Layer one pkg. refrigerator biscuits into greased casserole pan.
+Mix together:
+1 can cream of cheddar cheese soup
+½ cup milk
+Mix until smooth then add:
+1 small chopped onion
+3/4 cup frozen peas
+1 can drained tuna
+Stir until blended.  Pour over biscuits.  Bake 350° for 35 minutes.  May be topped with grated cheese.
+
+Creamed Tuna - Great Grandma Doris Reber
+3 Tbsp. butter
+3 Tbsp. flour
+1 2/3 cup canned milk
+1/3 cup water
+½ tsp. salt
+2 Tbsp. green pepper
+1 Tbsp. grated lemon rind
+1 7-oz can tuna, drained
+3 hard cooked eggs, sliced
+6 slices of toast
+Melt butter, add flour and stir until smooth.  Add milk and water gradually.  Cook until thick stirring constantly.  Stir in salt, green pepper, lemon rind, tuna and eggs.  Serve over toast.
+
+Tasty Tuna – Amy Badger – My Aunt Pam made me a tuna sandwich when I was visiting one day.  It was so good I made her tell me what she had done.  Her secret ingredient was BBQ sauce!
+One can tuna fish, drained
+Heaping Tbsp. of mayonnaise 
+1 to 2 tsp. BBQ sauce
+¼ cup shredded carrots
+¼ cup sliced celery
+1 to 2 tsp. pickle relish
+Salt & pepper to taste
+Directions:
+Mix all ingredients together and enjoy on some good wheat bread.  
+Variation: Tuna Melt- Place tuna on slice of bread.  Top with shredded white cheese and broil for 2 to 3 minutes in oven or toaster oven.
+
+VEGETARIAN:
+
+Enchiladas –Chrissy Probst
+1 pkg. flour tortillas
+1 can of refried beans
+2 cups of grated cheese
+Place beans and cheese in tortillas.  Roll up and place in freezer bag.  
+Enchilada Sauce
+2 cans tomato sauce
+1 tsp. basil
+1 tsp. chili powder
+1 tsp. oregano
+Mix and simmer.  Cool completely and can freeze for later.  
+When ready to serve enchiladas, place in 9X13 pan, smother in sauce, and put grated cheese on top.  Bake for 20-35 minutes and enjoy!
+
+
+
+
+
+
+Sour Cream Enchiladas - Sarah Manis
+2 cans cream of chicken soup
+2 Tbsp. chopped green chilies
+1 doz. tortillas
+1 cup sour cream or cream cottage cheese
+1 small onion grated
+1 1/2 cup grated cheese
+Heat soup and chilies.  Add sour cream.  Dip tortillas in hot fat and drain.  Put 2 Tbsp. of soup mixture in center of each tortilla.  Put in baking dish.  Pour remaining soup over.  Sprinkle on cheese and onion.  Cover dish and bake 350° for 20-30 min.
+
+Easy Chili Rellenos –Barbara Olsen
+2-7oz. cans whole green chili peppers, drained
+Remove seeds, rinse and arrange in pan (13x9)
+Grate and sprinkle on top of chilies:
+1 pound cheddar cheese
+1 pound Jack cheese
+Combine:
+6 eggs, well beaten
+1 cup milk
+½ cup flour
+½ tsp. salt
+Pour egg mixture over peppers and cheese. 
+Bake at 350 for 35 - 40 min.
+
+Gluten Free Lazy Chile Rellenos – Barbara Olsen
+8 whole roasted green chilies
+1 1/2 cups Monterey jack cheese shredded
+5 whole eggs
+2 cups whole milk
+salt and pepper to taste
+1/2 tsp paprika
+1/4 tsp cayenne pepper
+Preheat oven to 325°.  Mix together eggs, milk, salt, pepper, paprika and cayenne.  Cut chilies in half and add a single layer of chilies on the bottom of a 9 x 13 pan. Top chilies with half of the grated cheese.  Repeat with another layer of chilies and another layer of cheese.  Pour egg mixture over all.  Put 9 x 13 in a sheet pan with 1/2 inch of water in the bottom.  Bake for 35 to 40 minutes or until done.
+
+
+
+Egg Fu Yung –Liz Bunderson
+½ cup cabbage, finely chopped
+1/3 cup onion, chopped
+¼ cup green pepper, chopped
+1 Tbsp. vegetable or sesame oil 
+1 Tbsp. cornstarch
+1 tsp. beef bouillon granules
+1 tsp. sugar
+1 cup cold water
+1 Tbsp. soy sauce
+3 eggs
+½ tsp. salt
+Dash of ground pepper
+1 cup bean sprouts, drained and rinsed
+In a large skillet, cook cabbage, onion and green pepper in 1 Tbsp. hot oil for 2 minutes. Remove & set aside. Make sauce by combining cornstarch, bouillon and sugar in a small saucepan. Stir in water and soy sauce and cook over med-high heat until thickened. Keep warm. In a large bowl, beat together eggs, salt and pepper. Stir in cooled vegetables & bean sprouts. In used skillet, heat 2 Tbsp. oil. Drop ¼ cup patties of Egg Fu Yung mixture into pan. Fry for about 1 min. on each side, or until golden brown. (Note: spread vegetables around to cover the eggs as they begin to spread out.) Keep egg patties warm in the oven while preparing the entire mixture, stirring the bowl each time and adding oil to the skillet as needed. Serve warm with the prepared sauce.
+
+Olive & Cheese Casserole - Grandma Grace
+Melt 1/4 cup margarine in 8 x 12 baking dish.
+Beat 5 eggs in large bowls
+Add 1 ½ cups sliced olives
+8 oz. grated cheese
+1 cup cottage cheese
+½ cup milk
+1 (4oz.) diced green chilies
+1/4 cup flour
+½ tsp. baking powder
+½ tsp. salt
+Mix. Pour into baking dish.  Sprinkle with paprika.  Bake 325° for 30 min.
+Makes 6-8.  Serve with fresh fruit salad.
+
+
+
+Pasta In Alfredo Sauce –Sue Reber
+1 Tbsp. margarine
+1 clove garlic, minced
+1 Tbsp. flour
+1  cup milk
+2 Tbsp. cream cheese
+2 Tbsp. Parmesan cheese
+1-2 cups pasta, cooked according to package 
+In sauce pan, melt margarine over low heat.  Add minced garlic and sauté 1 min.   Stir in flour.  Gradually add milk and whisk until smooth.  Cook stirring constantly until thick about 8 minutes on medium heat.  (Don’t scorch).  Stir in cream cheese.  Cook 2 minutes.  Add Parmesan cheese and cook until melted.  Serve over hot cooked pasta. (Can add Italian seasoning, parsley, garlic powder if desired.)
+
+Fancy Macaroni – Annie Marsh –This is a recipe from “The Pioneer Woman Cooks” website. We made it for Christmas and have had it twice since.  It is sinfully good and fattening.  I wanted to try a homemade macaroni and cheese recipe.  The cheese is a little expensive (ok a lot! like $25) but I still have some left and will made this for the 4th time with the cheese I bought.  I love the Pioneer Woman and even have her cookbook!
+4 cups macaroni
+8 Tbsp. butter (Salted Butter)
+2 whole medium onions, cut in half, thin sliced
+10 slices cooked bacon, reserve bacon grease
+1 Tbsp. bacon grease 
+¼ cups all-purpose flour
+2 cups whole OR 2% Milk
+½ cups half-and-half
+2 whole egg yolks, Beaten
+Salt And Pepper, to taste
+½ cups grated Gruyere Cheese
+½ cups grated Fontina Cheese
+½ cups grated Parmigianino Reggiano Cheese
+4oz. Chevre (soft Goat Cheese)
+Preheat oven to 350°.  Cook macaroni for half the time of the package instructions. Drain and set aside. Fry bacon until slightly, but not overly, crispy. Drain on a paper towel. Reserve grease.  Melt 4 Tbsp. butter in a skillet and then sauté onions over medium-low heat for 10 to 12 minutes, or until golden brown and soft. Set aside.  In a pot, melt 4 Tbsp. butter (and add 1 tablespoon of the reserved bacon grease for good measure!). Sprinkle in flour and whisk to combine. Cook, stirring constantly, over medium heat for 1 minute. Pour in milk and half & half, then cook for 3 to 5 minutes or until thick. Reduce heat to low. Add salt & pepper to taste. (Do not undersalt!) Beat egg yolks and drizzle 1/4 cup hot mixture into the yolks, stirring constantly. Stir to combine. Pour egg mixture into sauce and cook for another minute.  Add cheeses and stir until melted. Add onions and bacon and stir. Taste for seasonings and add more salt if needed. Add cooked macaroni and stir to coat. Pour into a baking dish and bake for 15 to 20 minutes or until sizzling and hot. Serve with red meat or a green salad. 
+
+Baked Macaroni & Cheese - Grandma Reber
+1 cup cooked macaroni
+1 cup soft bread crumbs
+1 tsp. chopped onion
+1 cup grated cheese
+1 1/2 cups milk
+2 eggs, well beaten
+1 tsp chopped green pepper
+1 Tbsp butter
+salt, pepper & paprika (to taste)
+Combine all ingredients season to taste
+pour into well-oiled baking dish.
+Bake at 375 degrees for 45 minutes.
+
+Macaroni and Cheese - Clint Fielding
+3/4 cup macaroni
+2 Tbsp. butter
+1 Tbsp. finely chopped onion, opt
+2 Tbsp. flour
+1/4 tsp. salt    
+dash of pepper
+1 cup milk
+3/4 cup grated cheese
+Cook macaroni, drain.  Make cheese sauce by melting the butter in a sauce pan, add onion and sauté.  Stir in flour, salt and pepper.  Add milk and cook until thick.  Add cheese, stir until melted.  Cover and simmer 5 minutes.
+
+
+Little Richard’s Pasta  - Barbara Olsen
+Cook Penne pasta as directed, in meantime heat large jar of your favorite spaghetti sauce with mushrooms, when thoroughly heated add 1 pint of cream.  Mix together with drained pasta and shredded mozzarella cheese and serve immediately.  Top with Parmesan cheese if desired.
+
+Sauce Verde  - Liz Bunderson
+6 oz. spaghetti noodles
+1 cup firmly packed spinach leaves
+1 cup firmly packed parsley leaves
+1/4 cup butter
+1/4 cup olive oil
+1/4 cup grated Romano cheese
+1/4 cup Parmesan cheese
+2 Tbsp. chopped walnuts
+1 small clove garlic
+3/4 tsp. salt
+3/4 tsp. basil
+Cook pasta, drain. Wash spinach and parsley.  Shake to remove excess water.  In food processor or blender process greens with remaining ingredients until mixture is a thick puree, but some specks are still visible. If sauce seems too thick, add small amount of water. (sauce does thin out on hot cooked pasta)  Immediately toss hot cooked pasta with spinach sauce.
+
+Manicotti with Cheese –Emily Hammerstad
+Cooked Gluten-Free Lasagna Noodles
+1 ¾ cup Ricotta Cheese
+2 cup Mozzarella Cheese
+¼ cup Parmesan Cheese
+2Tbsp. Parsley
+½ tsp. salt
+¼ tsp. pepper
+3 cups Spaghetti Sauce
+Preheat oven to 350°.  Mix cheese and seasoning together in a bowl.  
+Pour some spaghetti sauce on the bottom of a baking pan.  Place a dollop of cheese mixture onto a lasagna noodle and wrap into a tight roll.  Place these rolls into the baking pan and pour the rest of the spaghetti sauce on top.  Bake for 40 minutes.
+
+Lasagna Swirls - Tawna Marsh
+8oz lasagna noodles (spinach or regular, not extra wide)
+2 (10oz) frozen chopped spinach, thawed & well drained
+1 lb. Ricotta cheese
+1 cup grated Parmesan cheese, divided
+8 oz cream cheese, softened
+8 oz Mozzarella cheese, grated
+½ tsp, dried basil leaves
+1/4 tsp, dried oregano leaves
+salt and pepper to taste
+Light Tomato Sauce:
+1 lrg. onion, chopped
+2 cloves garlic, minced
+3 Tbsp. butter
+2 (1 lb 2 oz) cans crushed tomatoes
+16 oz tomato sauce
+2 Tbsp. sugar
+2 Tbsp. olive oil
+2 tsp. sweet basil leaves
+1 tsp. Italian herb seasoning
+pinch of red pepper flakes
+salt and pepper to taste
+½ cup grated Parmesan cheese (for topping)
+Prepare lasagna pasta according to package directions; set aside.  Beat together the next 8 ingredients until blended; set aside. To prepare sauce, sauté onion and garlic in butter in a large skillet.  Combine next 8 ingredients and simmer 10 minutes.  Lay out each lasagna noodles and spoon ½ cup filling on the top of the noodle.  Roll up jelly-roll fashion.  Place rolls into an 11x14 inch pan, coiled side up.  Preheat oven to 350°.  Pour, loosely covered, for approximately 30-40 minutes or until heated through and Mozzarella in filling is melted.
+
+
+
+
+
+
+
+
+
+
+
+Snow-White Pizza –Liz Bunderson
+Makes 2 - 12 inch pizzas
+Perfect Pizza Dough 
+Olive oil for coating or cornmeal for dusting.
+1 cup ricotta cheese
+2 cloves garlic, pressed or minced
+¼ cup grated Parmesan cheese
+3 cups grated Mozzarella cheese
+Follow the first 3 steps on Perfect Pizza Recipe.
+Combine the ricotta, garlic, and Parmesan.  Spread half of the mixture on the dough, leaving a 1-inch border.  Sprinkle half of the Mozzarella on top.  Bake 12 - 15 minutes or until crust is golden brown underneath.
+
+Pizza Pockets –Liz Bunderson
+Makes 8 pockets
+Perfect Pizza Dough
+2 cups tiny broccoli florets
+2 cups grated Colby Jack (or other) cheese
+Olive oil for brushing
+Follow the first 3 steps on Perfect Pizza Recipe except divide dough into 8 instead of 2 portions.  Blanch broccoli in boiling water for 3 minutes, then place in a bowl of cold water to stop further cooking.  Remove and pat dry.
+To make each pocket, roll one piece into a ball, then flatten it into a disk and roll it into a 6-inch circle.  With your fingers moisten the edge of the circle with water. Place and 1/8 of the broccoli and cheese on the bottom half of the circle.  Pull the top half of the dough over the filling to create a half moon and pinch the edges together carefully to seal.  Lightly brush each pocket with oil.  Bake for 20-25 minutes or until the pockets are golden brown.  Remove them from the over and brush the pockets again with oil to soften the crust.  Let cool a few minutes before biting into them; they’ll be hot inside.
+
+
+
+
+
+
+
+Spanish Delights - Aunt Tawna – “This was introduced to our family by Utahna on a trip to visit her in Canada.”  Bonnie.
+1 doz. French rolls
+4 boiled eggs, chopped
+3-4 green onions
+1 clove garlic, chopped
+1 cup tomato sauce
+1 lb. grated cheese
+1/4 cup oil
+1 cup chopped olives
+1 cup green chilies 
+Cut end off French rolls and take out insides.  Mix all other ingredients together and fill rolls. Put end back on each roll and wrap in foil.  Bake 375° for 30 minutes.  Let stand after taking out of oven to soften rolls.
+
+Principles of baking a casserole with 
+Un-cooked pasta – Amy Badger
+1.  Water down the sauce with half again as much water.
+2.  Put some of the sauce in the bottom of the pan before putting pasta in.
+3.  Add extra sauce on top.
+4.  Put cheese in, but don't put the top cheese on until after the cooking process is over.
+5.  Put TWO layers of foil on top, sealing each one individually to lock in the moisture.  Do not peek.
+6.  Bake at 325º for 1 1/2 hrs. (90 minutes).  When complete, open and put top cheese on and allow standing for 10-15 minutes to melt cheese.
+
+
+
+Pie Crust - Sue Reber – This is one of the few pie crusts that I can get to make work for me.
+Makes one 9-inch pie crust
+1-1/4 cups flour 
+½ tsp. salt 
+1/3 cup shortening 
+4 to 5 Tbsp. very cold water (add a cube of ice)
+Mix flour and salt. Cut in shortening until pieces are very small.  Add water 1 Tbsp. at a time, stirring quickly with fork.  Use as little water as you can to keep dough together.  Roll into a circle 1/4-inch thick.  Roll dough around rolling pin; transfer to pie pan.  Push to fit into pan. Cut about ½ inch larger than pan.  Turn edge under and crimp.  Prick bottom and sides with tines of a fork, if baking before filling.  Bake at 450° for 10-12 minutes.  Or use as unbaked crust.
+
+Perc Newton’s Pie Crust - Bonnie Chantry 
+"Perc Newton was the host of a radio show with helpful hints for women.  He was asked time and time again for his pie crust recipe."
+2 ½ cups flour
+1 cup shortening
+½ tsp. salt
+1 egg, beaten
+1 Tbsp. vinegar
+1/4 cup water
+Sift dry ingredients together into bowl.  Mix egg, water and vinegar together and add to flour mixture.  Mix until dry ingredients are moist.  Roll out on a floured board.  Makes a double crust or two single crusts.
+
+Graham Cracker Pie Crust - Alice Chantry
+2 cups graham cracker crumbs
+2 Tbsp. melted butter (or margarine)
+1 Tbsp. sugar
+ Make graham cracker crumbs in food processor.   Thoroughly mix in the melted butter and sugar. Dump into a 9 inch pie pan. Press evenly around the edges.  Bake at 350 degrees for 10 minutes.  Let cool before adding filling.
+
+
+
+
+French Apple Pie –Liz Bunderson
+Every year I get several bushels of apples from my father-in-laws trees.  This is one of the pies I make and take back to him to eat because I’m tired of eating apples.
+1 ready-made pie crust or make your own
+½ cup sugar
+¼ cup corn starch
+½ tsp. ground nutmeg
+½ tsp. ground cinnamon 
+6 cups cored, peeled, and thinly sliced tart baking apples
+1 cup flour
+1 cup brown sugar
+½ cup unsalted butter
+Prepare one crust pie.  Preheat oven to 350°.  Mix granulated sugar, starch, nutmeg, and cinnamon in bowl.  Add apples and toss.  Pour apple mixture into pie crust.  To prepare crumb topping; mix flour, brown sugar and butter until crumbly.  Sprinkle topping over pie.  Bake on cookie sheet for 1½ hours or apples are tender.
+
+Flat Apple Pie - Grandma Grace
+Pastry
+2 ½ cup flour
+1 Tbsp. sugar
+1 egg yolk
+1 tsp. salt
+1 cup shortening
+2/3 cup milk 
+Roll out one half of the pastry on a cookie sheet.  Add 3/4 cup crushed cornflakes on crust.  Add a layer of sliced apples (6-8 apples), 1 cup sugar and 1 tsp cinnamon.  Roll rest of dough and place on apples.  Beat egg white and brush on top.  Bake 1 hour at 375°.  Glaze with 1 cup powered sugar and a little water.
+
+Raisin Pie - Grandma Walker
+1 qt. water 
+1 pkg. seeded raisins
+1 cup sugar
+½ tsp. salt
+Bring to a boil, let simmer 5 minutes.  Thicken with 4 Tbsp. cornstarch with a little water added to it.  Remove from heat and add the juice from half a lemon and 1 Tbsp. butter.  Cook again.  Bake in two crust pie  
+Mike’s Family Secret Recipe Raspberry Pie –Sammi Jo Stewart - Honestly I will never have a secret recipe because I love to find a good recipe and I love to share a good recipe.  This was the first pie I ever made and we have been addicted ever since.  I was a little intimidated by making a crust and all, but when all was said and done it tasted amazing.  Even though it didn't look amazing!
+CRUST:
+2 cups all purpose flour
+1 Tbsp. sugar 
+1/2 tsp. salt
+3/4 cup shortening
+1 egg, lightly beaten
+3 Tbsp. cold water
+1 Tbsp. white vinegar
+FILLING: (I've made it with as little as 3 cups of raspberries and just adjusted the other ingredients-just depends on how many raspberries you have)
+1-1/3 cups sugar
+2 Tbsp. quick cooking tapioca
+2 Tbsp. cornstarch
+5 cups fresh or frozen raspberries, thawed
+1 Tbsp. butter
+TOPPING:
+1 Tbsp. milk
+1 Tbsp. sugar
+In a large bowl, combine the flour, sugar and salt; cut in the shortening until it resembles coarse crumbles. Combine the egg, water and vinegar; stir into flour mixture just until moistened. Divide dough in half so that one ball is slightly larger than the other; wrap in plastic wrap and refrigerate for 30 minutes.
+In another large bowl, combine the sugar, tapioca, cornstarch and raspberries; let stand for 15 minutes.  On lightly floured surface roll out larger ball of dough to fit a 9-inch pie plate.  Transfer dough to plate and trim edge. Add raspberry filling and dot with butter. Roll out remaining dough to fit the top of the pie; place over the filling.  Trim, seal and flute the edges. Cut slits in the top.  Brush with milk and sprinkle with sugar. Bake at 350 for 50-55 minutes or until crust is golden brown and filling is bubbly.  Cool on a wire rack.
+ENJOY!
+Fresh Peach Pie –Kadie Allred - When we bought our new house in June 2010, it came with some peach trees.  Much to our delight, they were extremely delicious!  I canned them, made jam, and made a fresh peach pie!  All for the first time!  The peach pie was so delicious... I thought I was in heaven when I first bit into it!  I had never had peach pie before.  Anyways, I've had fun doing new things with my peaches this summer and thought I'd share the recipe for the fresh peach pie! Yum yum!
+Peel and slice several peaches and fill a pre-baked pie crust.
+Boil the following together for 5 minutes:  
+1 cup sugar 
+1/2 cup water
+3 Tbsp. cornstarch
+3 mashed peaches 
+Add: 2 Tbsp. butter 
+Still until butter is melted and pour mixture over peaches already in crust.  Chill.  
+Top with vanilla ice cream or whipped cream.
+So easy and so yummy! :)
+Pie Crust
+Mix:
+2 cups flour
+1 cup shortening
+1 tsp. salt. 
+Crumble together until fine.
+Beat together:
+1 egg
+1 Tbsp. vinegar
+1/4 cup cold water
+Dump egg mixture into flour mixture.
+Roll out and place in pan.  Bake at 400° for about 10 minutes.
+
+Super Peach Pie - Diane Anderson
+Slice 3 large peaches into a cooked pie shell. Mash 2 more peaches and add:  
+1 cup sugar
+3 Tbsp. corn starch
+½ cup water
+Cook 5 minutes, so that it's boiling then add:  
+½ tsp. almond flavoring
+2 Tbsp. butter
+Pour over sliced peaches.  Chill for about an hour.  Serve with whipped cream.
+Great Aunt Jennie’s Peach Pie – Jenny Murdock – Grandma Grace’s sister’s specialty pie. 
+Prepare 3 graham cracker crusts and set aside.  
+In a sauce pot combine the following:
+2 ½ cups water
+A few mashed peaches
+Small can crushed pineapple
+½ cup Hawaiian Punch concentrate
+1 cup sugar
+6 Tbsp. cornstarch
+Mix and heat to a thickened stage
+Add: 
+1 large box Orange Jell-O 
+1 small box Lemon Jell-O   
+Cut up fresh peaches and put in graham cracker crust.  Cool mixture and pour over peaches. Makes enough for three pies.  Serve with vanilla ice cream.
+Note: Can use frozen fruit punch concentrate, thawed, in place of Hawaiian punch concentrate.
+
+Strawberry Pie - Sue Reber – Living in Pleasant Grove it is always good to have fun recipes to use when Strawberry Days rolls around in the summer.
+6 cups fresh strawberries, sliced
+1 cup sugar
+3 Tbsp. cornstarch
+½ cup water
+2 Tbsp. lemon juice
+1 3-oz pkg. cream cheese, softened
+few drops red food coloring
+½ tsp. almond flavoring
+Mash enough berries to measure 1 cup.  Stir together with sugar and cornstarch.  Gradually stir in lemon juice, water and crushed strawberries.  Cook over medium heat, stirring constantly, until mixture thickens and boils.  Boil and stir 1 minute.  Add almond flavor and food coloring.  Beat cream cheese until smooth, spread on bottom of baked pie shell (Cream cheese is optional.)  Fill 9 inch pie shell with remaining berries.  Pour cooked berry mixture over top.  Chill at least 3 hours or until set.
+
+
+
+Creamy Blackberry Pie –Becky Concoby-
+I served this at Thanksgiving at Tawna's one year and everyone seemed to love it.  It is so easy to make & one of my all time favorite pies.
+1/2 cup light sour cream
+1 cup sugar
+2 eggs
+1 tsp. vanilla
+1/3 cup flour
+dash of salt
+1 bag of frozen blackberries (Wal-Mart brand is very good)
+1- 9” pie shell
+Topping:
+1/4 cup butter
+1/2 cup flour
+1/2 cup sugar
+Mix first 6 ingredients. Put berries in pie shell.  Pour sour cream mixture over the top.  Combine topping ingredients until crumbly and sprinkle on top.  Bake at 350° for 50 to 60 minutes.  
+
+Libby’s Pumpkin Pie - Bonnie Chantry - This is the only pumpkin pie recipe that I have used.  I've found no need to locate another because this one is so good.
+Enough for 2 pies
+4 eggs, slightly beaten
+1 (29 oz.) pumpkin
+1 1/2 cups sugar
+1 tsp. salt
+2 tsp. cinnamon
+1 tsp. ginger
+½ tsp. cloves
+2 cans evaporated milk or 3 cups half n half
+2-9” unbaked pie shells with high fluted edge. 
+Preheat oven to 425°.  Combine filling ingredients in order given, divide evenly into pie shells.  Bake 15 minutes.  Reduce heat to 350° and bake an additional 45 minutes or until knife inserted in center of each pie comes out clean.  Cool, garnish with whipped cream.
+
+
+
+
+
+
+Rich Pumpkin Pie - Christine Fielding
+½ cup sugar
+2 Tbsp. flour
+1 tsp. salt
+1 tsp. ginger
+1 tsp. cinnamon
+1/4 tsp. cloves
+1/4 tsp. nutmeg
+Combine and mix together
+3 cups pumpkin
+½ cup molasses
+1 cup corn syrup
+Mix and add to above mixture
+3-4 eggs, slightly beaten
+2 cups milk
+Mix together and add to above mixture. 
+Pour filling into unbaked pastry shell.  Makes enough for 2 ten inch pie shells.  Cover crust with foil and bake at 325° for an hour or until knife comes out clean.
+
+Crustless Pumpkin Pie - Grandpa Fay - "This is a recipe Grandpa Fay had on his bulletin board.  He thought he might be able to make it since he could skip the crust." Bonnie
+1 (16 oz.) can solid pack pumpkin
+1 (12 oz.) evaporated skim milk
+2 whole eggs
+2 egg whites
+3/4 cup sugar
+1 tsp. cinnamon
+1/4 tsp. allspice
+1/4 tsp. ginger
+1/8 tsp. salt
+½ cup graham cracker crumbs
+Combine milk, eggs and whites. Beat until smooth.  Add sugar, spices, and salt.  Blend well. Stir in crumbs.  Spray a 9 inch pie pan with Pam.  Bake in preheated 325 degree oven for 45-55 minutes.  Cool then refrigerate overnight. Top with Cool Whip.
+
+Impossible Pumpkin Pie - Alecia Bales
+2 eggs
+1 can evaporated milk
+1/4 tsp. cloves
+½ tsp. ginger
+1 tsp. cinnamon
+1/4 tsp. nutmeg
+3/4 cup sugar
+½ tsp. salt
+1 1/2 cup cooked pumpkin
+½ cup Bisquick
+Preheat oven to 350°.  Pour all ingredients into blender.  Blend well at medium speed or mix with electric mixer on high for 4 minutes.  Pour into 10 inch greased pan.  Bake for 45 minutes.
+
+Banana Cream Pie - Liz Bunderson
+½ cup sugar
+1/3 cup cornstarch
+½ tsp. salt        
+3 cups milk
+2 egg yolks      
+1 ½ tsp. vanilla
+1 Tbsp. butter
+½ cup whipping cream
+2 medium ripe bananas
+1/4 cup apple jelly
+In sauce pan stir sugar, cornstarch and salt.  Stir in milk until blended.  Cook mixture over medium heat, stirring constantly until mixture thickens and boils.  Cook 1 minute stirring often.  Remove from heat. In small bowl beat egg yolks, sit in small amount of the hot mixture until blended well.  Pour the yolk mix back into the pudding mixture, stirring rapidly to prevent pudding from lumping. Return pan to heat; cook, stirring constantly until mixture thickens and boils.  Cook 1 minute, stir often. Stir in vanilla and butter.  Cover with plastic wrap and refrigerate until cooled but not set, about 1 hour.  When custard is cool, gently fold the whipping cream into the custard. Thinly slice bananas. Line the crust with ½ of the bananas, top with custard mixture then remaining banana slices.  Melt apple jelly.  Brush top of pie with melted jelly.  Refrigerate until pie is set, about 2 hours.
+
+
+
+
+
+
+
+
+Royal Cream Pies - Alice Chantry- Around Thanksgiving and Christmas Jell-o comes out with a devil's food flavored pudding that is delicious when used in this recipe.  Make one and enjoy it. If you've got children like mine don't be surprised if the pies come up missing after they've tried the first one.
+1 lg. pkg. Instant Jell-o Pudding Mix
+1 8 oz. package cream cheese
+1 Tbsp. sugar
+1 1/2 cups milk
+1 graham cracker pie crust 
+1 container of Cool Whip 
+Place pudding mix, sugar, cream cheese & milk in a bowl and mix at low speed for 5 minutes.   Pour into graham cracker crust.  Cover with cool whip and put in fridge for 10 minutes.  Cut and serve.  The cream cheese makes it very rich and a little salty, that is why you add a little sugar.  You can add fruit to the bottom of the pie pan before putting the filling in.  Note: When using chocolate pudding grate a chocolate bar over the top of the filling and then grate more on top of the cool whip.  
+
+French Silk Pie - Liz Bunderson
+1 cup sugar
+3/4 cup butter (not margarine)
+3 squares unsweetened chocolate (3 oz), melted and cooled
+1 1/2 tsp vanilla
+3 eggs
+whipped cream, optional
+chocolate curls, optional
+Cream butter and sugar 4 minutes until light.  Blend in chocolate and vanilla.  Add 1 egg at a time beat on medium speed 2 minutes after each egg.  Scrape sides a lot.  Turn into baked pastry shell.  Refrigerate several hours.  Top with whipped cream and chocolate curls.  Store covered in frig.
+
+Light & Fruity - Bonnie Chantry - The title tells it all.  
+1 pkg. (3 oz.) Jell-O, any favorite flavor 
+2/3 cup boiling water
+2 cups ice cubes
+1 (8 oz.) cool whip 
+1 cup crushed pineapple (drained)
+1- 9 inch graham cracker crust
+Dissolve Jell-O in boiling water.  Add ice.  Stir for 3 minutes.  Remove unmelted ice.  Blend in cool whip. Whip until smooth.  Fold in fruit.  Chill until mixture mounds.  Spoon into crust.  Chill 3 hours.
+
+Kool-Aid Pie - Bonnie Chantry - This was a recipe that was passed among all the Greece Athens missionaries.  It was such a treat to get Kool-Aid from home that this was their way of proving to other missionaries they were loved enough to get Kool-Aid. It is a fun colorful pie, limited only by the Kool-Aid company & your ability to mix & match your flavors and colors.
+Make a 9 inch pie crust using:
+1 ½ to 2 cups graham cracker or vanilla wafers crushed into cookie crumbs.
+1/4 cup melted butter.  
+Mix and line pie pan. Set aside.
+Place in a bowl:
+1 cup sugar
+1 can CHILLED Sweetened Condensed Milk
+1 pkg. of regular Kool-Aid powder
+Mix with electric beater until thick.  Pour into crust & freeze for several hours before serving.
+
+Creamy Orange Pie – Amy Badger
+1-8oz light cream cheese, softened
+1-14oz sweetened condensed milk
+¾ cup frozen orange juice concentrate, thawed
+1-8oz carton lite whipped topping, defrosted
+1-9 inch chocolate cookie wafer pie crust
+Chocolate syrup
+In a large bow with electric mixer, beat cream cheese until fluffy.  Add condensed milk and mix until incorporated.  Mix in orange juice until smooth and creamy.  Gently fold in whipped topping.  Pile into crust.  Refrigerate at least 1 hour or overnight.  Drizzle with chocolate syrup before serving.
+
+
+
+
+
+
+
+
+Lime Pie - Amy Badger - This pie was served at my sister-in-law Alicia Hatch’s baby shower.  It was my first experience with lime pie and I was hooked with the first bite.
+1 (9 inch) prepared graham cracker crust 
+3 eggs, separated 
+1 (14 ounce) can sweetened condensed milk 
+1 teaspoon grated lime zest 
+1/3 cup fresh lime juice 
+1 cup frozen whipped topping, thawed (optional) 
+Preheat oven to 325°. In a large glass or metal bowl, beat egg whites until stiff peaks form. Set aside. In a medium bowl, beat egg yolks, and then stir in condensed milk, lime rind, and lime juice. Mix well, then fold mixture into beaten egg whites. Pour mixture into graham cracker crust. Bake in preheated oven for 15 to 20 minutes or until set and lightly browned. Chill before serving. Garnish with whipped topping if desired.
+
+Chocolate-Strawberry Peanut Butter Pie-Amy Badger-The first time I made this pie was on a day that my daughter Catarina got incredibly sick.  We call over our home teacher, Brother Sam Hanks, to assist in giving her a priesthood blessing.  Catarina was visibly better right after the blessing.  This pie reminds me of the blessing that home teachers and the priesthood are.  We sent Brother Hanks home with lots of thanks and this pie!
+Graham Cracker Crust
+1-8oz pkg. cream cheese, softened
+1 cup sifted powdered sugar
+½ cup chunky peanut butter
+1-8oz container Cool Whip
+2 cups chopped strawberries
+Chocolate fudge topping (optional)
+In large bowl, mix with electric mixer cream cheese and powdered sugar until combined.  Put half of mixture into another bowl.  Add peanut butter to one of the bowls.  Mix with beaters until smooth.  Fold in half of the Cool Whip.  Set aside.
+In bowl with other half of cream cheese mixture add strawberries.  Stir.  Fold in the other half of the Cool Whip.  Alternately spoon dollops of peanut butter and strawberry mixture into prepared graham cracker crust.  Use butter knife to swirl the mixtures slightly to marble.
+Cover & freeze 6 hours or up to 3 days.  Let frozen pie stand at room temperature for 30 minutes.  Drizzle with chocolate fudge.
+
+Peanut Butter Pie - Liz Bunderson
+1 (9”) graham cracker crust
+1 (8 oz.) cream cheese softened
+1 cup powdered sugar
+½ cup peanut butter
+½ cup milk
+1 8 oz container of cool whip, thawed
+1/4 cup chopped peanuts
+Beat cream cheese until fluffy.  Mix in powdered sugar and peanut butter.  Slowly add milk, mixing well.   Fold in whipped topping.  Pour into crust.  Sprinkle with nuts.  Freeze until firm.  6-8 servings
+
+Cool Mint Grasshopper Pie – Christine Fielding 
+1-1/2 cups cold milk 
+1 small pkg. Pistachio flavor instant pudding 
+2 cups thawed cool whip, divided 
+6 Double Stuff Oreo Cool Mint Crème Chocolate Sandwich Cookies, chopped 
+1 Oreo pie crust (6 oz.) 
+1 square Baker’s Semi-Sweet Chocolate
+Pour milk into large bowl. Add dry pudding mix. Beat with wire whisk 2 min. or until well blended. Gently stir in 1-1/2 cups of the whipped topping and the chopped cookies. Spoon into crust. Spread with remaining 1/2 cup whipped topping. Melt chocolate, drizzle over pie. Refrigerate 2 hours or freeze until firm. If frozen, remove pie from freezer about 10 min. before serving; let stand at room temperature to soften slightly. Store leftovers in refrigerator or freezer.
+
+
+
+
+
+
+
+
+
+Sundae Brownie Pie - Laurie Fryatt
+1 unbaked 9-inch pie crust
+2 eggs
+1 cup sugar
+½ cup (1 stick) butter, melted
+½ cup flour
+1/3 cup cocoa
+1/4 tsp. salt
+1 tsp. vanilla extract
+½ cup chocolate chips
+½ cup peanut butter chips
+½ cup chopped nuts
+Ice Cream
+Hershey’s Chocolate Shoppe Topping
+Hershey’s Chocolate Kisses
+Heat oven to 375°. Generously prick bottom and sides of pie crust with fork.  Bake crust 10 minutes; remove from oven.  Meanwhile, in large bowl, beat eggs; stir in sugar and butter.  Stir together flour, cocoa and salt; add butter mixture.  Stir in vanilla, chocolate chips, peanut butter chips and nuts.  Pour into pie crust; return to oven.  Bake additional 25 to 30 minutes or until almost set.  (Pie will not test done in center.)  Serve warm or cool with ice cream; drizzle with topping.  Garnish with Kisses.  8 to 10 Servings.
+
+Cream Cheese Brownie Pie – Amy Badger –This recipe is one I got from the back of the pie crust box.  It always turns out great.   Except for that one time when I made it for a ward activity and dropped it on the way to the car.  Everyone enjoyed the store bought pies we brought that night.
+1 refrigerated pie crust (from 15­oz. pkg.), softened as directed on package 
+1 (8-oz.) pkg. cream cheese, softened 
+3 Tbsp. sugar 
+1 tsp. vanilla 
+3 eggs  
+1 (15.1-oz.) pkg. Pillsbury Fudge Supreme Hot Fudge Swirl Premium Brownie Mix 
+1/4 cup oil 
+2 Tbsp. water 
+½ cup chopped pecans 
+Heat oven to 350°. Place pie crust in 9-inch pie pan.  In medium bowl, combine cream cheese, sugar, vanilla and 1 of the eggs; beat until smooth. Set aside.  Reserve hot fudge packet from brownie mix for topping. In large bowl, combine brownie mix, oil, 1 Tbsp. of the water and remaining 2 eggs; beat 50 strokes with spoon. Spread 1/2 cup brownie mixture in bottom of crust-lined pan. Spoon and carefully spread cream cheese mixture over brownie layer. Top with remaining brownie mixture; spread evenly. Sprinkle with pecans.
+Bake at 350° for 40 to 50 minutes or until center is puffed and crust is golden brown. If necessary, cover edge of crust with strips of foil after 15 to 20 minutes of baking to prevent excessive browning. (Pie may have cracks on surface.) Place hot fudge from packet in small microwave-safe bowl. Microwave on high for 30 seconds. Stir in remaining tablespoon water. Drizzle fudge over top of pie. Cool 3 hours or until completely cooled. Store in refrigerator. 
+High Altitude: Add 3 tablespoons flour to dry brownie mix. Bake as directed above.
+
+Impossible Pie – Quinn Mitchell
+4 eggs
+1 stick (1/2 cup) butter
+½ cup flour
+2 cups milk
+¾ cup sugar
+1 cup shredded coconut
+½ tsp. vanilla
+Blend all ingredients thoroughly.  Pour into a 10” pie plate.  Bake at 350° for one hour or until a knife comes out clean.  Chill and serve.
+
+
+
+Chicken Salad - Sue Reber - Served in the croissants at Amy and Rachel's wedding receptions
+3 lbs. celery, chopped
+5 lbs. chicken, cooked and diced
+12 hard boiled eggs, chopped
+salt to taste
+1 tsp. pepper
+1½ cup mayonnaise
+1½ cup Miracle Whip
+1 small jar pimentos
+1 can chopped olives
+1 bunch chopped green onions
+1 pkg. orzo pasta
+Mix together. Fills 5 dozen baby croissants
+
+Chicken Salad –Grace Ann Skousen
+5 lbs. boneless skinless chicken breasts
+2 pkg. dry onion soup mix
+Boil chicken for 20 minutes and then add soup mix and them simmer for 2 hours.
+Dressing:
+1 quart of mayo
+1 heaping cup sour cream
+½ cup apple juice (or water from boiled chicken)
+2 tsp. salt
+1 tsp. pepper
+1 tsp. garlic
+1 tsp. onion powder
+Mix dressing together and coat chicken
+Add: one whole celery, chopped, 2 gala apples, cut up and halved red seedless grapes
+
+Chicken Salad - Sue Reber - Has become a favorite lunch at family reunions
+1 head lettuce
+2-3 cups cut up chicken or turkey
+1 large Bermuda onion, diced
+1 cup frozen peas
+1 can sliced water chestnuts
+½ cup diced green pepper
+Mix well in large Tupperware bowl.  Cover with 2 cups (or more) mayonnaise
+8 oz grated cheese
+3 hard cooked eggs, grated
+5-6 slices bacon, crumbled
+Garnish with parsley
+
+Chinese Chicken Salad – Becky Concoby
+1 pkg. Spiral pasta
+chicken breasts
+fresh spinach, chopped into bite-size pieces
+cashews
+sunflower seeds(hulled)
+1 cup parmesan cheese
+Dressing:
+1/4 cup olive oil
+1/4 cup sugar
+1 tsp pepper
+1 cup red wine vinegar
+1/2 cup soy sauce
+Cook and cool pasta, place in a large bowl. Cook and cut up chicken and add to pasta. Combine dressing ingredients and pour over, stir well.  Chill at least an hour.  Add remaining ingredients prior to serving.
+
+Korean Chicken Salad –Becky Concoby
+2 chicken breasts, cooked and chopped
+1/2 cup sugar
+2 Tbsp. sesame seeds
+1 head lettuce
+5 green onions chopped
+2 Tbsp. cornstarch
+1/2 cup ketchup
+3/4 cup sugar
+1/3 cup soy sauce
+1/4 tsp. ground ginger
+15 won ton skins
+1 cup chopped celery
+2 Tbsp. water
+2 Tbsp. soy sauce
+1/2 cup vinegar
+Marinate chicken soy sauce sugar, ginger, garlic powder and sesame seeds overnight. Drain chicken and cook in skillet until done.  Let cool.  Fry 15 won ton skins.  Chop lettuce into bite size pieces.  Add celery and green onions. Add chicken, broken won tons and dressing.
+Dressing:
+Mix water and cornstarch in a small pan.  Add 2 Tbsp soy sauce, ketchup, vinegar and sugar.  Boil until clear, chill.
+
+
+
+Tuna Sea Shell Salad – Liz Bunderson
+ serves 6-8
+ 2 cups small sea shell pasta, uncooked
+1 (6 ½ oz.) can tuna, drained and flaked
+1 med. tomato, seeded and diced
+1 small cucumber, diced
+1 cup fresh mushrooms, sliced
+1/2 cup black olives
+1/2 small green pepper, diced
+1/2 small red onion, chopped
+1 tsp. pepper
+1 tsp. salt
+3/4 cup Italian dressing
+Cook pasta al dente, drain.  Combine remaining ingredients and toss lightly. Cover and chill.
+Toss again before serving.
+
+Greek Niocese Salad –Amy Badger-I like to put all the ingredients on a serving platter in separate piles so everyone can put on the items they enjoy and make their own creation. This way even picky eaters like my son Stephen will eat this salad. Serves 4.
+2 cans quality tuna
+4 potatoes, boiled & cubed
+4 hard boiled eggs, chopped
+2 stalks of celery, sliced
+1 med. onion, diced
+1 sweet pepper, diced
+1/2 cup kalamata olives
+Mix the above ingredients together and cover with dressing.
+Dressing:
+1/2 cup olive oil
+1/3 cup red wine vinegar
+1 to 2 cloves of garlic minced
+1 to 2 Tbsp. lemon juice
+Salt, to taste
+Pepper, to taste
+Place all together in jar with lid and shake well.
+
+Low Fat Crab Salad - Sarah Manis
+1 lb. imitation crab
+1 medium cucumber
+4 medium apples
+½ tsp. garlic powder
+1 tsp. white pepper
+1 cup light Miracle Whip
+Dice crab, cucumbers, apples.  Mix last three ingredients and all to crab mix. Chill for 1 hour.
+
+Monte Cristo Salad –Liz Bunderson
+serves 4
+6 cups torn salad greens
+1 lg. tomato, cut into wedges
+1 cup croutons
+1 pkg. (9oz.) smoked turkey breast, cut in strips
+4 Swiss cheese slices, cut into strips
+2 hard-cooked eggs, quartered
+1/4 cup honey-dijon mustard
+Combine greens, tomato, and croutons in a large serving bowl.  Add remaining ingredients; toss lightly.  Serve immediately or gets soggy.
+
+Crunchy Bacon Coleslaw –Liz Bunderson
+1/2 cup Miracle Whip Light Dressing 
+1 Tbsp. sugar 
+1 tsp. cider vinegar 
+4 cups shredded green cabbage 
+1 cup shredded red cabbage 
+1/2 cup salted peanuts, chopped 
+4 slices bacon, crisply cooked, drained and crumbled 
+Mix dressing, sugar and vinegar in large bowl. 
+Add remaining ingredients; toss to coat. 
+Refrigerate 1 hour. 
+
+KFC Style Coleslaw –Bonnie Chantry – This recipe came from the Empty Nesters gatherings we held in Albany.  Each time the Empty Nester’s met at our home, I would ask LuDean Worthen to make and bring this salad.
+1 head cabbage, finely shredded (1½ to 2 lbs.)
+¼ cup finely diced carrots
+2 Tbsp. finely diced onions
+½ cup sugar
+1 tsp. salt
+½ cup Miracle Whip
+½ cup sour cream
+2 Tbsp. vinegar
+2 tsp. oil
+Mix cabbage, carrots, onions, sugar and salt.  In another bowl combine Miracle Whip, sour cream, vinegar, and oil.  Mix well.  Pour dressing on cabbage mixture and stir until veggies are covered with dressing.  Chill at least one hour.  
+Ramen Noodle Salad - Tawna Marsh
+½ cabbage, chopped
+1 pkg. chicken ramen noodles
+½ cup sliced almonds
+4-5 green onions, chopped
+3 Tbsp. sesame seeds
+Mix together and break up noodles into bite size pieces.  Add dressing:
+½ cup oil		
+2 Tbsp. sugar
+3 Tbsp. vinegar	
+1 tsp. salt
+1/4 tsp. pepper  
+seasoning packets from noodles. 
+Mix well, pour over salad and refrigerate.
+
+Broccoli Salad - Tiffanie Olsen
+4 broccoli stalks, chopped
+3/4 cup golden raisin
+½ cup chopped onion
+½ cup sunflower seeds
+5 strips crispy bacon, crumbled 
+OR ¼ cup bacon bits
+Dressing:  
+1 cup mayo
+1/3 cup sugar
+2 Tbsp. white vinegar
+Mix together dressing. Toss with veggies.
+
+Greek Salad - Bonnie Chantry – Serving in Greece on our mission exposed us to lots of neat new foods.
+Tomato wedges		
+Feta Cheese crumbled 
+Slices cucumbers 	
+Pitted Olives
+Green pepper strips	
+Salt
+Onion slices, separated rings
+Oregano
+Dressing of olive oil and vinegar.
+
+Panzanella Bread Salad – Amy Badger –Justin and I both loved this salad.  It made me long for the day we can go to Italy.
+4 cups tomatoes, cut into large chunks
+4 cups day old (somewhat dry and hard) crusty bread (Italian or French loaf), cut or torn into chunks the same size as the tomatoes*
+1 cucumber, skinned and seeded, cut into large chunks
+1/2 red onion, chopped
+1 bunch fresh basil, torn into little pieces
+1/4 to 1/2 cup good olive oil
+Salt and pepper to taste
+Mix everything together and let marinate, covered, at room temperature for at least 30 minutes, up to 12 hours. Do not refrigerate or you will destroy the texture of the tomatoes. Note: If you don't have hard old bread sitting around, you can use fresh crusty bread, lay the cubes out on a baking sheet, and put in a 300°F oven for 5-10 min. (not toasted, just dried). If you use fresh bread without doing this, the bread may disintegrate into mush in the salad.
+
+3 Bean Salad –Jill Olsen
+1 bag frozen cut green beans 
+1can red beans 
+1can garbanzo beans
+8 oz. of Italian dressing
+1/2 cup Parmesan cheese + extra for  topping
+Thick Whole grain bread crackers  
+Extra add in ideas:
+Shredded or flaked Parmesan instead of crumbs
+Slivered almonds
+Bacon bits 
+Cook & drain green beans, rinse and drain canned beans. Mix in a large bowl with Italian dressing. Break up crackers into fairly large chunks (about 1/2") mix the crackers and Parmesan cheese (and any other extras ) into salad. Add dressing and fold in gently. We don't want to crush the crackers. Pour salad into desired serving bowl and then sprinkle the top with Parmesan, nuts, bacon whatever you're using. Serve right away. 
+Note: The salad is extra good while the crackers stay crunchy. This salad is great for a quick fix and easy for family parties. It can be made the night before, just make sure you add the toppings ie; cheese, crackers, nuts right before you serve it. Sometimes I like to let my beans marinate in the dressing over night and then add the rest of the goodies later.
+
+
+
+Three Bean Salad –Sue Reber
+1 16 oz. can green beans
+1 16 oz can dark red kidney beans
+1 16 oz can garbanzo beans
+1 medium onion chopped
+½ cup chopped green pepper
+½ cup sugar
+2/3 cup vinegar
+1/3 cup salad oil
+1 tsp. salt
+1/4 tsp. pepper
+Directions:
+Drain beans.  Combine beans with green pepper and onions.  Combine the sugar, oil and vinegar then pour over the vegetables.  Add salt and pepper, toss.  Chill overnight.  To serve, toss to coat beans, then drain.  Serves 6-8.
+
+Kidney and Green Bean Salad - Grandma Grace – I got this while serving our mission in Arkansas from Sister Grant.
+2 cans red kidney beans
+2 cans whole green beans
+2 cans yellow wax beans
+2 cans garbanzo
+1 large can pimento, diced
+1 cup green stuffed olives
+2 large green pepper, cut in thin rings
+2 large sweet salad onions, cut into thin rings
+1/4 cup salad oil
+1/4 cup vinegar
+1/4 cup sugar
+Drain all canned ingredients.  Put in large container and mix above ingredients together.
+Then mix in a quart jar:
+1 cup brown sugar
+1 cup catsup
+1 cup oil
+1 cup wine vinegar
+1 tsp. salt
+pepper
+1 clove garlic crushed
+1/4 tsp cloves (optional)
+1 Tbsp. Worcestershire sauce
+several dashes of Tabasco
+Shake and put over bean mixture.  Put in jars and store in frig and just serve.
+
+
+Ukrainian Cracked Wheat Salad – 
+Amy Badger – This unique salad is from my Grandma Reber’s well worn Carmel Ward cookbook.  I met several of the women who had submitted the recipes when we were stationed at DLI and attended the exact same ward.
+2 cups whole wheat cooked and salted. 
+(yeah that stuff you get from the cannery & wonder what to do with it),
+½ cup minced fresh parsley
+½ cup salad oil
+1 minced onion
+Juice of one lemon
+Tomatoes, chopped
+Lettuce, chopped
+Directions:
+Blend oil well into cooked wheat.  Add remaining ingredients, except for tomatoes and lettuce.  Preferably, let stand overnight to enhance flavors.  When ready to serve, mix in chopped tomatoes and lettuce of any desired amount.
+Note: You can cook whole wheat in the crock pot by covering it with water and cooking on low over night or all day.
+
+Potato Salad Dressing - Jill Olsen
+2 cups Miracle Whip
+½ can evaporated milk
+garlic salt
+mustard
+onion salt
+salt and pepper
+Marinate overnight or at least one hour.
+
+Potato Salad - Grandma Grace
+Cook 6 medium potatoes with skins on in boiling salted water (with an onion cut up) Cook ‘till done, but still firm.  Hard cook 4-6 eggs, in water with 1 Tb vinegar added.  Cook for 20 minutes in simmering water, then plunge into cold water. Peel potatoes and while still warm add 1 cup Miracle Whip and 2 Tbsp. finely chopped onions.  Let stand for several hours.  Add more onion, salt to taste, cut up eggs.  Can add green pepper, pimento or more Miracle Whip as needed
+
+Fielding Favorite Potato Salad - Annalisa Fielding (large enough for a family party)
+Potatoes, diced into bite size pieces (how many?  I fill my 6qt. pressure cooker about 2/3-3/4 full)
+10-12 eggs
+1-2 lbs. bacon, cut into 1" pieces
+1/4-1/2 small onion, chopped
+mustard, to taste
+pickle brine, to taste
+onion salt, to taste
+garlic salt, to taste
+miracle whip
+paprika
+Ahead of time:
+Bring potatoes to a boil and cook for 8 minutes
+Cook bacon until crispy and drain on a paper towel.  Boil eggs for 10 minutes, remove shells, and slice. Put potatoes, bacon, and eggs in fridge to cool
+When ready to serve:
+In a large bowl add: potatoes, 3/4 of the egg slices, bacon, onion, mustard, pickle brine, onion and garlic salt.  Gently mix together.  Coat with miracle whip and top with remaining egg slices.  Sprinkle with paprika.
+
+Shirley’s Potato Salad – Liz Bunderson
+Serves 20
+8 lbs. Potatoes, cooked in jackets till tender, peeled, cut into chunks (Large pot filled to rim with raw potatoes)
+1 doz. Hard boil eggs, cut into chunks
+2 -3 green onions, chopped
+1 cup celery, chopped
+¼ - 1/3 cup mustard
+¼ cup sugar
+¾ cup evaporated milk
+almost 1 qt. Miracle Whip
+Paprika
+Lawry’s Seasoning Salt, to taste
+Mix potatoes, green onion, celery, and eggs together gently. Careful not to break up eggs to much. Sprinkle with seasoning salt. In a separate bowl mix together mustard, sugar, Miracle Whip, evaporated milk, sprinkle in a little seasoning salt and paprika. Gently fold dressing into potato mixture. Taste and adjust seasoning if needed. After transferring salad to a serving bowl, sprinkle with paprika.
+
+Canned Potato Salad- Amy Badger –The first time I tried this I was shocked to find out it was made with canned potatoes.  I assumed they were nasty like canned peas.  It was delicious and I have made it several times since. I often get the same reaction of shock from others to learn canned potatoes can taste good!!
+4 cans sliced potatoes, drained
+Kosher salt
+1 cup good mayonnaise
+1/4 cup buttermilk, milk, or white wine
+2 Tbsp. Dijon mustard
+2 Tbsp. whole-grain mustard
+1/2 cup chopped fresh dill
+Freshly ground black pepper
+1/2 cup chopped celery
+1/2 cup chopped red onion
+Directions:
+In a small bowl, whisk together the mayo, buttermilk, Dijon mustard, whole-grain mustard, dill, 1 tsp. of salt, and 1 tsp. of pepper. Set aside. Place the potatoes in a large bowl. Pour enough dressing over them to moisten. (As the salad sits, you may need to add more dressing.) Add the celery and red onion, 2 tsp. of salt and 1 tsp. of pepper. Toss well, cover, and refrigerate for a few hours to allow the flavors to blend. 
+
+Pizza Pasta – Stephen Badger – I tell my family that I hate salads, but this is one that I like because I don’t put any dressing on it.  You can put Italian dressing on it, but then I would think that was yucky!!
+1 pkg. tri-colored noodles, cooked
+2 sticks string cheese, sliced
+20 slices of pepperoni, diced
+1 small can sliced olives
+Mix all ingredients and enjoy.  
+Stephen says: If you decided to add onions or other vegetables in this pasta it would be a bad idea. Very yucky!
+
+
+
+
+Orange Cottage Cheese Salad – Sue Reber – This is a recipe from Great Grandma Doris Reber who kindly let us live with them for time when we moved to St. George.  There our last name was pronounced with a short e, like web.
+1 pint cottage cheese
+1 (8oz.) crushed pineapple
+1 (11oz) mandarin oranges
+1 (8oz.) cool whip.  
+1 small pkg. orange Jell-O.  
+Stir all ingredients together and serve
+
+Sunset Salad –Grandma Grace 
+2 small pkgs. orange jello
+1 grated carrot
+1 tsp. finely grated orange rind
+1 small can pineapple, drained
+3 ¾ cup water
+Gel the above.  
+Serve with dressing:
+¾ cup water
+3 Tbsp. sugar 
+1 Tbsp. cornstarch
+Cook the above and cool.  Add
+Juice of one orange and bit of rind.  Fold in ½ cup of whipped cream. Dollop on top of jello.
+
+Waldorf Salad - Grandma Grace
+1 large unpeeled red apple, chopped 
+2 medium celery ribs, thinly sliced 
+1/4 cup chopped walnuts 
+2 tbsp. mayonnaise or salad dressing
+Combine all ingredients. Stir until moistened. Makes about 3 to 4 servings.
+
+Britney’s Favorite Fruit Salad - Marjean Spencer
+1 16oz. fruit cocktail
+1 15oz .crushed pineapple
+1 small pkg. instant pudding (vanilla, banana or coconut)
+8oz. cool whip
+1 can mandarin oranges
+miniature marshmallows    
+bananas, sliced
+Do not drain fruit cocktail or pineapple.  Drain oranges.  Mix all ingredients.  Can chill overnight.  Add bananas just before serving.
+
+Acini De Pepe Salad - Ruby Fielding – This salad was served at a family picnic by the Manti Temple on the special day when Coach & Annalisa Fielding received their endowments and were married.
+½ cup uncooked Acini de Pepe pasta 
+20oz. (1 can) pineapple chunks 
+22oz. (2 cans) mandarin oranges 
+1/3 cup sugar 
+3 Tbsp. flour 
+1/4 tsp. salt 
+1 beaten egg 
+½ cup colored miniature marshmallows 
+8oz. whipped topping
+Cook pasta in 2 or 3 cups of water until tender. Drain; rinse in cold water and pour into bowl. Drain fruits, reserving juices. Put fruit in bowl with pasta. In saucepan combine sugar, flour, and salt. Gradually stir in reserved juices and egg. Cook and stir until thickened and bubbly. Cool slightly; stir into fruit and pasta. Refrigerate until cooled. Stir in marshmallows and topping. Chill several hours or overnight before serving. Makes 8 to 10 servings. You can use other canned fruits such as peach slices, cut up pear halves, fruit cocktail or fresh fruits such as bananas, grapes, oranges, etc.
+
+Lime Scented Strawberry Mango Salad –Liz Bunderson - Serves 8
+3/4 cup sugar
+2 tsp. grated lime zest
+1/4 cup fresh lime juice
+3 cup sliced strawberries (about 2 lbs.)
+3 cup mangoes, peeled & diced 
+(about 2 to 3 large mangoes)
+1/3 cup water 
+Combine sugar and water in a small saucepan and bring to a boil over high heat, stirring occasionally. Reduce heat to medium-low and simmer until sugar has dissolved, about 3 minutes. Remove from heat and let cool. Stir in lime zest and juice; let cool to room temp. Mix strawberries with mangoes in a large bowl. Add syrup and gently stir until well mixed. Refrigerate at least 30 minutes.
+
+
+
+Grape Salad –Kadie Allred
+8oz. cool whip
+8oz. cream cheese
+8oz. sour cream
+½ cup brown sugar
+Almonds (sliced or slivered)
+Grapes (red)
+Mix cream cheese & sour cream first. Mix in cool whip. Add sugar, almonds & grapes. The amount of almonds & grapes is up to you.
+
+Ambrosia Salad - Amy Badger – This is my stand-by side dish when company comes over as I usually have all the ingredients on hand.
+1 can pineapple chunks, drained
+1 can mandarin oranges, drained
+1 cup coconut
+1 cup sour cream
+Drain all the fruit and mix all ingredients together. Refrigerate before serving. It gets better if it can be frigerated for at least an hour.
+
+Snickers Salad- Rachel Mitchell – It sounds strange, but tastes out of this world.  
+2 reg. size Snickers candy bars, chopped
+4 to 6 Granny Smith apples, chopped
+1 (8oz) Cool Whip
+Mix all together and enjoy immediately as the salad does not save well.
+
+Caramel Apple Fruit Salad - Stephen Badger – I was in charge of a family picnic in order to earn a Cub Scout merit badge.  I learned how to make this salad & love making it for people like Grandma Sue when they come to visit.
+1 small container (8oz) Cool Whip
+1 small box (4oz)Butterscotch Instant Pudding 
+1 (20oz) can crushed pineapple (with juice)
+4 cups chopped apples
+crushed cashews (optional)
+First combine pineapple (with juice) and instant pudding mix, stir well. Fold in Cool Whip.  Add apples.  Stir. Sprinkle with chopped nuts/cashews if desired.
+
+
+
+
+Pistachio Salad - Marjean Spencer – This is  Kolby's favorite salad.
+1 20oz. can crushed pineapple including juice    
+1 pkg. pistachio instant Jell-O pudding
+1 cup mini marshmallows
+1 8oz. frozen Cool whip, thawed
+Mix pudding into the pineapple.  Add marshmallows.  Fold in whip cream.  Let set. Note: from Bonnie “This is a yummy dessert type salad that we first tasted at a Family Reunion (Farnsworth) on Gene's side of the family. Just add ½ cup chopped nuts to this salad.”
+
+Cherry Salad - Trisha Olsen
+1 can cherry pie filling
+1 large Cool Whip
+1 can sweetened condensed milk
+1 lrg. can crushed pineapple (drained)
+coconut, if desired
+Mini marshmallows - I use white.
+Mix together - chill.
+
+Blueberry Jell-O Salad - Liz Bunderson
+6 (oz.) grape Jell-O
+2 cups boiling water
+1 can blueberry pie filling
+1 (20 oz.) can crushed pineapple with juice
+Dissolve Jell-O in water.  Add pineapple (this will cool it) & pie filling.  Pour in a 9x13 pan.  
+Topping:
+1 (8oz.) cream cheese (softened)
+1 cup sour cream
+½ cup sugar
+Beat cream cheese then mix in sour cream & sugar.  Spread on top of Jell-O when set.
+Variation: Use cherry Jell-O and cherry pie filling instead of grape and blueberry.
+
+Jell-O Salad –Jill Olsen
+Cook one large pkg. vanilla pudding using water instead of milk (do not use instant pudding). Add any favor of jello. Refrigerate to set up, beat in a large cool whip when cooled.
+Note: This makes a great dessert when made with lemon jello and served with a vanilla wafers on the side!
+
+
+DRESSINGS:
+
+Ginger’s Ranch Dressing – Liz Bunderson
+1 cup mayonnaise
+1 cup buttermilk
+½ tsp. garlic salt
+½ tsp. onion salt
+1-2 Tbsp. chopped fresh parsley
+8 oz. cream cheese (optional)
+Put all ingredients in a blender and blend. 
+Note: You can add up to 8 oz. of cream cheese to the thickness you like.
+
+Dill Ranch Dressing – Amy Badger – This dressing is one that Justin’s mom makes often for her delicious green salad.  She adds tomatoes, cucumbers, hard cooked eggs, bacon and her secret ingredient “garbanzo beans” to romaine lettuce for a delicious salad we love.
+2 cups mayonnaise
+2 cups buttermilk
+2 Tbsp. onion flakes
+1 tsp. parsley flakes
+1 tsp. dill weed (OR add 1 tsp. more parsley)
+1 tsp. salt
+1 tsp. Accent (msg)
+¼ tsp. garlic salt
+Blend.  Refrigerate. Shake well before use
+
+1000 Island Dressing - Grandma Grace
+1 cup mayonnaise
+1/4 cup chili sauce
+1/4 cup sweet pickle relish
+1 chopped hard cooked egg
+1 Tbsp. Worcestershire sauce
+Combine ingredients and chill. 
+
+Low-fat Salad Dressing – Amy Badger
+1/3 cup sugar
+1 small onion, finely chopped
+¼ cup cider vinegar
+¼ cup unsweetened applesauce
+2 Tbsp. water
+2 Tbsp. canola oil
+4 tsp. prepared mustard
+1 tsp. salt
+½ tsp. coarsely ground pepper
+Combine all ingredients in a blender or food processor.  Cover and process until smooth.
+Poppy Seed Dressing - Sue Reber
+3/4 cup sugar
+1 tsp. dry mustard
+1 tsp. salt
+1/3 cup vinegar
+1 Tbsp. onion juice
+1 cup salad oil
+1½  Tbsp. poppy seed
+Mix thoroughly.  Makes 2 cups.
+
+Poppy Seed Dressing - Grace Ann Skousen
+½ cup oil
+½ cup sugar
+1/4 cup red wine vinegar
+2 Tbsp. sesame seed
+1 Tbsp. poppy seed
+1 ½ tsp. minced onions
+1/4 tsp. Worcestershire sauce
+1/4 tsp. paprika
+Mix well. Pour over spinach leaves, walnuts and mandarin oranges.
+
+Creamy Tomatillo Salad Dressing – Rachel Mitchell
+1 cup light sour cream
+1 envelope Ranch salad dressing
+½ envelope Fiesta Ranch salad dressing
+6 tomatillos- husked & cut in half
+1 clove garlic, minced
+Juice from 2 limes, freshly squeezed
+¼ cup fresh chopped cilantro
+Combine all ingredients in a blender and blend until smooth.  Store in fridge for up to 2 weeks.
+
+Sweet Dressing – Amy Badger – This is great on a salad of romaine, mandarin oranges, slivered almonds & purple onion.
+¼ of a white onion
+1/3 cup sugar
+1 tsp. dry mustard
+1 tsp. salt
+1 tsp. celery salt
+½ cup cider vinegar
+1 cup salad oil
+In a food processor, finely chop white onion and then add sugar, mustard, salt, celery salt and vinegar.  Blend.  With food processor running, slowly drizzle in oil and blend to emulsify.  Store in fridge until use.  Shake well.
+
+Barbecue Sauce  - Grandma Grace
+1 med. onion, chopped	
+2-4 Tbsp. butter		
+1 cup catsup 		
+2 Tbsp. Worcestershire
+1/4 tsp. pepper		
+½ cup chopped celery
+1 cup water		
+2 Tbsp. vinegar
+4 Tbsp. lemon juice	
+1 Tbsp. mustard
+1 tsp. salt		
+2 Tbsp. sugar
+Brown onion in butter.  Add other ingredients and pour over spare ribs or other meat and let simmer.
+
+Barbeque Sauce – Jill Olsen
+3 cups brown sugar
+3 cups ketchup
+minced onion
+1 can of crushed pineapple (you can use juice only if desired)
+garlic salt and mustard to taste
+Optional: 1/4 cup soy sauce can be added for extra zing! Mix all together, marinate chicken, ribs, or anything else your heart desires!
+
+Basic White Sauce - Bonnie Chantry
+Knowing how to make this sauce can help you make all kinds of creamed soups, scalloped dishes and gravies.  You'll find many ways to use it and vary it.
+1 stick butter
+½ cup flour
+1 tsp. dried parsley
+1 quart milk
+1/4 tsp. pepper
+1 tsp. salt
+In sauce pan melt butter.  Add flour and seasoning.  Stir into paste.  Heat, stirring constantly to cook flour.  This takes away the floury taste.  Remove from heat to add the milk.  Return to heat and stir constantly
+while sauce thicken.  DO NOT BOIL.  
+
+
+
+
+Enchilada Sauce - Sue Reber
+1 can tomato sauce
+1½ cups water
+2 Tbsp. flour
+1½ tsp. onion flakes
+1 tsp. salt
+½ tsp. chili powder
+1/4 tsp. garlic powder
+1/4 tsp. baking powder
+1/8 tsp. pepper
+½ tsp. paprika
+1 Tbsp. Parmesan cheese
+Combine all, but cheese, bring to a boil then simmer 10 minutes.  Blend in Parmesan cheese.
+
+Enchilada Sauce  - Grace Ann Skousen
+½ cup oil        
+flour
+2 quarts tomato juice
+1 can Rotel (diced tomatoes & green chilies)
+2 Tbsp. vinegar
+2 Tbsp. sugar
+1 Tbsp. cumin
+pinch of oregano
+1 Tbsp. diced green pepper
+salt to taste
+Mix together oil and flour in pan.  Add the rest of the ingredients and simmer for 1 hour.  Makes a lot and can be frozen for later.
+
+Becky’s Salsa - Becky Concoby
+½ bushel tomatoes, scalded, peeled and chunked
+8 medium onions, chopped
+8 large green pepper chopped
+15 jalapeño peppers, remove seeds and chopped
+15 yellow pepper chopped
+2 cloves garlic, chopped
+5 Tbsp. sugar
+5 Tbsp. (not iodized) salt
+½ cup white vinegar
+Cook in large kettle, bring to boil.  Simmer 2-3 hours.  Process in jars for 20 minutes.
+
+
+
+
+
+Hot Sauce - Marjean Spencer
+8 qts. chopped tomatoes
+4 -5 chili pepper, cut up
+5 cups sugar
+3 cups green onion, chopped
+½ cup salt
+2 cups vinegar
+3 tsp. cloves
+3 tsp. cinnamon
+2 tsp. nutmeg
+2 tsp. ginger
+3 small yellow or green peppers
+Tie spices in a cloth bag.
+Boil onions, tomatoes and vinegar and peppers for a while before adding sugar.  Put in oven.  Cook 2 ½ to 3 hours.  Put in jars and seal.
+
+Sweet & Sour Sauce – Sue Reber - Add some sautéed onions, peppers and cooked chicken nuggets to this sauce for an easy dish, best served over rice.
+2/3 cup sugar
+1/4 cup catsup
+1/3 cup pineapple juice
+½ cup vinegar
+2 Tbsp. soy sauce
+garlic powder 
+Mix ingredients together and cook sauce over medium heat.  Stir in 2 Tbsp. cornstarch mixed well with 1/3 cup water. Add 1 cup well drained pineapple chunks.  Add a few drops of red colorings.
+
+Teriyaki Sauce - Sue Reber
+1 cup soy sauce
+1 cup water
+2-3 green onion finely chopped
+clove of garlic minced
+1 Tbsp. sesame seed oil
+3/4 cup sugar 
+Stir until sugar is dissolved.  Marinate beef, chicken, steaks, etc. overnight. Barbecue.
+
+Sweet & Sour Dipping Sauce - Sue Reber
+1 cup pineapple juice
+½ cup brown sugar
+½ diced green pepper
+1/3 cup cider vinegar
+1 1/2 Tbsp. cornstarch
+2 Tbsp. soy sauce
+Combine ingredients and cook, stirring constantly, until thickened and translucent.
+
+Wonton Dipping Sauce – Amy Badger 
+4 Tbsp. soy sauce
+2 Tbsp. white vinegar
+1 to 2 tsp. sugar
+opt: ¼ tsp. powdered mustard
+Mix together and use for dipping boiled or fried wontons or eggrolls.
+
+Garth’s Gravy - Garth Fielding
+2 cups water
+2 Tbsp. butter or margarine
+1 bouillon cube
+Bring to a boil
+In a separate container add:
+1/4 cup cold water
+2 Tbsp. corn starch
+Shake in some pepper, seasoning salt and powdered milk.  Use a whisk and beat until smooth.  Pour into the boiling water and constantly stir until it thickens.  You can leave out the butter.  If you use the powdered milk you get milk gravy.  If you leave it out you get regular gravy.
+
+Alfredo Sauce  - Becky Concoby
+1/4 cup butter
+1/4 cup flour
+2 to 3 cups half and half or whole milk
+3/4 cup parmesan cheese
+2 Tbsp, parsley
+½ tsp. salt
+Melt butter then add the rest.  Pour over pasta.
+Note: This recipe doubled is about right for a 22 oz. package of noodles.
+
+Alfredo Sauce – Quinn Mitchell
+½ tsp. chicken bullion or to taste
+Dissolved in ½ cup of water
+½ cup of half & half or more
+1 tsp. garlic
+1 tsp. basil
+A whole brick of  cream cheese
+Parmesan cheese to taste (1/2 cupish)
+½ tsp. sherry OR pineapple juice
+Heat together all ingredients until cheeses melt.
+Marinara Sauce – Kathy Brown  - This is a recipe I know by heart, it’s actually Mario Batali’s tomato sauce recipe with a few adjustments
+Olive oil (about ¼ cup)
+1 medium onion – chopped
+4-5 cloves of garlic, smashed and finely minced
+Red pepper flakes (to taste, the more you put in, the spicier it will be)
+1/2 medium carrot, finely shredded
+2 (28 oz) cans of whole, peeled tomatoes
+3 Tbsp. fresh thyme leaves
+1 Tbsp. freeze fried or fresh basil
+Salt and pepper
+Heat oil in saucepan, add the onion, sprinkle with some salt and red pepper flakes (go easy on these) and sauté for a few minutes, then add the garlic (garlic will have a bitter taste if cooked for too long, so DON’T add it at the same time as the onion). Cook both until they are soft and start to get golden. Add the fresh thyme and carrot and cook 5 minutes, until carrot is soft. Add the tomatoes and juice from the cans, and the freeze dried basil.  Crush the tomatoes with your spoon to break them up, salt and pepper to taste.  Bring to a boil, then lower the heat and simmer for 30 minutes. 
+This sauce freezes great and can last up to 6 months in the freezer.
+
+Italian Spaghetti Sauce - Russell Olsen –Serving a mission in Italy gave Russell the knowledge to make a great spaghetti sauce.
+Read through the entire recipe before starting.
+Tomato sauce
+Tomato paste
+Tomatoes (fresh or bottled)
+Tomato forms can be used in any combination and as much as you figure you'll need 
+About 1/4 cup olive oil
+a couple of garlic cloves, crushed, chopped or otherwise mutilated
+1 onion, diced
+some basil, fresh or dry
+less oregano than basil
+½ tsp. salt
+some pepper
+1 tsp. sugar
+hamburger, if desired
+cayenne pepper if desired
+Sautéed diced onion and garlic in olive oil.  When onions are soft add tomato combinations.  Add spice including sugar.  It is almost impossible to put too much basil, so don't be afraid.  Browned hamburger may be added in any amount desired at any time during process. Be reminded that Italians don't use very much meat in their sauces, (if any at all).  Simmer for as long as you can. (The longer the better).  Italian mamas start their sauce in the morning and eat around 2 o'clock.  Their sauce simmer the whole time.  Serve sparingly over desired pasta.  Sauce tastes better the next day so it wouldn't hurt to make it a day ahead.  On the other extreme if it has simmered for only an hour, it will be fine.  If it is to simmer for a long time some grated carrots and celery can be added.  They cook down to mush.
+If you add meat it is called Ragu Bolognese.
+
+Hawaiian Teriyaki Chicken Marinade – Liz Bunderson
+1 cup brown sugar
+1 cup soy sauce
+1 tsp. ginger powder
+1 tsp. garlic powder
+2 Tbsp. sesame seeds (optional)
+Mix all ingredients together except sesame seeds. Add chicken. Freeze in labeled gallon freezer bag.. Freeze sesame seeds separately. Attach to gallon bag. To serve: Thaw. (As it thaws it marinates) Grill, bake or broil. Serve with rice and steamed vegetables.
+
+Becky's Favorite Marinade of All Time! –Becky Concoby
+1/2 cup oil
+1/4 cup Worcestershire sauce
+2 tsp. salt
+1/2 cup red wine vinegar
+2 cloves garlic, minced
+3/4 cup soy sauce
+2 Tbsp. Dijon mustard
+1 Tbsp, yes TBSP of black pepper
+2 tsp. parsley
+1/4 cup lime or lemon juice
+Marinade for a long time or 30 minutes, whichever you like. Great on chicken or steak.  
+Garlic Lime Chicken Marinade – Liz Bunderson
+½ cup brown sugar
+½ cup red wine vinegar
+½ cup oil
+1 tsp. Dijon mustard
+6 cloves garlic, minced
+3 Tbsp. lime juice
+3 Tbsp. lemon juice
+1 ½ tsp. salt
+¼ tsp. pepper
+Mix all ingredients together.  Add chicken.  Marinate no longer than 2 hours.  Grill, bake or pour everything into a pan and broil 15 to 20 minutes.  Serve with rice & vegetables.  Boiling the marinade make s a good sauce to serve over chicken and rice.
+
+Mormon Miracle Pageant Marinade –Trish Olsen – John loves meat made this way.
+1 can sprite
+½ cup oil
+½ cup soy sauce
+½ tsp. horseradish
+2 garlic cloves, crushed
+Dump in bag.  Add chicken, steaks or turkey tenders.  Marinate over night.  Grill, broil or bake. Note:  Add ½ cup Worcestershire sauce
+for Liz Bunderson’s version of this marinade.
+
+Glaze for Salmon –Amy Badger
+4 Tbsp. butter or margarine
+2 Tbsp. brown sugar
+1 to 2 tsp. spicy mustard
+1 to 2 tsp. soy sauce
+1 to 2 shakes of garlic powder
+Melt butter in microwave safe dish.  Add brown sugar and microwave on 70% power for 45 to 60 seconds.  (Watch to make sure it doesn’t boil over.) Stir the syrupy mixture and make sure it is well combine.  Add mustard, soy sauce and garlic powder to taste.  Brush over salmon fillets before baking or grilling.  Continue to baste several times during cooking.
+
+
+
+
+
+Tartar Sauce - Grandma Reber
+1 cup mayonnaise
+1 tsp. grated onion
+1 tsp. minced parsley
+2 Tbsp. minced dill pickle
+1 Tbsp. pimento
+dash of Tabasco sauce
+
+Sweetened Condensed Milk –Barbara Olsen- A recipe from a favorite website, www.apreparedhome.com
+1 cup water
+2 cups sugar
+¼ cup butter or margarine
+4 cups instant milk powder
+Combine water and sugar in a medium saucepan.  Stir over medium heat until sugar dissolves.  Pour mixture in a blender.  Add butter or margarine.  Blend on low, gradually adding milk powder.  Blend on medium until smooth.  Makes about 3 ½ cups, or 2 (14oz.) cans of sweetened condensed milk. 
+Note: It is creamy immediately if you use the instant powdered milk, but you can substitute the non-instant milk if you need to.  The only difference is that it is has a little grainier texture the first day, but by the second day it has had the chance to totally dissolve and then it is just as good as the stuff out of the can.  Believe me, you won’t be able to tell the difference.
+
+Sweetened Condensed Milk - Derlene Olsen
+Heat 3/4 cup sugar
+and 1/3 cup water until sugar has dissolved
+Add 1/4 cup butter or margarine.  Stir until butter is melted.  Heat to a boil.  Add 1 cup nonfat dry milk powder into blender.  Process until smooth while adding butter mixture.  Cool.  Cover and refrigerate or use immediately.  Makes 1 cup.
+
+Chocolate Syrup - Grandma Grace
+1 cup white Karo syrup
+6 Tbsp. cocoa
+2 Tbsp. oil
+Cook stirring constantly.  Remove from heat and add ½ tsp vanilla and 1 Tbsp. butter
+
+Watermelon Rind Relish – Amy Badger-I love making this relish in the summer and so I  have taught my kids not to throw away their rinds after eating watermelon all summer long.  I just peel them and freeze them through out the summer until I have enough to make this.
+4 quarts (16 cups) watermelon rind, peeled and grated (NOTE: To prepare watermelon rind, trim dark skin and pink flesh from thick watermelon rind.)
+2 cups diced red or orange bell peppers
+1 cup diced onion
+2 ¼ cups (1 lb.) brown sugar
+1 cup cider vinegar
+1 tsp. salt
+1 tsp. fennel seeds
+1 tsp. mustard seeds
+½ tsp. red pepper flakes
+10 whole cloves
+1-(3-inch) cinnamon stick
+Directions:
+In a large pot combine all ingredients; mix well.  Bring to a boil, then reduce heat and simmer until thick, stirring occasionally.  Remove cloves & cinnamon stick.  Pour into sterilized jars and seal, or chill and serve.  Makes 10 pints.
+Note: Processing time is 5 min. sea level and 15 min. 3,000 to 6,000 feet.
+
+Green Tomato Sweet Relish –Bonnie Chantry
+(This recipe takes 3 days but the results are well worth it) My most recent "favorite" recipe is Green Tomato Sweet Relish that we bottled last summer.  I don't eat sweet pickle relish, BUT I found to my delight that this one was worth having.  The neighbors and friends we shared it with, like it too.
+1 gallon green tomatoes (ground)
+1/4 cup salt
+1/2 Tbsp. powdered alum
+3 cup vinegar (5% acidity)
+1 cup water
+4 cups sugar
+1 Tbsp. pickling spices
+1/2 tsp. cinnamon
+1 Tbsp. celery seed
+1/2 tsp. allspice
+1 Tbsp. mustard seed
+Grind tomatoes in meat grinder with medium blade.  Sprinkle with salt and allow to stand overnight. Next morning drain. Pour 2 quarts of boiling water with the powdered alum over the tomatoes and let it stand for 20 minutes. Drain and cover with cold water, drain again. Combine vinegar, 1 cup water, sugar. Combine spices and tie loosely in a cloth bag or cheese cloth. Put spice bag in water/vinegar solution and bring to a boil. Pour this liquid over the tomatoes and let stand overnight. Drain.  Bring drained liquid to a boil.  Pour over the tomatoes. Let stand overnight again. On the NEXT morning bring the pickles and solution to a boil.  Pack in sterilizer pint jars to within a half inch of the top.  Put on the lid, then screw band firmly.  Process in boiling water bath 5 minutes.  Yield 8 pints.
+
+Prickly Pear Jelly –Amy Badger – Moving to Arizona I discovered these wonderful fruits that no-one else seemed interested in harvesting, so my friend Jen Goodling and I went for it.  After many “prickly” experiences we finally made this delicious jelly.  It is now a family favorite.
+2 1/2 cups prickly pear juice
+3 Tbsp lemon or lime juice
+1 pkg. powdered pectin
+3 1/2 cups sugar 
+1 quart of prickly pear cactus fruit should make about 2 1/2 cups of juice. Pluck the fruit from the cactus with a long-handled tongs. Freeze, then thaw fruit when ready to use. It will be tender and soft. Mash and strain using a jelly bag or fine sieve. Do not add water. Set aside to allow juice to settle. For clear jelly, do not use the portion containing sediment.  In a saucepan, measure out 2 1/2 cups of cactus juice; add 1 pkg. of pectin. Bring mixture to a fast boil, stirring constantly. Add lemon juice and sugar. Bring to a hard boil (one that cannot be stirred down with a spoon) and let boil for 3 more minutes. The timing is important to get the mixture to jell properly. Remove from heat, skim and pour into hot canning jars leaving 1/4 inch space per jar. Wipe jar rims and seal lids. Process for 10 minutes in a boiling water bath. Makes 6 1/2 pints of jelly. Note:  Add processing time for higher elevations.
+Prickly Pear-Pineapple Jam –Amy Badger – This is my favorite version of prickly pear jams.
+1 1/2 cups prickly pear juice
+1/4 cup lemon or lime juice
+2 cups pineapple, crushed/unsweetened, w/ juice
+1 pkg. pectin, powdered
+5 1/2 cups sugar
+Measure sugar into a bowl and set aside.
+In 10-quart saucepan, add pear juice and lemon or lime juice.  Mix thoroughly.  Add pineapple and mix well.  Add pectin, stirring until all the pectin is dissolved.  Bring mixture to a full boil over high heat, stirring constantly.  Stir in sugar all at once and bring back to a full rolling
+boil.  Boil for 4 minutes. Have jars ready as per manufacturer's instructions.  Pour jam immediately into jars and seal.  Invert jars for about 20 minutes.  This helps to keep fruit from floating to the top. Yield:  six 8-ounce jars.
+
+Zucchini Jam – Amy Badger – I got to teach a RS class on zucchini.  This was one of the most unique recipes I shared.  No one had ever had zucchini jam before and everyone loved it.
+6 cups zucchini; peeled & grated
+1/4 cup water
+1 pkg. sure-jell
+5 cups sugar
+13 ounces pineapple; crushed
+6 oz. Peach OR Apricot Jell-o
+Boil the zucchini and water until soft. Add Sure-Jell and bring to a hard boil. Add sugar and pineapple. Boil 5 minutes. Remove form heat. Add Jell-o. Stir well. Pack in sterilized jars and seal. 
+Note: I use the Sure-Jell Light and use only
+3 1/2 cups sugar.  
+
+Vanilla Peach Jam – Amy Badger
+5 ½ cups sugar
+6 cups fresh peaches
+2 Tbsp. lemon juice
+1 ¾ oz. pectin
+1 tsp. vanilla extract
+Peel, pit and chop peaches.  In saucepan, combine peaches, lemon juice, and pectin.  Cook over high heat stir constantly about 5 minutes or until full rolling boil.  Stir in sugar.  Return to a full rolling boil.  Boil hard for 1 minute, stirring constantly.  Remove from heat and add vanilla extract. Skim off foam.  Ladle in hot sterilized jars process in boiling bath 5 minutes at sea level.  15 minutes for elevations between 3,000-6,000 feet.**NOTE-Most canning recipes give cooking times for sea level, unless otherwise stated.  Add the needed time to these times for the higher elevation in your area.
+
+Sweet Pickles - Liz Bunderson
+5 qts. small cucumbers
+1 1/2 qts. pickling onion
+1 qt. cauliflower
+1 red pepper, cut fine
+½ cup salt
+Put in pan and cover with water.  Let stand four hours and drain
+Add: 1 quart white vinegar
+2 qts. water
+2 tsp. turmeric
+Add to cucumbers and boil 15-20 minutes.  Drain and rinse in water.  Rinse again and put in hot jars.
+Boil: 8 cups sugar
+3 3/4 cup water
+4 cups vinegar
+for 40 minutes with a 2 Tbsp. bag of pickling spices (make a bag with some cheese cloth or nylon and a string) Pour over pickles and seal.
+
+Pickled Beets - Liz Bunderson
+Cook beets until tender (amount 30 minutes)
+Immediately put in cold water.  Cut off tops and bottoms and skins.  Cut beets into bit sized chunks or slices.  Fill bottles (pint size). Bring to a boil.
+2 cups sugar
+2 cups water
+2 cups vinegar
+1 tsp cloves
+1 tsp allspice
+1 Tbsp. cinnamon
+Pour over beets in heated bottles
+Place lids on that have been in boiling water and screw on bands finger tight. Process pints 10 minutes in a boiling bath canner.
+
+Bottled Fruits  - Liz Bunderson
+
+Peaches
+1. Wash peaches, dip peaches into boiling water for 30-60 seconds to loosen skin.  Immediately dip into cold water. 
+2.  Peel, pit and cut in halves, slices or bit sized chunks.  (Can be placed in prepared fruit fresh mix to prevent browning.)
+3.  Combine 1 cup sugar to 3 cups water for syrup.  Bring to a boil.
+4.  Drain peaches from fruit fresh.  Pack (if halved, pack in with cut side down.)  Into hot jars, leaving ½ inch head space.
+5.  Ladle hot syrup over peaches, leaving ½ inch head space.  Remove air bubbles with a nonmetallic spatula.
+6.  Put on lids (that have been in boiling water and bands hand tight process quarts 25 minutes in a boiling bath.
+
+Pears 
+1.  Wash, peel, halve and core pears.  
+(To core, I use a watermelon baller and knife) Can be placed in fruit fresh mix to prevent browning.
+2.  Combine 1 cup sugar and 3 cups water and bring to a boil.
+3.  Drain pears from fruit fresh and pack into hot jars cut side down.  Leave ½ inch head space.
+4.  Ladle hot syrup over pears, leaving ½ inch head space.  Remove air bubbles with a rubber spatula.
+5.  Place lids on that have been in boiling water and screw on bands tight.  Process quarts 20-25 minutes in a boiling water canner.
+
+Cherries
+1.  Wash and stem cherries.  They can be pitted depending on how they will be used.  If the pit is left in, prick each cherry with a sterilized needle to help prevent bursting and shrinking.  Place in fruit fresh.
+2.  Combine 1 cup sugar and 2 cups water and bring to a boil.
+3.  Drain cherries from fruit fresh, pack jars with cherries leaving ½ inch head space.
+4.  Ladle hot syrup over cherries leaving 1 1/2 inch head space.  Remove air bubbles with rubber scraper.
+5.  Place lids on jars that have been in boiling water and screw on bands hand tight.  Process quarts 20 minutes in a boiling water canner.
+
+Apricots 
+1. Wash, halve and pit apricots. Place in fruit fresh.
+2 Combine 1 cup sugar to 3 cups water for syrup.  Bring to a boil.
+3 Drain apricots and pack in hot jars  
+4.  Ladle hot syrup over apricots, leaving ½ inch head space.  Remove air bubbles with a rubber spatula.
+5.  Put on lids that have been in boiling water and bands finger tight.  Process quarts 25 minutes in a boiling bath.
+
+Applesauce
+1.  Wash apples.  Peel, core and cut.  Place in fruit fresh.
+2.  Cook, covered until tender in just enough water to prevent sticking. (I fill a six quart pot 2/3 full with 2 cups water.)
+3.  Mash with a potato masher and then beat with a beater.  Sugar can be added to sweeten to your taste.
+4.  Ladle applesauce into hot jars leaving ½ inch head space.  Remove air bubbles with rubber spatula.
+5.  Place lids that have been in boiling water and screw on bands finger tight. Process 20-25 minutes in boiling water bath.
+
+Bottling Tips - Liz Bunderson
+ Place filled jars in water at an angle as to not break bottles.  Not straight in.
+Heat jars before pouring hot syrup into them as to not break bottles
+To heat bottles place in a cake pan with 1 inch water on stove
+ Boil lids to soften the gum on them for a better seal, especially if you have had the lids for a long time.  Leave them in hot water until ready to use.  Fruit can be placed in a prepared Fruit-Fresh mixture to prevent browning, but it is optional.  Syrup should be boiling when poured over fruit.  Use only bottling jars (Kerr, Ball and Mason) to pressure cook anything.  Mayo and Miracle whip jars CAN ONLY be used in a boiling water bath.  Clean bottles and rinse well before using.  Store empty bottles either with a lid or upside down.
+
+Light Syrup  
+1 cup sugar + 3 cups water
+Medium Syrup 
+1 cup sugar + 2 cups water
+Heavy Syrup 
+1 cup sugar +1 cup water
+
+Freezer Fruits - Liz Bunderson
+Cherries
+1. Wash, stem and pit.
+2. Place in fruit fresh mix
+3.  Put a single layer of cherries on a cookie sheet and put in freezer just long enough to harden the outside.  This helps them not freeze together so they can be eaten one by one.
+4.  Put in a freezer baggie or jars with lids and freeze completely.
+
+Strawberries
+1.  Wash, cut off leaves.
+2. Put a single layer of strawberries on a cookie sheet and put in freezer just long enough to harden the outside.  This helps them not freeze together so they can be eaten one by one.
+3.  Put in a freezer baggie or jars with lids and freeze completely.
+
+Basic Rice –Sue Reber
+1 cup rice			
+2 cups water
+1 tsp. salt
+1 Tbsp. butter
+Add all ingredients to a sauce pan and bring to a boil.  When mixture begins to boil, turn heat to low and cover with lid.  Let rice cook for 20 minutes. DO NOT LIFT LID.  Remove from heat and let stand 5 minutes.  Fluff with fork.
+
+Rice - Julie Chantry
+Pour amount you want to cook in a good size and add lots of water, with your hands, swish rice to clean.  Pour out cloudy water and repeat until water is clear.
+To cook:  Add enough water so that when index finger is resting on top of rice, water rises to just above the first joint.  Add salt if desired.  Bring water to boil, put on a lid (not too tight) and reduce heat. Remove from heat and put lid on tight. Let sit until ready to serve.
+Top with:
+Thick chicken soup
+Canned cream soups
+Butter and parsley (or favorite spice)
+Oriental sauces
+Vegetables (zero fat)
+Salsa (zero fat)
+Or fry with butter like hash browns or add eggs and cook until done - Top with catsup - Yummy
+
+Infallible Rice - Grandma Grace – A recipe from our mission in Arkansas.  Feeds 4 hungry people or 6 polite people
+1 medium onion minced
+2 Tbsp. butter
+1 cup long grain white rice
+2 cups chicken broth
+Sauté onion in butter until transparent.  Combine onion, rice and hot broth.  Bring to a boil on top of the stove.  Cover and place in oven for 20 minutes at 325°.  Serve.
+
+Homemade Rice-A-Roni –Sue Reber-
+1 cup rice (NOT instant)
+½ cup uncooked spaghetti (4oz)
+2 tsp. dried onion
+1 tsp. garlic salt
+1 tsp. dried parsley
+1 Tbsp. chicken bouillon
+Pepper to taste
+2 Tbsp. margarine
+2 cups of water
+Fry rice, spaghetti and margarine until lightly browned.  Add other ingredients and simmer, covered, until rice in tender (about 20 minutes). 
+Variations:  Add cooked ground beef, sausage, chicken, or veggies if desired.
+
+Zippy Rice Pilaf – Sue Reber –Teaching foods classes for several years now I have acquired lots of good grains recipes.
+½ cup onion, chopped
+2 garlic cloves, minced
+2 tsp. butter
+1 cup uncooked rice
+2 jalapeno peppers, seeded and chopped
+2 cups chicken broth
+½ tsp. cumin
+¼ tsp. salt
+1 Tbsp. mined fresh cilantro
+In a saucepan, sauté onion and garlic in butter until tender. Add the rice & jalapenos; toss to coat. Stir in the broth, cumin and salt; bring to a boil. Reduce heat, cover & simmer for 20-25 minutes or until liquid is absorbed and rice is tender. Add cilantro. Fluff with fork. When cutting or seeding hot peppers, use plastic gloves & avoid touching your face.
+
+Rice, Broccoli & Cheese Cups –Sue Reber
+1 cup rice, cooked with 2 cups chicken broth
+1 ½ cups frozen chopped broccoli, thawed and drained
+2/3 cup shredded mozzarella cheese
+¼ cup ranch dressing
+2 eggs, lightly beaten
+Preheat oven to 350°. Prepare rice using chicken broth. Place cooked rice in large mixing bowl, cool slightly. Stir in remaining ingredients until well blended. Soon mixture evenly into 12 greased muffin cups. Bake 25 minutes or until lightly browned.
+
+
+
+Cilantro/Lime Rice – Rachel Mitchell
+1 cup uncooked white rice
+1 tsp. butter
+2 cloves garlic, minced
+1 tsp. grated lime peel (zest)
+1 can (15oz.) chicken broth
+½ cup water
+2 Tbsp. freshly squeezed lime juice
+2 tsp. sugar
+3 Tbsp. fresh chopped cilantro
+In a saucepan combine rice, butter, garlic, lime peel, chicken broth and water.  Bring to a boil.  Cover and cook 15 to 20 minutes, until rice is tender.  Remove from heat.  In a small bowl, combine lime juice, sugar and cilantro.  Pour over hot cooked rice.
+
+Portuguese Rice - Justin & Amy Badger-
+This is the typical side dish for almost every meal in Portugal.  Justin & I met in Portugal on our missions and love being able to remember that time with the great food we learned how to make.
+2 cups of rice, rinsed off
+4 cups of water
+½ cup chopped onions
+1/4 cup shredded carrots
+2 Tbsp. olive oil
+Brown the onions and carrots in the
+olive oil.  Add rice & cook until slightly brown.  Add the water and bring to a boil.  Turn down heat to low and let cook 20 minutes.  Serve hot with cod fish, sardines, etc.
+
+Rice Casserole - Sue Reber
+3 cups cooked rice 
+1 can (10-3/4 oz.) cream of mushroom soup 
+1 cup milk 
+2 cups cooked vegetables 
+1-1/2 tsp. instant minced onion 
+1 tsp. Worcestershire sauce 
+Dash Tabasco sauce
+Preheat oven 375°. Put rice in 1-1/2 qt casserole dish. Mix remaining ingredients; pour over rice. Bake for 40 minutes until hot and bubbly. Variation: Add 2-1/2 cups cut up cooked meat or poultry 
+
+
+Oven Spanish Rice - Barbara Olsen
+1 cup rice
+2 cups water
+2-3 cups tomatoes
+½ cup chopped onion
+1/4 cup chopped green pepper
+salt and pepper to taste
+Sauté green pepper and onion, stir in 2 cups tomatoes, rice and water.  Bake at 350° for 20-30 min. or on the stove top.  Can add green chili peppers. 
+
+Souper Rice - Liz Bunderson
+1 can vegetable beef soup
+1 1/2 cans water
+1/8 tsp. garlic powder
+1/8 tsp. onion powder
+1 cup uncooked long-grain rice
+In a saucepan combine all ingredients. Heat to boiling.  Cover, cook over low heat 20 minutes or until rice is tender and liquid is absorbed.
+
+Ham Fried Rice - Marjean Spencer
+3 cups cooked rice
+3 Tbsp. margarine
+3-4 small green onions
+¼ to ½ cup chopped ham
+3 eggs
+soy sauce
+Melt margarine in frying pan, then add green onions and stir fry until tender.  Add chopped ham and fry until light brown.  Scramble in eggs, cooking until eggs are dry.  Remove from heat and add rice.  Stir together until well blended.  Add soy sauce to taste.  Let stand about 15 minutes to blend flavors.
+
+Green Grits - Aunt Gladys Reber Olson
+6 cups water
+Add:  1 1/2 cup regular hominy grits
+Cook until consistency of Cream of Wheat
+Add: 3 beaten eggs   
+1 stick butter    
+2 tsp. savory salt    
+Remove from stove.  
+Add: 1 lb. cut up American cheese and 2 cans green chilies.  Put in 9x13” pan. Bake 250° oven.  2½ - 3 hours.  
+
+Dressing - Grandma Grace
+3-4 qts. dry bread cut into ½ inch squares 
+2 large onions, chopped
+3 cups celery, chopped
+Cook onions, celery in water to cover. (Start onion first, as they take longer. Don't overcook celery.)  
+2 sticks of  margarine
+1 Tbsp. sage
+1 Tbsp. poultry seasoning
+Salt          
+Pepper
+Chicken bouillon
+Cream of chicken soup
+Pour over bread.  Put into buttered baking dish and top with strips of bacon.  Bake at 350° for 30 minutes or more.
+
+Turkey Dressing - Bonnie Chantry - This original recipe came from an elderly lady I went visiting teaching to in Granger.  The recipe soon evolved into my own recipe and we use it every Thanksgiving. The dressing is started the day before by precooking the giblets, and grinding them up with the onion and celery in a meat grinder
+8-10 cups bread, cubed and dried
+4 eggs beaten
+1 medium onion, run through meat grinder
+3 stalks of celery, run through meat grinder
+Cooked giblets, run through meat grinder
+1 can cream of chicken 
+1 cube of melted butter
+1 Tbsp. poultry season
+1 tsp. sage
+salt and pepper to taste.
+Mix together. Add broth or hot water to slightly moisten dry bread.  Stuff turkey.  Add extra liquid to remaining dressing.  Spread in baking dish and bake at 350° for 30-40 minutes.
+
+
+
+
+
+
+
+
+
+COOKING GUIDELINES FOR BEANS
+	Dry Beans		Cooking Time
+	Black Beans		2 hours
+	Black-eyed Peas	½ hour
+	Great Northern Beans	1 ½ hours
+	Kidney Beans		2 hours
+	Lentils			½ hour
+	Pinto Beans		2 hours
+	Navy beans		2 hours
+	Split peas		½ hour
+	Pink eyed beans	½ hour
+
+1. RINSE ALL BEANS AND LEGUMES IN COLD WATER.  Remove all dirt, rocks or bad beans.
+2.  Soak the beans in 3 times the amount of water as beans.  They can be soaked overnight.  Lentil, split peas and pink eyed beans do not need to be soaked.
+3.  Quick soaking method.  Boil the beans in water for 2 minutes, remove from heat, cover and let stand for 1 to 4 hour.
+4.  Add 1 tsp. salt per cup of beans and use a large enough pan because the beans double in volume.
+5.  Add 1 Tbsp. cooking oil to each cup of beans while soaking.  This will shorten the cooking time and decrease foaming.
+6.  Add meat, onions, celery and herbs during cooking to add more flavor.  Add tomatoes, catsup, vinegar and other acid foods after the beans are tender.  The acid prevents softening of the beans.
+7.   Cooked beans freeze well and will keep up to 6 months in the freezer.
+
+How To De-gas Beans: Bonnie Chantry
+Wash beans.  Cover with cold water.  Bring to a boil. Change water. Soak beans for 1 hour. Change water again and cook.
+
+
+
+
+
+
+
+
+
+Black Beans – Rachel Mitchell
+1 can (15oz.) black beans, rinsed & drained
+1/3 cup tomato juice
+2 cloves garlic, minced
+1 tsp. ground cumin
+2 Tbsp. olive oil
+½ tsp. salt
+2 Tbsp. fresh chopped cilantro
+In a non-stick skillet, cook garlic and cumin in olive oil over medium heat (until you can smell it).  Add beans, tomato juice and salt.  Continually stir until heated through.  Just before serving stir in cilantro.
+
+Mexican Beans - Grace Ann Skousen - Sister Montoya, a Mexican lady in my ward taught me how to really do beans right. She makes a pot of beans every week and they eat it in many ways.
+4 quart crock pot
+3 cups dry beans (pinto or pink)
+1/2 onion, NOT chopped
+3 Tbsp. cooking oil
+salt (add at the END)
+Fill crock pot 3/4 full of water and turn on high. Sort and rinse beans in cold water. Add beans, onion and oil. Cover and cook for 2-3 hours on high or 3-4 hours on low. (If using storage beans you will need to cook longer and/or soak the night before.) When beans are tender, add salt and boil for another 10 minutes. Discard onion. Can store beans in fridge and use for all sorts of recipes. Store the beans with the water you cooked them in case you need the moisture in your recipes later. 
+Note: I can't remember why you are supposed to add the salt at the end, but I remember Sis. Montoya saying it was important.
+ 
+Cowboy Beans – Grace Ann Skousen 
+1 lb of bacon, chopped
+1/2 onion, chopped
+1 jalapeño
+1/2 batch of Mexican Beans (recipe above) 
+water that the beans cooked in, if necessary
+cilantro, tomato and cheese for garnish
+In saucepan, fry bacon, and then add onion, and jalapeño and cook until soft. Add some Mexican Beans and some of the water if it seems a little dry. Garnish with chopped tomato, cilantro and cheese.
+ 
+Refried Beans – Grace Ann Skousen
+2 Tbsp. oil
+2 Tbsp. finely chopped onions
+1/2 batch of Mexican Beans (recipe above)
+Cheese
+In saucepan, cook onion. Then add beans, without liquid and fry them until heated through. Mash beans with potato masher and add liquid if needed. Top with cheese.
+
+Brazilian Beans & Rice – Bonnie Chantry - Daddy Doug brought this back from his mission to Brazil
+6 cups pinto beans, washed & soaked overnight
+1 large onion chopped
+2 Tbsp. salt
+1/4 tsp. black pepper
+2 Tbsp. oil
+Cook beans in water it has soaked in with other ingredients.  Add water as needed.  When beans are tender mash 5 or 6 times with potato masher and continue to simmer, making a rich bean sauce.  Serve generously over hot fluffy rice.
+3 cups rice            1 large onion
+3/4 cup oil             3 tsp salt
+6 cups boiling water
+Sauté onion and rice in oil 5 minutes.  Add boiling water and salt.  Cook covered for 20 minutes.
+
+Baked Beans - Grandma Grace
+1 large can pork & beans 
+OR the equivalent in home cooked beans
+1 cup catsup
+1/4 cup brown sugar
+1 Tbsp. prepared mustard
+2 Tbsp. vinegar
+1 Tbsp. minced onions
+The secret in making beans taste good is the long cooking so that they get saturated with the other ingredients.  Put in baking dish and cover with bacon.  Bake 300° for 1 hour or more.  Variation:  Add green peppers and chunks of pineapple.
+
+Baked Beans - Barbara Olsen
+1 cup catsup
+½ cup brown sugar
+1 Tbsp. mustard
+1/4 cup chopped onion
+2 Tbsp. Worcestershire sauce
+2 large cans pork and beans
+Bake 350° for 45 minutes.
+
+Bonnie’s Best Baked Beans –Bonnie Chantry – I like this recipe because it is so simple to dump it all together without precooking anything. 
+2 large cans of Pork and Beans	
+1 bottle of catsup (16 to 20 oz.)
+2 Tbsp. prepared mustard
+½ cup chopped onion
+1/4 cup chopped green pepper
+3/4 cup brown sugar
+1/4 lb. chopped bacon (raw)
+2 Tbsp. Worcestershire sauce
+½ cup crushed pineapple
+Mix all ingredients together in a glass casserole bowl.  Bake 3 hours at 300°.
+
+Asparagus w/ Parsley Dip – Liz Bunderson
+This was served at Sammi Jo's wedding luncheon.  Sarah Jane and I loved it and had to get the recipe from Mike's uncle.
+1 bunch asparagus (1 lb.)
+1/2 cup flat leaf parsley, packed
+2 Tbsp. extra virgin olive oil
+1 Tbsp. lemon juice
+1 tsp. Dijon
+1/2 cup mayonnaise
+Cut ends of asparagus and submerge for 1-2 minutes in boiling water.  Then plunge into ice water.  Dry on paper towel.  Keep in fridge until ready to serve.  Place parsley, lemon juice, and mustard in blender.  Blend together while drizzling in oil until pureed.  Mix in mayo.  Place cold asparagus on a plate. Drizzle with extra virgin olive oil and sprinkled with salt.  Serve parsley dip on the side.  Yum!
+
+
+
+
+
+Steamed asparagus –Kathy Brown
+About 4-5 stalks per person, rinse with water.  Grab both ends of the asparagus and bend until it breaks.  This is where you need to trim the rest of them to.  Set up your steamer (can use a stove-top one or your rice cooker if it has a steamer attachment).  Steam for only about 3-4 minutes, they should be bright green.  Any longer and they’ll be over cooked.  Serve immediately.
+
+Roasted Asparagus –Amy Badger – This is Rachael Ray’s method of cooking asparagus and my favorite method of eating asparagus.
+Heat oven to 400°.  Trim tough ends of asparagus. Place asparagus in a large bowl and toss with about 3 tablespoons extra-virgin olive oil, and salt and pepper. Spread the asparagus out on a cookie sheet and roast 10 to 12 minutes until the asparagus is tender and crispy at the tips. 
+
+Brazilian Cauliflower - Becky Concoby
+Steam cauliflower.  Place in oven dish, drizzle butter over top.  Sprinkle with Parmesan cheese and bread crumbs.  Broil until crunchy on top.
+
+Cheesy Cauliflower – Sue Reber
+1 medium cauliflower
+2 Tbsp. margarine
+2 Tbsp. flour
+1/2 tsp. dry mustard
+1/4 tsp. salt
+1 cup milk
+1 cup grated cheese
+Separate cauliflower into bite size pieces. Add 1/4 cup water.  Microwave on high for 8 minutes in covered microwave dish.  Drain.
+In separate bowl melt margarine in microwave.  Stir in flour, mustard, & salt. Blend in milk with wire whisk.  Microwave 3 minutes or until  thick & bubbly.  Add 1 cup grated cheese, stir until cheese melts.  Pour over cooked cauliflower. Serve immediately
+
+
+
+
+
+Glazed Carrots – Sue Reber
+1 lb carrots, peeled and cut into rounds or carrot sticks (OR use baby carrots)
+2 Tbsp. water
+2 Tbsp. butter
+2 Tbsp. brown sugar
+Peel and slice carrots.  Microwave carrots in water in a covered microwave dish for 5 minutes or until tender crisp.  Drain. In separate bowl, melt butter in microwave then stir in brown sugar.  Add to cooked carrots & stir until well-coated.  Microwave 1 more minute.
+
+Edible Cooked Carrots - Sue Reber
+Grated carrots
+Dill weed
+Cook carrots in small amount of water and butter, just until tender crisp.  Sprinkle with dill weed as a garnish.
+
+Grandma Grace's Green Beans –Grace Fielding – From the memory of Bonnie.
+Enough green beans to feed the family
+Bacon (1slice per each 2 servings)
+Chopped fresh onion (or dried minced onions)
+Seasoning
+Simply snip (or snap) the beans to bite size then cook them in a little water with some chopped or minced onion in the pot. They should be tender at the same time the beans are.  In the meantime fry the bacon until crisp, crumble on the drained beans. Pour the bacon fat over the beans and enjoy your veggies.
+
+Green Bean Casserole –Sue Reber
+2 - 16 oz. can green beans, drained
+1 (10oz.) can cream of mushroom soup
+1/3 cup milk
+1 cup French fried onion rings
+Preheat oven to 350°.  Mix all ingredients in casserole dish. Microwave for 5 minutes.  Then bake for 15 minutes.  Sprinkle top with French fried onion rings for garnish.  Bake an additional 5 minutes.
+
+
+
+
+
+Green Beans with Cashews –Becky Concoby
+2 lb. fresh green beans
+4 Tbsp. butter
+3/4 cup salted cashews
+2 Tbsp. chopped parsley
+Boiling salted water
+1 cup chopped onion
+1 tsp. lemon juice
+salt and pepper to taste
+Cook beans in the boiling water until tender crisp.  Melt butter in sauté pan.  Add onions and beans.  Sauté until onion is clear. Remove from heat.  Add cashews, parsley, lemon juice and salt and pepper.  Serve warm.
+
+Green Beans Almandine - Sue Reber
+1 can green beans
+2 Tbsp. slivered almonds
+2 Tbsp. minced onion
+1 Tbsp. margarine
+Melt margarine over low heat in frying pan.  Cook almonds and onion in melted margarine until almonds are barely browned.  Add drained beans and cover with lid.  Heat through until hot.  Serve immediately.
+
+Creamed Peas & Potatoes - Grandma Grace
+“Our all time favorite vegetable recipe that Grandma Grace got David started on vegetables...”Alice Chantry
+Cook bite size pieces of new potatoes in 
+small amount of minced onion and water.
+Peas, if using frozen peas add to potatoes the last 5 minutes of cooking. While vegetables are cooking make a white sauce.
+2 Tbsp. butter
+2 Tbsp.  flour
+1/4 cup milk
+Melt butter in saucepan over low heat.  Blend in flour, salt and dash of pepper.  Add milk all at once. Cook quickly.  Stirring constantly until mixture bubbles.  Remove sauce from heat when it bubbles.  Add the vegetables that have already cooked.  Stir and serve.
+
+
+
+
+Swiss Chard with Golden Raisins – Amy Badger –I found this recipe when I was living back in Pleasant Grove in the Fielding family while Justin was deployed to Iraq.  It made me feel close to Grandma Grace to be cooking Swiss Chard in her old kitchen.
+2 ½ pounds (the average weight of 2 bundles) Red Swiss chard 
+1 ½ Tbsp. extra-virgin olive oil 
+2 slices, pancetta OR bacon, chopped 
+1 small yellow skinned onion, chopped 
+1/4 cup (2 handfuls) golden raisins 
+14 oz. chicken stock or broth 
+Coarse salt 
+1/8 tsp. nutmeg
+Heat a large skillet over medium high heat. Coarsely chop the greens of clean red chard. Add oil, pancetta, and chopped onion to the pan and cook 2 or 3 minutes until onions begin to soften and pancetta is lightly browned. Add chopped chard to pan in large bunches, adding remaining chard as the greens wilt. Sprinkle in raisins, broth & season with salt and nutmeg. Bring liquid to a boil, reduce heat and simmer greens 10 to 15 minutes until greens are no longer bitter. Raisins will plump as it cooks.
+
+Creamed Onions - Grandma Grace
+6 large onions diced by hand (don't use blender with onions, it changes the flavor)
+Cook onions in salted water that barely covers the onions.  Cook till tender
+Make white sauce using:
+½ cube butter
+½ cup flour
+1 qt liquid - use some of the water off the onion, but more milk
+Thicken then add to cooked onions. (This amount of white sauce may not be enough for the amount of onions.  I usually use part of the onions for the turkey dressing.)
+
+Gulliver’s Creamed Corn –Sue Reber
+1 pkg frozen corn, 16 oz  
+2 cups whipping cream  
+2 cups milk 
+1 Tbsp. sugar 
+2 tsp. salt 
+1 Tbsp. flour 
+1 Tbsp. melted butter
+Pinch of pepper 
+Combine all ingredients except for flour and butter. Bring to boil.  Blend butter and flour to make a paste and slowly add to corn, mix well and remove from heat.
+
+Zucchini - Barbara Olsen
+Slice zucchini and onion.  Cook in a little water on low.   Watch so it does not scorch.  When the zucchini becomes translucent, add salt and pepper, butter and enough milk to cover.  Warm and serve.
+
+Zucchini Squash Casserole – Jill Olsen
+6 cups zucchini, sliced or shredded
+1/4 cup onion, chopped
+1 carrot, shredded
+Boil 5 minutes, drain and set aside.
+Combine: 
+1 can cream of mushroom soup
+1 can cheddar cheese soup
+1 cup IMO or sour cream
+Stir in zucchini  mixture, set aside.
+Line a casserole dish with Stove Top Dressing (save some for the top), pour in above mixture, top with remaining dressing mix and cheese if desired. Bake at 350° for 30 min.
+Note: I freeze the zucchini, onion and carrot mixture in the correct portions to use throughout the year. And of course Stove Top is optional, you can make your own dressing if you're so inclined!
+
+Zucchini Supreme – Sue Reber – This is the recipe that helped my children learn to love zucchini.  Our neighbor Gordon Waasdorp always planted lots of zucchini so we never had to living in Salt Lake City.
+Slices of zucchini
+Slice crooked neck squash
+Slices of onions
+1 small tomato, diced
+Salt and pepper to taste
+¼ to ½ cup shredded cheese
+Cook zucchini, squash and onions in a little water on low. When the squashes are tender, add tomatoes and sprinkle with grated cheese.  Cover, let cheese melt and serve.
+Zucchini Patties – Amy Badger – This is a wonderful addition to any meal, breakfast, lunch or dinner.
+2 cups shredded zucchini 
+1/3 cup biscuit mix 
+1/2 cup shredded cheddar cheese 
+OR 1/3 cup parmesan cheese 
+2 Tbsp. grated onion 
+1/2 tsp. dried basil 
+1/2 tsp. salt 
+1/4 tsp. pepper 
+2 eggs, lightly beaten 
+2 Tbsp. butter or margarine 
+In a bowl, combine first seven ingredients; mix well. Stir in eggs; mix well. Shape into six patties, using about 1/4 cup of zucchini mixture for each patty. In a skillet, melt butter; cook patties for 4-5 minutes per side or until lightly browned
+
+Charlee's Favorite Squash –Jill Olsen
+The amounts really depend on how much you want/need. I've made it in big Dutch ovens for the Olsen Reunion and in my regular frying pan at home. 
+Here's an idea of where to start:
+1 lb Hamburger, 1-2 squash, 1/2 onion, 3-4 tomatoes, cheese to taste
+While browning hamburger slice squash (Yellow, zucchini, mixture, whatever you have) and onions, grate the cheese, peel and chop up tomatoes. Keep all of these separate. When hamburger is completely browned, drain off grease, and then return to frying pan. On a low simmering heat layer squash and then onions onto the hamburger, cover and let steam. Don't stir! When you can easily pierce the squash with a fork, add tomatoes & top with shredded cheese, cover. When the cheese is melted the tomatoes are warm and it's ready to eat! 
+Note: There are two tricks to this recipe. 
+1- Don't stir! I think that is why the flavors stay so distinct. 2-Don't let it burn on the bottom. If there’s not enough moisture from the squash add a little bit of water, or add the tomatoes earlier, but hold off on the cheese or it will all just melt down through.
+
+Fried Squash Puffs –Amy Badger –I always plant lots of squash and zucchini plants in case some of them die.  So far, my biggest challenge has been using up all the veggies.
+3/4 pound yellow squash, about 2 med., cubed
+1 egg, beaten
+1/3 cup all-purpose flour
+1/3 cup cornmeal
+1 tsp. baking powder
+1/2 tsp. salt
+1 med. onion, grated
+Cook squash in pan covered with salted water, 10 to 15 min. or until tender. Drain and mash enough squash to make 1 cup. Combine squash and egg and blend well. Combine flour, cornmeal, baking powder and salt, stir well.  Add squash mixture and onions, stir until blended. Fry squash mixture by level tablespoon in hot oil. Cook until golden brown, turning once.  Makes about 2 dozen.
+
+Marjean’s Yams - Marjean Spencer
+2 ½ cups cooked sweet potatoes
+1 cup sugar
+2 eggs 
+½ cup milk
+½ cup real butter
+1 tsp. vanilla
+Mix all ingredients until smooth.  Pour into greased 9x13” pan. Sprinkle with topping of
+1 cup brown sugar
+½ cup flour
+1/3 cup soft butter (real)
+1 cup chopped pecans
+Bake at 350° for 30 minutes
+
+Orange Yams - Grandma Reber
+6 medium yams
+½ cup brown sugar
+½ cup sugar
+1 Tbsp. cornstarch
+1 cup orange juice
+1 Tbsp. grated orange rind
+2 Tbsp. butter
+Boil and cool yams.  Cut crosswise, peel and arrange pyramid fashion in casserole.  Mix sugars, cornstarch, orange juice, rind and butter.  Bring mixture to a boil and pour over yams.  Bake about 1 hour, basting often.
+Mashed Sweet Potatoes –Sue Reber
+2 lbs. sweet potatoes (3 medium) 
+4 Tbsp. butter, cut into 4 pieces
+2 Tbsp. whipping cream
+1 tsp. sugar
+½ tsp. salt 
+Pinch of pepper
+½ tsp. grated orange zest
+2 Tbsp. maple syrup
+Microwave the sweet potatoes 10-15 minutes until soft to the touch.  When done, peel off skin and slice into chunks.  In a large saucepan combine the butter, cream, sugar, salt, and pepper.  Add potato chunks & mash all together with potato masher until smooth.
+
+Dad's Gravy – Garth Fielding
+6 cups milk, and or fat drippings
+6 Tbsp. cornstarch
+12 bullion cubes
+garlic powder
+onion powder
+Pour 5 cups milk into sauce pan. Use your remaining cup to mix the cornstarch as you want it to be cold or it will lump.  Once you have it all mixed together combine all the ingredients and heat. Add onion and garlic powder to taste.  Stir the gravy until it becomes thick.  It will take some time but once it does happen it will happen suddenly. Remove from heat and serve.
+
+Garth’s Gravy - Garth Fielding
+2 cups water
+2 Tbsp. butter or margarine
+1 bouillon cube
+Bring to a boil
+In a separate container add
+1/4 cup cold water
+2 Tbsp. corn starch
+Shake in some pepper, seasoning salt and powdered milk.  Use a whisk and beat until smooth.  Pour into the boiling water and constantly stir until it thickens.  You can leave out the butter.  If you use the powdered milk you get milk gravy.  If you leave it out you get regular gravy.
+
+
+Pre-boiled Potatoes - Bonnie Chantry
+Wash several potatoes of about the same size. Do not peel.  Put in large pot and cover with water.  Add 2 tsp. salt and cook until tender.  Be careful not to overcook.  Drain and use in any dish you desire.  
+	Potato salad
+	Canyon potatoes
+	Scalloped potatoes
+	Clam chowder
+	Hashed Browns 
+	Au Gratin
+	Yummy Potatoes, etc.
+
+Mashed Potatoes - Angela Olsen
+5 lbs. peeled cooked mashed potatoes
+2-3 oz cream cheese
+1 cup sour cream
+1/4 cup butter
+1 tsp. onion salt
+1 tsp. alt
+1/4 tsp. pepper
+These will keep in the fridge for 2 weeks
+
+Garlic Mashed Potatoes –Kathy Brown
+1-2 potatoes per person (depending on size of potatoes, Yukon Gold are my favorite)
+2-3 cloves of garlic (peeled, whole)
+Salt to taste
+Warmed milk or cream
+Cold butter, cut into slices
+Peel and dice potatoes, peel 2-3 garlic cloves and put everything in a pot of cold water. Add enough salt to the water to make it taste like sea water.  Then turn on the burner and boil until potatoes are tender. Drain and return hot potatoes to the pot.  Mash with potato masher, alternate adding the warmed cream and cold butter until combined to your taste.  
+Note: For extra creamy potatoes, use a hand beater, to mix them up really well. You can keep them covered on the stove on low until ready to serve.  No need for any extra salt or gravy for that matter!
+
+
+
+
+
+Melt in Mouth Spuds - Tawna Marsh
+5 med. potatoes
+1 med. onion
+1 1/2 cubes butter or margarine
+2 cups grated cheddar cheese
+1 16 oz. carton sour cream
+1 can cream of chicken or mushroom soup
+2 cups corn flakes
+Boil potatoes (skins and all).  Let cool.  Peel. Grate.  Line bottom of a 9x13” pan with potatoes.  Sauté onion until tender in 1 cube butter.  Mix together sour cream, soup and cheese, then add butter and onion.  Pour over top of potatoes.  Mash corn flakes and add ½ cube melted butter and sprinkle on top.  Bake at 350° for 20 minutes.
+
+Cheesy Potato Bake - Amy Badger – A fancy alternative to mashed potatoes.  With lots of cheese and cream cheese you can’t go wrong.
+6 large potatoes, peeled and quartered
+1 pkg. (8oz) cream cheese, softened
+1 cup (4oz) shredded cheddar cheese
+1/2 cup sour cream
+1/3 cup chopped onion
+1 egg
+2 tsp. salt
+1/2 tsp. pepper
+Place potatoes in a large saucepan; cover with water. Cover and bring to a boil. Cook for 20-25 minutes or until very tender; drain well.
+In a mixing bowl, mash potatoes. Add cream cheese, cheddar cheese, sour cream, onion, egg, salt and pepper; beat until fluffy. Transfer to a greased 2-qt. baking dish. Cover and bake at 350° for 40-45 minutes or until heated through. Sprinkle with additional cheese if desired. Yield: 10 servings
+
+Cheesy Sliced Potatoes –Sue Reber
+5 potatoes, thinly sliced
+1/3 cup water
+2 Tbsp dried minced onion
+2 tsp chicken bouillon granules
+1 Tbsp flour
+2 tsp salt
+1/8 tsp garlic powder
+3/4 cup milk
+3/4 cup sour cream
+2 cup shredded cheddar cheese	
+Place potatoes, water onion and bouillon in an ungreased microwave safe 2 qt dish.  Cover and microwave on high for 12-14 minutes until potatoes are tender and bouillon is dissolved, stirring once.  In a small bowl, combine flour, salt and garlic powder, stir in milk until smooth.  Pour over potatoes.  Microwave uncovered on high for 4 minutes or until thickened stirring twice.  Stir in sour cream; sprinkle with cheese.  Cook 3 minutes longer or until cheese is melted. 8 servings
+
+Cheesy Potatoes –Liz Bunderson - Funeral Potatoes or as Uncle Garth Calls them “Death Potatoes”.
+1 - 2lb. bag frozen hash browns
+½ cup melted butter
+2 cans Cream of Chicken soup
+½ cup green onion, chopped ( about 1 bunch)
+1 pint sour cream
+1-2 cups shredded cheddar cheese
+½ cup bread crumbs or crushed corn flakes (optional)
+Poke holes into bag of frozen hash browns with a fork. Microwave for 5-10 minutes to defrost them. Melt butter in large bowl in microwave. Mix soup, sour cream, green onion and cheese into melted butter. Mix in thawed hash browns until well combined. Pour into a greased 9x13 pan. Top with bread crumbs if desired. Bake at 350° for 40 minutes.
+
+Filled New Potatoes –Becky Concoby
+12 small new potatoes
+1/4 cup plain yogurt
+2 Tbsp. fully cooked smoked ham chopped
+Dash of pepper
+Wash potatoes and pierce with fork. Place 1/ 4 cup water and potatoes in 2 qt microwavable casserole.  Cover tightly and microwave for 10 to 15 minutes, stirring every 5 minutes. Let cool then cut a thin slice from each one. Scoop out a tablespoon from each one.  Mash with a fork and add yogurt and pepper. Fill each skin with 1 Tbsp. mixture. Put in pan and microwave until hot, 2 or 3 minutes.  Sprinkle with chopped ham.
+
+Stuffed Baked Potato - Sue Reber
+4 medium baking potatoes
+2 Tbsp. margarine
+½ cup milk
+4 strips fried bacon crumbled
+1/4 tsp. salt
+dash pepper
+½ cup shredded cheese
+Prick potatoes and place in microwave.  Cook 8 minutes on high.  Cut potatoes in half.  Carefully scoop cooked potatoes out of shell and place in medium mixing bowl.  Add butter, milk, salt and pepper.  Mash until lump-free.  Fill potato shells; top with cheese and crumbed bacon. Bake 15 minutes at 400°.  Serve immediately.
+
+Zesty Oven Baked Fries – Sue Reber - We just made zesty oven baked fries in foods class at Oak Canyon Jr. High and they were a hit. The recipe for Utah Fry sauce is 2 parts mayo to 1 part ketchup. mixed well.
+3 medium or 2 large potatoes
+1 Tbsp. grated Parmesan cheese
+1 Tbsp. oil
+¼ tsp. salt
+¼ tsp. garlic powder
+¼ tsp. paprika
+¼ tsp. pepper
+Preheat oven to 450°.  Spray pan with cooking spray or use parchment paper.  Peel and cut potatoes into julienne fry shape. Combine all ingredients in a plastic bag.  Shake to coat the potatoes.  Pour potatoes in a single layer on baking sheet and bake for 20 minutes or until golden brown.
+
+Oven Roasted Potatoes –Amy Badger
+1 envelope onion soup mix
+1/3 cup oil
+5-6 potatoes, cut into bite size pieces
+Combine and mix until potatoes are coated.  
+(I use a Ziploc bag).  Cook in 9x13 pan at 400̊ for 20-25 minutes.  Stir once while baking. 
+Note: You can use any combination of spices if you don't have soup mix - Italian seasoning, Parmesan cheese, seasoning salt, garlic, beef bouillon, etc.
+Rachael Ray's Roast Potatoes with Rosemary –Kadie Allred
+2 lbs small potatoes, baby yukon gold or red
+6 cloves garlic
+2-3 Tbsp. extra virgin olive oil
+2 Tbsp. fresh rosemary leaves, chopped
+salt and freshly ground pepper, to taste
+Preheat oven to 500° or highest setting.  Halve potatoes and place on cookie sheet. Combine with garlic.  Coat potatoes and garlic with oil and season.  Place on lower rack and roast 20-25 min. turning potatoes after 12 minutes.
+
+Microwave Scalloped Potatoes - Grandma Grace
+3 medium potatoes peeled and cut in ¼” slices.
+½ tsp. salt
+3/4 tsp. Italian herb seasoning
+1/8 tsp. pepper
+2 Tbsp. butter
+½ cup water
+½ tsp. instant beef flavored bouillon 
+Topping:
+½ cup grated cheddar cheese
+2 Tbsp. grated Parmesan cheese
+¼ tsp. paprika
+Put all ingredients, except topping, into 8 inch round glass baking dish.  Cover with plastic wrap.  Cook in microwave oven 4 minutes: remove.  Stir, cover and cook 4 minutes more. Combine topping ingredients and sprinkle over potatoes.  Cook uncovered 2 minutes more.  Let stand 5 minutes. Serve hot.  Makes 4 to 6 servings.
+
+Presto Potato Pancakes – Barbara Olsen
+Mix:
+1 cup leftover mashed potatoes
+2 eggs (mixture will be mushy)
+Add until the consistency is such that you can shape into cakes.  Coat with:
+Bread crumbs (plain or flavored)
+Cook over medium heat in a greased skillet until lightly browned and heated through.
+
+
+
+
+
+Zesty Grilled Veggies –Liz Bunderson
+4 zucchini (1-1/2 lb.), cut diagonally into 1/2-inch-thick slices 
+3 each red and yellow peppers (1-3/4 lb.), cut into 1/2-inch-wide strips 
+1/4 cup Kraft Zesty Italian Dressing 
+1/4 cup Kraft Grated Parmesan Cheese 
+Heat grill to medium heat.   Place veggies in grill basket.  Grill 10 minutes or until crisp tender, turning occasionally.  Place in large bowl. Add dressing, toss to coat.  Sprinkle with cheese.
+
+Vegetable Parmesan Bake – Amy Badger – A great recipe from my friend Leah Grammar,  to use up all those zucchini.
+1 envelope Lipton Recipe Secret “Garlic Mushroom” soup mix
+¼ cup grated parmesan cheese
+1 large baking potato, cut into ¼” thick slices
+1 medium zucchini, cut diagonally ¼” thick
+1 large tomato cut ¼” thick
+1 Tbsp. butter, cut into small pieces
+Preheat oven to 375º.  In a small bowl combine soup mix and parmesan cheese, set aside.  In a shallow 1 qt. casserole dish spray with cooking spray.  Arrange potato slices overlapping slightly.  Sprinkle with 1/3 of soup mixture.  Top with zucchini, overlapping slightly & sprinkle with 1/3 of mixture.  Top with tomatoes and sprinkle with remaining mixture.  Top off with butter slices.  Bake covered for 40 minutes.  Remove cover and bake additional 10 minutes, or until vegetables are tender.
+
+Holiday Veggies –Sue Reber – This is a Thanksgiving recipe from Grandma Reber
+1 to 2 cups thinly sliced carrots
+1 to 2 cups broccoli - 2 inch flowerettes
+1 to 2 cups cauliflower 2 inch flowerettes
+1 green onion, sliced
+3/4 cup water
+1 tsp chicken bouillon
+2 tsp cornstarch
+pinch of garlic powder
+1/4 cup slivered almonds
+Cook and stir carrots in small amount of oil over medium heat for 2 minutes.  Add cauliflower, broccoli, onion, and cook 1 more minute.  Add mixture of water, cornstarch, chicken stock base, and garlic.  Cook and stir until thickened.  Vegetables should be tender-crisp.  If they need further cooking, reduce heat, cover and steam to desired doneness.  Add almonds just before serving.  Makes 4-6 servings.
+
+Rachel’s Popover Veggies - Rachel Mitchell
+1 cup milk
+1 Tbsp. melted butter
+1 cup flour
+½ tsp. salt
+2 eggs
+Vegetables such as:  onions, broccoli, cauliflower, parsnips, zucchini, sweet potatoes, peppers, and eggplant
+Beat until smooth milk, melted butter, flour and salt.  Then add eggs one at a time, do not overbeat.  Cut vegetables into bite size pieces.  Dip in the batter.  Fry in deep fat until puffy and golden brown.  Remove with tongs and drain on paper towel.
+
+Artichokes  -  Grandma Reber
+Basic directions for cooking:
+Wash, cut off stems at base and remove the small bottom leaves.  cut off about 1 inch from tops if desired, and trim the tips of all leaves to make them pretty, less prickly.  Stand artichokes upright in saucepan deep enough to hold them snugly.  Add 1/4 tsp salt for each artichoke, two or three inches of boiling water.  (I set them in a steamer, rather than right in the water.)  Add 1 Tb lemon juice, cover and simmer gently for 45 minutes plus depending on size, or until the bases can be pieces easily with a fork, or one leaf can easily be pulled out.
+
+
+
+
+
+
+
+
+
+
+
+Spicy Cucumbers - Marjean Spencer
+1 cucumber
+2 Tbsp. white vinegar
+2 Tbsp. sugar
+1 tsp. salt
+1/4 tsp. pepper
+1 medium onion
+Peel and slice cucumbers.  Slice onions, and mix with cucumbers.  Add all other ingredients, toss lightly and chill for 2 hours.
+
+Applesauce - Bonnie Chantry - We tried this recipe because our apples were too sour to eat and began turning soft. It turned out great. We enjoyed it as a side dish with our pork chops and we made some great cookies with it.
+6 large granny apples, cored and sliced
+½ cup sugar
+½ tsp. cinnamon
+Little water (less than half a cup)
+Prepare apples and place in large kettle with water.  Simmer and stir until apples turn into sauce.  Add sugar and cinnamon.  
+Makes 4 cups.
+
+
+Homemade Noodles - Grandma Grace Fielding – This recipe was the #1 one requested recipe by family members as one they used and wanted to pass on in this new FFF cookbook. 
+1 egg slightly beaten
+1/4 tsp. salt
+2/3 cup flour (OR enough to make stiff dough).   
+Mix all ingredients together. Knead dough and then let it stand covered for ½ hour.  Roll it out very thin.  Cut into strips with noodle cutter, or pizza cutter.  
+
+Chicken Broth – FFF Cookbook
+2 (3 to 3-1/2 lbs. each) chickens 
+2 carrots, peeled and cut in 2-inch chunks 
+2 celery ribs, cut in 2-inch pieces 
+Handful celery leaves 
+1 large chopped onion 
+3 sprigs parsley or 1 tbsp. dried parsley flakes 
+12 cups cold water 
+1 Tbsp. salt 
+10 peppercorns
+Put all ingredients in a large kettle. Heat slowly to boiling; skim, if desired. Reduce heat; simmer, covered, for 1 to 1-1/2 hours until meat falls off bones. Cool to lukewarm in broth. Remove meat and vegetables; discard greens. Strain broth; chill and remove fat. Use for soup, recipes, etc. Makes about 3 quarts. When meat is cool, remove from bones.  May be frozen.
+
+Chicken Noodle Soup - Sue Reber
+Use chicken broth.  Cube cooked chicken.  Use old fashioned noodles OR make your own using Grandma Grace's recipe.  Add sliced celery, diced carrots, diced onion while cooking noodles.  Can add chicken bouillon if more flavor is needed.  Salt and pepper to taste.
+
+Chicken Noodle Soup - Liz Bunderson
+Cook at least 2 chicken breasts (with bones) in water.  Reserve broth.  Take chicken off bones and shred.  In a large pot add your broth plus enough water to equal 4 quarts.  Dissolve up to 8 chicken bouillon cubes in broth, depending on your taste.  Add shredded chicken, 2 cups frozen carrots, 2 cups frozen peas, 1 medium onion, chopped, 3-4 stalks of chopped celery.  Several shakes of garlic salt and pepper to taste.  When veggies are almost cooked and water is boiling add Gramma’s Egg Noodles (in the freezer section) that have been thawed and separated.  Cook until noodles are done.
+
+Chicken Noodle Soup – Barbara Olsen
+1 boiling chicken with giblets
+2 ½ quarts water
+1 Tbsp. salt
+1 medium onion
+6 whole peppercorns
+3 stalks celery with leaves
+3 whole carrots
+Put ingredients in kettle. Cover and bring to boil.  Skim off foam.  Reduce heat and cook 2 hours. Remove meat, vegetables and peppercorns.  Discard vegetables and peppercorns.  Strain stock and chill, then skim fat layer. 
+Dice: 3 stalks celery
+3 carrots
+Add to stock and cook until vegetable are tender.  Meanwhile pull chicken from bones and dice.  Add chicken and 2 cups cooked rice or noodles 1/4 cup chopped parsley.  Heat through.
+
+Easy Chicken Noodle Soup –Becky Concoby
+2 chicken breasts cooked in 4 cups chicken broth. You can add carrots or celery and bay leaf to flavor the broth if you want.
+Remove chicken and let cool, then shred.
+Meanwhile, add egg noodles and let cook.  If you want it to be hard chicken noodle soup, make Grandma Grace's Egg Noodles at this point, instead of adding regular noodles.  When the noodles are done add 1 can of cream of chicken soup, and shredded chicken.  
+Add salt and pepper to taste
+
+
+
+
+
+
+
+
+Simple Pumpkin Soup -Tawna Marsh
+½ cup chopped onion
+3 Tbsp. butter
+2 cups cooked pumpkin, mashed
+1 Tbsp. sugar
+¼ tsp. nutmeg
+¼ tsp. black pepper
+3 cups chicken broth
+½ cup half & half
+Sauté onions in butter.  Add pumpkin, salt, sugar, nutmeg and pepper. Slowly add chicken broth and heat thoroughly, but do not boil.  Just before serving add half & half. 
+Makes 4 to 6 small servings.
+
+Curried Pumpkin Soup – Amy Badger – This is a recipe I got from my mother-in-law, Cathi Hatch, and modified to fit our taste.  We serve it often when guests come to dinner.
+1 large onion, sliced
+1/4 cup butter
+1 16-oz can pumpkin OR 2 cups pumpkin 
+4 cups chicken broth
+1 Tbsp. maple syrup OR sugar
+1 to 2 tsp. curry powder
+1/8 tsp. nutmeg
+Salt and freshly ground pepper to taste
+half & half OR sour cream
+Sauté onions in butter until golden brown.  Stir in pumpkin, broth, syrup, curry powder, nutmeg.  Bring to a simmer and continue simmering, uncovered, for 15 minutes, stirring occasionally. Transfer soup to food processor in batches and puree. (Or use a handheld blender stick to puree in the pot.) Return to pan: add salt and pepper to taste.  Simmer 5 mins.  NOTE: To serve paint streaks of sour cream or swirl a teaspoon of half & half carefully on the surface. The kids like their first initial painted on their soup.
+
+Butternut Squash Soup - Gina Olsen
+1 butternut squash (about 3 lbs)
+1 1/2 leeks (or white onion)
+3 cups whole milk
+3 cups water
+salt and pepper
+nutmeg to taste
+Peel squash, cut and remove seeds. Cut into chunks. Put in soup pot. Add leeks, milk, water and salt. Bring to boil then simmer about 20 minutes or until soft enough to mash.  Use blender to puree until smooth. Thin to desired consistency with milk or water. Season with nutmeg, salt and pepper
+
+Leftover Mashed Potato Soup - Barbara Olsen
+2 Tbsp. butter
+1/3 cup chopped onion
+Cook slowly until yellow.  
+Add:
+2 Tbsp. flour
+1 cup mashed potatoes
+1 cup water	
+2 ½ cups milk
+½ cup grated cheese
+Heat slowly, but do not boil.
+
+Onion and Potato Soup - Grandma Myrl Olsen
+6 cups diced potatoes
+1 good size onion
+Cook all together until tender.  Drain and mash potatoes and onions together and return to water.  Add 1 can evaporated milk, a piece of butter and 1 cup of grated nippy cheese.
+
+Potato Leek Soup - Bonnie Chantry - via Sister Long. This recipe came from a sister missionary in Greece who was from England and had been to a gourmet cooking school.  (It seems like a backwards way to make soup but it was wonderful every time she made it.)  
+1 cup butter
+2 lb. potatoes, diced		
+4 carrots, grated
+2 leeks, minced
+3 cups flour
+1 pt. heated milk
+salt & pepper
+a few sprigs of parsley 
+Melt butter.  Add leeks, carrots, potatoes and flour and still until all is stuck together.  Add heated milk slowly.  Add seasonings and simmer until veggies are tender.  (If more milk is desired, be sure it is heated first.)
+Portuguese Soup - Amy Badger- This soup was a favorite of mine during my mission.  I still enjoy making it for Elder Badger that I met on my mission.
+6 to 8 cups chicken broth
+1 small head of cabbage, shredded
+4 potatoes, peeled and cubed
+4 large carrots, peeled and sliced
+1 large onion, diced
+¼ to ½ lb. chorizo
+kosher salt, small hand full
+Pepper, to taste 
+Olive oil
+Slice chorizo and fry in a large stock pot with olive oil.  After meat is lightly browned, add the diced onion and cook until they have nicely browned and caramelized.  Add the chicken broth, shredded cabbage, diced potato and sliced carrots.  Bring to boil and let simmer for about 20 to 30 minutes, or until all the veggies are cooked.  Use a blender stick to puree the cooked veggies in the broth to make a nice thick soup.  Add the salt and pepper to taste.  Drizzle a little swirl of olive oil in each bowl of soup as it is served. 
+
+Hearty Tomato Soup - Barbara Olsen
+In heavy sauce pan add 1 Tbsp. oil. Sauté: 
+1 clove garlic, minced
+1 onion, chopped
+1 stalk celery, chopped
+1 carrot, chopped
+Add:  2 Tbsp. flour 
+3/4 cup raw rice, brown preferred
+Sauté until rice is toasty:
+Add:  1 (28 oz) can tomatoes
+2 tsp. salt
+½ tsp. pepper
+1 Tbsp. sugar
+1 tsp. each: oregano, and basil
+Cook till rice is done, about 30-45 min. Remove from heat.  If desired puree soup in blender.  Add 2 cups hot milk and 4 Tbsp. butter.  Warm, but do not boil.
+
+Macaroni & Tomato Soup - Bonnie Chantry
+2 Tbsp. butter	
+½ cup chopped onion	
+1/4 cup diced green pepper 
+1 cup diced celery
+4 oz. macaroni  (cooked)
+1 can tomato juice (46 oz)
+1 can tomato soup
+1 can water
+1-2 bay leaves
+½ tsp. salt
+½ tsp. sweet basil
+1 Tbsp. sugar
+Dash of pepper
+In heavy saucepan, melt butter, cook onion, green pepper, and celery until limp but not brown.  Add remaining ingredients. Heat to boiling.  Serve.
+
+Hamburger Soup - Bonnie Chantry
+1 lb. ground beef	
+1 can pork & beans (large)
+1 large onion		
+2 cans minestrone soup
+1 quart tomatoes	
+2 cans water
+1 tsp. Italian Seasoning	
+1 can string beans
+1 tsp. oregano		
+1 Tbsp. sugar
+garlic salt
+Brown hamburger and onion together. Add tomatoes and seasonings. Simmer 10-15 minutes. Add rest of ingredients. Simmer & serve.
+
+Cheeseburger Chowder – Liz Bunderson
+I got this recipe from my good friend, Colette Mathews. 
+1 lb ground beef, browned
+3-4 potatoes, peeled and chopped
+2-4 Tbsp. green peppers, chopped
+4-6 beef bouillon cubes
+¼ cup flour
+Milk
+1-3 cups cheddar cheese, shredded
+Brown beef with salt and pepper. When done add potatoes, peppers and bouillon. Cover with water. Boil until potatoes are tender. Mix flour with a small amount of milk and add to soup. Stir until thickened. Add milk to desired amount. Heat through. Add cheese. (Can use more flour paste mixture if you want it thicker.)
+Vegetarian Chili – Sue Reber –This recipe is one I discovered when Jared when through his vegetarian phase in high school.  I now use it with my foods classes to teach about veggies.
+2 medium green peppers
+1 medium onion
+1 medium zucchini
+1 medium yellow squash
+2 Tbsp salad oil
+2 Tbsp chili powder
+1 Tbsp sugar   
+3/4 tsp salt      
+1/4 tsp pepper  
+1 qt stewed tomatoes
+2 15 oz cans pinto beans
+2 15 oz cans black beans
+1 4 oz can chopped mild chilies
+2 cups fresh or frozen corn
+Chop green peppers, onion.  Cook in oil until tender.  Cut squash into ½ inch thick slices then quarter the slices.  Add squash and seasonings, cook 1 minute.  Add tomatoes, beans, corn, chilies and liquids.  Heat to boiling.  Reduce heat to medium-low; simmer, uncovered, 20 minutes.  Makes 10 servings.
+Variation:  Put tortilla chips on plate, scoop on some vegetable chili, cover with grated cheese and microwave just long enough to melt the cheese and warm the chili.
+
+Chili - Bonnie Chantry
+4 cups pinto beans
+1 large cooked onion
+2 tsp. salt
+3 Tbsp. chili powder
+2 lbs. ground beef
+1/3 cup water
+2 cans tomato soup
+2 Tbsp. flour
+Soak beans overnight in 4 quarts water.  Cook beans over low heat until tender.  Brown hamburger and onion.  Add to cooked beans that have just barely enough water to cover.  Add soup and stir.  Make a paste out of the chili powder, flour, 1/3 cup water and salt.  Blend into beans.  Cook on low heat 45 minutes. 
+
+
+Chili - Janine Hinkle
+2 large cans of kidney beans
+I also like pink beans added (1 pkg. of dried beans rehydrated - if you use these only use 1 large can of kidney beans
+1 lb. browned hamburger
+1 green pepper chopped
+1 onion chopped
+1 red pepper chopped
+2 large cans of crushed or stewed tomatoes 
+(We get whole tomatoes and crush them in the blender)
+sprinkle of sugar      
+chili powder
+paprika     
+salt     
+pepper
+Spices to taste.  A shake of garlic powder
+Put all in pressure cooker and cook 15 minutes after jiggling starts on 15 lbs. Serve with cornbread.
+
+Chili Con Carne - Barbara Olsen
+2 cups red beans
+1 lb. ground beef, browned
+1 large onion finely chopped 
+1 qt. canned tomatoes
+2 Tbsp. chili powder
+2 cups water or bean juice
+1 Tbsp. salt
+Cover and simmer until tender, about 2 hrs.
+
+Quick Chili - Barbara Olsen
+3/4 lb. hamburger
+2 Tbsp. flour 
+1 lg. can chili bean
+1 can stewed tomatoes
+1 Tbsp. chili seasoning mix
+Cook beef in large pan.  Stir in flour, then add remaining ingredients. Bring to boil, cover and simmer 10 min.  Stirring occasionally.  Makes 4 servings.
+
+
+
+
+
+
+
+Green Chili Chicken Stew - Jill Olsen – 
+A wonderful recipe that happens to be gluten free
+8 cups water
+½ tsp. salt
+½ tsp. black pepper
+4 skinless chicken breast (in bite size pieces)
+2 bay leaves
+Combine above ingredients in pan.  Bring to a boil, cook for 10 minutes.  Discard Bay leaves.
+6 cups cubed red potatoes
+1 ½ cups chopped onions
+1 cup thinly sliced carrots
+2 tsp. minced fresh cilantro
+¼ tsp. cumin
+½ tsp. garlic salt
+2 tsp. paprika
+3 cans (4.5 oz.) chopped green chilies 
+(I add only 2 but can add the other can if you like it hotter)
+1 (10oz.) can diced tomatoes & chilies (Ro-Tel)
+1 can (14.5 oz) diced tomatoes
+Add to the chicken broth mixture and bring to a boil.  Reduce heat and simmer 30 minutes until potatoes and carrots are done.
+1 large can evaporated milk 
+2 Tbsp. cornstarch
+1 lb. Velveeta cheese (cubed)
+Shredded sharp cheddar cheese for garnish
+Mix cornstarch with canned milk and stir into soup mixture.  Cook until almost boiling.  Add Velveeta cheese and stir until melted (but don't boil).  Remove from heat and sprinkle with shredded sharp cheese for garnish.
+
+Jared's White Chili –Jared Bales
+3 cups great northern beans OR 3 cans
+4 cups cooked, chopped chicken
+1 med. chopped onion
+1 tsp. minced garlic
+2 (4oz) cans green chilies
+2 tsp. ground cumin
+1½ tsp. oregano
+¼ tsp. red pepper/cayenne
+3 cans chicken broth
+3 cups Monterrey jack cheese
+little butter
+In a large pot cook the onions in a small amount of butter, then add the chilies and spices and simmer for a few minutes.  Add the broth, beans and chicken and heat to almost a boil.  Sprinkle cheese in slowly so it melts and serve with chips and extra grated cheese.
+
+Tortilla Soup - Alice Chantry
+4 pieces chicken
+2 cups cheese
+½ cup celery, chopped
+½ cup carrots, chopped
+4 cups crushed corn chips
+Boil chicken in 2 quarts water.  Remove from broth, skin, debone and dice chicken. Add chicken, carrots and celery in broth. Cook until carrots are tender.  Add cheese and chips. Cook 5 minutes and enjoy.
+
+Mixed Bean Soup –Jill Olsen
+You can also soak and use your own dried beans for this recipe. You'll need about 6 cups of cooked beans.
+1 Tbsp. Olive oil 
+1 med. onion chopped
+2 lg. garlic cloves
+1/4 tsp. coriander powder
+1/2 tsp. cumin
+1/4 tsp. red chili powder
+1 can garbanzo beans
+1 can red beans
+1 can white beans
+3 cups chicken or veggie stock
+2 tomatoes chopped OR 1 can diced tomatoes
+1 cup corn
+salt and pepper to taste
+Pour olive oil into deep skillet, or pot. Sauté onion and garlic until translucent and soft. Add in all of the spices and sauté for a minuet or so. Drain and rinse all beans and add them to the pot; along with the fresh or canned corn. Add stock and then bring mixture to a boil. Now turn down to a low simmer and add the tomatoes. Simmer for 10 to 15 min.
+Note: Sometimes I like to add a hand full of spinach right before serving. I stir it in just enough to wilt it a little and then I add a sprinkle of Parmesan cheese.
+
+
+
+Sosa 99 (Bean Soup) - Barbara Olsen
+1 quart beef broth made from soup bone
+2 (16oz) can Northern beans
+2 small onions, chopped
+1 (16oz) can stew tomatoes
+1 tsp. oregano
+1½ tsp. parsley
+½ tsp. garlic salt
+Pinch of black pepper. Cook slowly for one hour with cover. Serve with cornbread. 
+
+Lentil Soup - Grace Ann Skousen - Recipe from Scotland
+2 qts. soup stock (chicken or ham hock broth)
+1 1/2 cups lentils (orange, not green)
+3 - 4 carrots, grated
+small turnip, grated (optional)
+1 onion, grated
+Place it all in a big pot and boil for 1 hour.  Very healthy!
+
+Beans and Ham Hocks - Sue Reber
+1 lb. great northern beans
+1 small onion, chopped
+1 lb. ham hock
+2 celery stalks, chopped
+salt and pepper to taste
+Wash and sort beans.  Place in large pan and fill with enough water to completely cover the beans an a little to spare.  Bring to a boil, turn down heat to a simmer and allow to cook 1 1/2 - 2 hours or until beans are tender.  Be sure to check the water level occasionally so beans don’t boil dry.  At this point remove the ham hock and season the beans to taste with salt and pepper.  Remove meat from ham hock, shred it and put back into the beans.  Can also be done in the crock pot.  After soaking and draining the beans, put in the crock pot on low and let it cook all day and it is just right by dinner time.
+
+Oven Stew –Angela Olsen
+2 lbs. stew meat, browned
+1 pkg. onion soup mix
+carrots, potatoes, and onions diced up
+1 can cream of mushroom soup
+1 cup ketchup
+Mix together and bake at 300° for about 3 hours.
+Baked Beef Stew - Barbara Olsen
+1 can (14 ½ oz) diced tomatoes, undrained
+1 cup water
+3 Tbsp. quick cooking tapioca
+2 tsp. sugar
+1 ½ tsp. salt
+½ tsp. pepper
+2 pounds lean beef stew meat, cut in one inch cubes
+4 medium carrots, cut into 1 inch chunks
+3 medium potatoes, peeled and quartered
+2 celery ribs, cut in 3/4 in. chunks
+1 medium onion, cut into chunks
+1 slice bread, cubed
+In a large bowl, combine the tomatoes, water, tapioca, sugar, salt and pepper.  Add remaining ingredients; mix well.  Pour into a greased 13 x 9 inch baking dish.  Cover and bake at 375° for 1 ¾ - 2 hours or until the meat and vegetables are tender.  Yield: 6-8 servings.
+
+Old Fashioned Beef Stew – FFF Cookbook
+2 Tbsp. oil 
+2 lbs. beef chuck, cut in 1-1/2-inch cubes 
+2 cups hot water 
+2 medium onions, sliced
+2 tsp. salt 
+1 tsp. garlic salt 
+1 tsp. sugar 
+1 tsp. Worcestershire sauce 
+1/4 tsp. pepper 
+Dash cloves 
+1 bay leaf 
+8 carrots, peeled and cut in 1-inch pieces 
+6 potatoes, peeled and cut in quarters 
+1/4 cup cold water    
+2 Tbsp. flour
+Heat oil in 3-quart saucepan; thoroughly brown meat, stirring often. Add hot water and next 8 ingredients. Cover; simmer for 1-1/2 hours, stirring occasionally. Remove bay leaf; add carrots and potatoes. Cover and simmer 30 - 45 minutes, until vegetables are tender.  For gravy: Skim fat from liquid; combine 1/4 cup cold water and flour. Stir slowly into hot stew. Cook and stir until bubbly and thickened.  6 to 8 servings.
+
+
+Whole Meal Soup - Barbara Olsen
+2 lbs. ground beef, browned
+2 qts. hot water
+2 cups potatoes, diced
+1 cup celery, sliced
+½ cup rice
+2 cups corn
+1 cup carrots, sliced
+2 cups shredded cabbage
+2 cups tomatoes, cut up
+2 onions, chopped
+Add ingredients and boil until tender and done.
+
+Hamburger Soup - Kadie Allred
+2 cups diced potatoes
+2 cups diced carrots
+1 cups chopped celery
+2 Tbsp. parsley
+2 medium chopped onions
+1 ½ lbs hamburger
+1 Tbsp. sugar
+1 qt. tomato juice
+1 bay leaf
+¼ cup pearlized barley
+1 tsp. garlic salt
+1 Tbsp Worcestershire sauce
+5 cups water
+2 tsp. salt
+¼ tsp pepper
+Brown hamburger. Put all ingredients into large pan. Cook over medium heat 2-3 hours until the veggies are done. Can also be cooked in a crock pot for 8 hrs on low. If using a crock pot add the hamburger and potatoes for the last 4 hours.
+
+Lazy Soup - Marjean Spencer
+1 lb. ground beef	
+1 cup potatoes
+1 cup celery
+1 cup carrots
+1 quart tomatoes
+1 tsp. salt   
+1/4 tsp. pepper	
+1/8 tsp. basil
+1 tsp. Kitchen Bouquet   
+1 bay leaf
+Brown hamburger and simmer all ingredients until vegetables are done.
+Taco Soup - Brianna Fielding
+1lb. ground beef
+1 onion (opt.)
+1 can corn
+1 can dark red kidney beans
+1 can peeled/diced tomatoes
+1 can tomato sauce
+1 packet taco seasoning
+1 packet ranch mix
+3 cups water
+Cook the ground beef with diced onion.  Drain and combine with all other ingredients.  Heat thoroughly and serve with sour cream and chips.
+
+Taco Soup - Barbara Olsen – “Sarah Jane and Aunt Sue were in charge of dinner at the Olsen family reunion up Logan Canyon one year.  They chose this soup made with sausage rather than ground beef because it was on sale and garnished with chopped cilantro. Sarah didn’t mind the change in meat as long it wasn’t ground turkey which she thought would be cheating out on everyone at a reunion.” –Amy Badger
+Brown and drain:
+1 lb. ground beef
+1 onion chopped  
+Add:
+1 quart tomatoes
+1 lrg. can kidneys beans with juice
+1 can whole kernel corn with juice
+1 pkg. Taco seasoning
+Serve with dollop of sour cream and any of the following: chopped tomatoes, chopped green onions, sliced olives, grated cheese, chopped cilantro & tortilla chips.
+
+
+
+
+
+
+
+
+
+
+
+
+Olive Garden Zuppa Toscana Soup –Liz Bunderson - Serves 3-4
+1 1/2 cups spicy sausage
+4 med. potatoes, sliced 1/4"
+1/4 cup onion, diced
+1/2 cup real bacon, cooked and crumbled
+1/4 tsp. minced garlic
+2 cups kale, cut in half then sliced into strips
+2 Tbsp. chicken base
+1 qt. water (or substitute water and chicken base with 2 cans of chicken broth)
+1/3 cup heavy cream
+Cook sausage, set aside.  In soup pot, sauté onion and garlic cook 1 minute.  Add chicken base, water and potatoes, simmer 15 minutes or until potatoes are done to your liking.  Add bacon, sausage, kale, and cream.  Simmer 5 more minutes, and then serve.
+
+Clam Chowder - Barbara & Bonnie - This recipe is from Bratten's Seafood Grotto, a wonderful seafood restaurant in Salt Lake City.  Alecia's specialty, now.
+2-3 cups peeled diced potatoes 
+1 cup finely diced onion 
+1 cup finely diced celery 
+2 cans (6 ½ oz. each) minced clams 
+3/4 cup margarine 
+3/4 cup flour 
+1 qt. milk 
+1 tsp. salt 
+Pepper, to taste
+Put vegetables in medium saucepan. Drain the juice from the clams and pour over vegetables, adding water to barely cover. Simmer over medium heat until barely tender, about 10 minutes. Meanwhile in a heavy saucepan, over medium heat, melt the margarine, add flour, blend until smooth. Slowly add the milk, stirring with a wire whisk. Cook until thick and smooth, stirring constantly. Stir in the vegetables, juice, and clams; heat through. Add salt and pepper. Makes 8 servings.
+
+Liz's Clam Chowder –Liz Bunderson
+serves 8
+2 cups diced onion
+2 cups diced celery
+6 cups diced potatoes
+3-4 cans clams, drained and juice reserved
+3 tsp. salt
+1/2 tsp. pepper
+1 tsp. sugar
+1 tsp. DeVerls seasoning OR celery salt
+1 1/2 cups butter
+1 1/2 cups flour
+7 slices bacon, crisped and crumbled, reserve 2 slices
+2 qts. milk
+2-3 chopped green onions
+Cook veggies in clam juice and enough water to cover them. Microwave bacon until crisp.  Drain on a paper towel, and then crumble it. Melt butter in pan, add flour and cook until smooth and bubbly.  Add milk and whisk until smooth and heated through, watch carefully to not scorch bottom.  Add veggies and liquid, then seasonings, then clams and bacon.  Garnish with reserved bacon and green onions.
+
+Kristi’s Clam Chowder - Rachel Mitchell
+2 cans minced clams
+2 cups diced potatoes
+1 cup chopped onion
+1 cup chopped celery
+2 cups milk
+2 cups half & half (may substitute with milk)
+3/4 cup butter
+½ -3/4 cup flour
+1/8 tsp. thyme, optional
+1 tsp. salt
+½ Tbsp. sugar
+1 dash pepper
+Drain clams and reserve the liquid.  Combine potatoes, onion and celery in saucepan.  Add clam liquid and enough water to cover the vegetables.  Cover pan and simmer veggies until tender, about 20 minutes.  In another saucepan (heavy) melt butter, slowly add flour, salt, pepper & thyme stirring constantly. Gradually add milk and half & half.  Stirring constantly until thick and smooth. Slowly add cooked veggies to the cream sauce.  Stir in clams and sugar.  Heat through.
+
+
+
+
+Clam Chowder –Kadie Allred
+2 cans minced clams
+1 cup chopped onion
+2 cup diced potatoes
+3/4 cup margarine
+1 qt. half and half
+1 1/2 tsp. salt & pepper
+1/2 tsp. sugar 
+3/4 cup flour
+Drain clams and pour over prepared veggies in sauce pan.  Add enough water to barely cover, simmer (covered) over medium heat till potatoes are tender.  Melt butter, add flour and blend.  Cook 2 mins.  Add half-n-half and cook, stirring ‘till smooth and thick.  Add undrained veggies.
+
+Corn Chowder - Janine Hinkle - Daneen's favorite
+5-6 slices of bacon, cut up
+1 small onion diced
+2 medium potatoes, diced (we use 9 medium)
+1 can whole kernel corn
+1 can of milk (or whatever milk is in the frig)
+salt and pepper to taste
+We use a pinch of basil and a sprinkle of dried parsley - sometimes a touch of garlic.  Fry onions with bacon, brown lightly.  Add potatoes and enough water to cover (use water off corn also). Cook until potatoes are tender.  Add corn, milk, spices and herbs.  Simmer about 15 minutes.
+
+Midwest Chowder - Jill Olsen
+2 cups potatoes
+½ cup celery
+1½ cups carrots
+2 cups water
+salt and pepper
+Combine, simmer 10 minutes.  Make sauce;
+½ cup margarine
+2 cups milk
+1/4 cup flour
+Add desired amount of cheese.
+
+Cream of Potato Soup –Grace Ann Skousen
+3 med. potatoes, peeled and diced
+3 Tbsp. margarine
+1 Tbsp. dried onion
+½ tsp. salt
+¼ tsp. celery salt
+¼ tsp. pepper
+3 Tbsp. flour
+2 cups hot milk
+Grated cheese and bacon for garnish
+Boil potatoes until tender. Drain and slightly mash. In another pot melt margarine and add onion and spices. Add flour and then stir in hot milk. Boil until thick and then add potatoes.
+
+Cheesy Chowder - Sue Reber
+2 cups diced potatoes
+1 1/2 cup chopped onions
+1 cup sliced carrots
+1 cup chopped celery
+2 cups water
+1/4 cup margarine
+½ cup flour
+1 tsp. salt or to taste
+1/4 tsp. pepper
+2 cups milk
+1 tsp. dry mustard
+2 Tbsp. chicken bouillon (instant)
+3 cups shredded cheddar cheese
+parsley sprigs
+In a four quart saucepan combine the vegetables, water, butter and bouillon.  Bring to a boil, then reduce heat.  Cover and simmer 30 minutes or until vegetables are tender.  In small bowl combine milk and flour; beat until smooth.  Gradually blend into vegetable mixture.  Cook, stirring until thickened and the sauce is smooth.  Add cheese, mustard, salt and pepper, stir until cheese melts.
+
+Cheese Soup - Becky Concoby
+In large pan combine and cook until tender:
+6 cups water
+4 chicken bouillon cubes
+2 cups chopped vegetables (broccoli, cauliflower, potatoes)
+½ cup onion finely chopped
+½ cup celery finely chopped
+Melt 1 1/2 squares of butter.  Add ½ cup flour and blend until smooth.  Add to first mixture.  Stir in 8 oz Cheez Whiz.
+
+
+Nacho Potato Soup - Barbara Olsen
+1 pkg. (5 1/4 oz) au gratin potatoes
+1 can (11 0z) whole kernel corn
+1 can (10 oz) diced tomatoes and green chilies, undrained
+2 cups water
+2 cups milk
+2 cups cubed process American cheese
+Dash of hot pepper, optional
+Minced fresh parsley, optional
+In a 3 qt. saucepan, combine the contents of the potato package, corn, tomatoes and water; mix well.  Bring to a boil. Reduce heat; cover and simmer for 15-18 minutes or until potatoes are tender. Add milk, cheese and hot pepper if desired; cook and stir until the cheeses is melted.  Garnish with parsley.  Yield: 6-8 servings 
+
+Cream of Anything Soup - Pam Reber Grange - The Hyatt Union Square Hotel in San Francisco uses broccoli for the vegetable in this soup, and it is wonderful. It works as well, however, with carrots, zucchini, summer squash, asparagus or whatever you choose.  This is a smooth, rather delicately flavored soup that is accepted with surprising enthusiasm by children.
+1 Tbsp. finely chopped onion
+3 Tbsp. butter
+3 Tbsp. flour
+1 tsp. salt
+1/8 tsp. pepper
+1 cup pureed cooked vegetables (any kind)
+2 cups milk
+2 cups chicken broth (2 cups water, 2 bouillon cubes)
+Sauté onion in butter.  Blend in flour, salt and pepper.  Cook over low heat, stirring until smooth and bubbly.  Stir in vegetables which have been cooked to tender-crisp, drain and whirl in blender with 1 cup of the chicken broth, or mashed smooth by hand; bring to a gentle boil and boil for 1 minute, stirring constantly.  Remove from heat.  Gradually stir in milk and remaining broth.  Heat to serving temperature, but do not bring to another boil.
+
+
+Cream of Veggie Soup - Sue Reber
+1 cup onion
+1 cup celery
+1 cup carrots
+1 cup broccoli
+1 cup cauliflower
+1 cup potatoes
+5 cups water
+5 chicken bouillon cubes
+Cook vegetables in the chicken broth. 
+Make roux with 4 Tbsp. margarine and 4 Tbsp. flour.  Add 2 cups half and half.  Melt 2 cups cheese.  Add 1 Tbsp. vinegar.
+
+Cream of Broccoli Soup - Becky Concoby
+Make white sauce with:
+6 Tbsp. butter
+6 Tbsp. flour
+1 Tbsp. chicken bouillon powder
+½ tsp. seasoning salt
+1/4 tsp. pepper
+1 pt. half & half
+2 ½ cups milk
+Sauté:
+3 Tbsp. butter
+1/4 cup chopped onion
+1 celery spear
+Steam:
+3 cups chopped broccoli
+Mix all above together with 1 cup sliced mushrooms, 
+4 oz. Swiss cheese and 1/4 cup Parmesan cheese.
+
+Broccoli Soup - Grandma Grace -“This soup is one that we traditionally serve for dinner along with hoagie sandwiches on Christmas Eve” - Sue
+3-4 cups broccoli
+1 (8 oz.) cream cheese
+1 can evaporated milk
+1 can cream of chicken soup
+2 cups milk
+Steam broccoli.  Add rest of ingredients and process in blender for a few seconds, so you can still see chunks of broccoli,  Heat but do not boil.  Add a sprinkle of Italian seasoning.
+
+
+Zucchini Garden Chowder – Liz Bunderson
+Serves 3-4
+2 medium zucchini, diced
+1 medium onion, diced
+1 tsp. parsley
+1 tsp. basil
+5 Tbsp. + 1 tsp. butter
+5 Tbsp. + 1 tsp. flour
+1 tsp. salt
+¼ tsp. pepper
+3 cups water
+3 tsp. chicken bouillon
+4 tomatoes, diced
+1 can evaporated milk
+1 can of corn
+4 Tbsp. parmesan cheese
+Stir all ingredients together in a large pot. Cook on low heat until veggies are tender. Enjoy!
+
+
+APPETIZERS:
+“Ryleigh’s Cackleberries” aka Pickled Eggs –Kadie Allred, 1
+3-in-one Cheese Ball –Liz Bunderson, 1
+After School Snack - Julie Chantry, 9
+Amy’s Fruit Dip - Amy Badger, 7
+Artichoke & Spinach Dip –Kadie Allred, 3
+Banana Treat - Laurie Fryatt, 7
+Birdseed - Grandma Grace, 8
+Black Bean Corn Salsa –Jill Olsen, 6
+Blue Cheese Date Wraps- Amy Badger, 2
+Can’t Leave ‘Em Alone Nuts – Liz B., 8
+Caramel Fruit Dip – Sue Reber, 7
+Cheese Ball - Sammi Jo Stewart, 1
+Cheese Ball Dip –Angela Olsen, 1
+Chicken Appetizers - Diane Anderson, 2
+Chili Cheese Chip Dip –Sammi Jo Stewart, 5
+Chili Con Queso - Barbara Olsen, 4
+Cinnamon Tortilla Chips & Strawberry Salsa –Sue Reber, 6
+Coconut Fruit Dip-Amy Badger, 7
+Cordon Bleu Melts - Amy Badger, 2
+Cowboy Salsa – Amy Badger, 6
+Fresh Fruit Dip - Jill Olsen, 7
+Game Day Guacamole - Liz Bunderson, 6
+Jared’s Bean Dip - Jared Reber, 4
+Jarvis' Favorite Dip– Jill Olsen, 2
+Jennifer's Guacamole –Liz Bunderson, 6
+Jerky - Jill Olsen, 8
+Kristin's Salsa – Chrissy Probst, 5
+Laurie’s Fruit Dip - Laurie Fryatt, 7
+Lemonade Apples – Sue Reber, 7
+Low Fat Fruit Dip - Sarah Mani, 7
+Meat Dip - Alice Chantry, 3
+Mexican Dip - Tawna Marsh, 4
+Microwave Pizza Nachos - Liz Bunderson, 5
+Nacho Cheese Sauce –Sue Reber, 5
+No-Bake Granola Balls-Amy Badger, 8
+Olsen Snack Factory – Barbara Olsen, 8
+Personal Size Chex Mix–Emily Hammerstad,8
+Ready-To-Serve Homemade Salsa –Sue, 5
+Refried Beans - Sue Reber, 3
+Salsa –Becky Concoby, 6
+Sammi’s Favorite Dip - Jill Olsen, 5
+Shrimp Cheese Ball - Marjean Spencer, 1
+Shrimp Dip - Angela Olsen, 3
+Simple Dip for Kids- Catarina Badger, 3
+South of the Border Popcorn - Bonnie, 8
+Spinach Dip – Sue Reber, 2
+Tostaditas - Sue Reber, 3
+Touchdown Taco Dip – Amy Badger, 4
+Vegetable Dip - Marjean Spencer, 2
+Vegetable Pizza - Sue Reber, 3
+Warm Butterscotch Fruit Dip–Amy Badger,7
+Wheat Hot Roll mix –Jill Olsen, 1
+Yummy Fruit Dip –Sue Reber, 7
+
+BEVERAGES:
+Banana Fruit Cocktail  - Marjean Spencer, 11
+Bottled Root Beer - Grandma Walker, 10
+Brazilian Lemonade –Emily Hammerstad, 11
+Cherry Limeade – Liz Bunderson, 11
+Chocolate Frosty – Landon Reber, 12
+Creamy Peach Freshener - Tawna Marsh, 12
+Diet Fruit Drink - Grandma Grace, 12
+Diet Milk Shakes - Grandma Grace, 12
+Eggnog - Sue Reber, 13
+Fruit Smoothie – Sammi Jo Stewart, 12
+Holiday Punch - Bonnie Chantry, 10
+Hot Apple Cider Nog - Clint Fielding, 13
+Kid’s Fruit Coolers  - Alice Chantry, 12
+Lemonade for Many - Clint Fielding, 11
+Lemonade for one - Clint Fielding, 11
+Orange Julius - Grandma Grace, 11
+Party Punch - Trisha Olsen, 10
+Peach Cooler - Jared Reber, 12
+“Peanut Butter Mood” Protein Shake – Justin Badger, 12
+Raspberry Frappe - Sue Reber, 10
+Raspberry Slush - Jill Olsen, 10
+Relief Society Punch - Barbara Olsen, 11
+Root Beer - Grandma Grace, 10
+Russian Tea Punch - Grandma Reber, 10
+Shirley Temple - Jared Reber, 11
+Slush - Angela Olsen, 10
+Slush for 50 - Bonnie Chantry, 10
+Spiced Hot Punch  - Sue Reber, 13
+Strawberry Colada  - Tawna Marsh, 11
+Summertime Brazilian Avocado Shake –  Jon Marsh, 12
+Wassail - Janine Hinkle, 13
+
+
+
+
+
+
+
+BREADS:
+All-Bran Dinner Rolls - Bonnie Chantry, 18
+Apricot Bread - Angela Olsen, 29
+Bagels - Laurie Fryatt, 20
+Banana Bread –Kadie Allred, 27
+Banana or Zucchini Bread-Derlene Olsen, 27
+Basic Roll Dough - Marjean Spencer, 18
+Basic Sweet Dough – Amy Badger, 23
+Berry Cheesecake Muffins –Amy Badger, 32
+Best Ever Banana Bread - Ruby Fielding, 27
+Blue Berry Crumb Muffins – Sue Reber, 32
+Braided Breadsticks – Liz Bunderson, 21
+Bran Muffins – Amy Badger, 31
+Bran Muffins –Chrissy Probst, 31
+Brazilian Bread - Janine Hinkle, 16
+Bread in 2 Hours - Diane Anderson, 15
+Bread Machine Cinnamon Rolls –Amy B., 23
+Bread Sticks - Garth & Ruby Fielding, 18
+Bread Sticks - Suzanne Reber, 22
+Butter Dips – Sue Reber, 22
+Carrot Bread - Amy Badger, 28
+Celestial Cornbread - Trisha Olsen, 25
+Cinnamon Rolls – Gayle Anderson, 24
+Cinnamon Rolls - Laurie Fryatt, 24
+Cinnamon Twists - Grandma Grace, 24
+Classic Focaccia with Cheese – Liz B., 22
+Coconut Bread-Amy Badger, 30
+Crêpes - Sue Reber, 26
+Crescent Rolls - Sue Reber, 19
+Danish Ebelskivers - Becky Concoby, 26
+Dinner Rolls - Sue Reber, 18
+Egg Bread - Amy Badger, 15
+Feather Light Muffins– Sammi Jo Stewart, 30
+Fielding’s Whole Wheat Bread,            Grandma Grace, 14
+Flour Tortilla - Tiffanie Olsen, 26
+French Bread - Becky Concoby, 16
+Fry Bread - Emma Largo, 27
+Garlic Bread - Jill Olsen, 17
+Grandma Grace’s Basic White Bread - Grandma Grace, 14
+Hannah Muffins – Chrissy Probst, 31
+Herbed Tomato Bread-Amy Badger, 16
+Homemade Brown Bread –Jill Olsen, 15
+Honey Pan Rolls – Amy Badger, 18
+Hot Rolls - Grandma Grace, 17
+Linz’s Yummy Rolls – Kadie Allred, 19
+Mama’s Dumplings - Grandma Grace, 26
+Moist Cornbread –Amy Badger, 26
+Monkey Bread - Sammi Jo Stewart, 25
+Monkey Bread - Suzanne Reber, 25
+Muffins - Julie Chantry, 30
+Nick’s Banana-Nutty Bread –                   Nick Hammerstad, 27
+No-Fail French Bread–Rachel Mitchell, 17
+Northern Cornbread –Becky Concoby, 25
+Oatmeal Muffins  - Grandma Grace, 31
+Orange Knots –Liz Bunderson, 25
+Orange Pecan Muffin  - Angela Olsen, 31
+Original Bread - Janine Hinkle, 15
+Parker House Rolls - Grandma Grace, 19
+Perfect Pizza Dough –Liz Bunderson, 21
+Pita Bread – Amy Badger, 21
+Pull Apart Biscuits – Sue Reber, 23
+Pumpkin Bread - Alecia Bales, 28
+Pumpkin Knot Rolls –Amy Badger, 20
+Pumpkin Ribbon Bread –Amy Badger, 29
+Pumpkin-Pecan Friendship Bread – Amy, 29
+Re-fried Bean Bread –Jill Olsen, 16
+Rhodes Bread Sticks - Jill Olsen, 22
+Rhodes Caramel Rolls - Jill Olsen, 25
+Rosemary Focaccia Bread - Grace Ann S., 23
+Soft Italian Breadsticks - Amy Badger, 22
+Soft Pretzels – Sue Reber, 20
+Sopapillas - Grandma Grace, 26
+Squash Muffins –Liz Bunderson, 32
+Swiss Bread – Chrissy Probst, 15
+Tawna's Thanksgiving Hot Rolls – Tawna, 17
+The Most Wonderful Wheat Bread You Have Ever Tasted – Amy Badger, 14
+Whole Wheat Bread - Sue Reber, 14
+Zucchini Blueberry Bread -Amy Badger, 28
+Zucchini Bread –Liz Bunderson, 28
+Zucchini Chip Muffins –Amy Badger, 32
+
+BREAKFAST FOODS:
+Bacon Waffles - Alice Chantry, 36
+Baked Cinnamon French Toast -, 36
+Baking Powder Biscuits - Amy Badger, 37
+Biscuits & Gravy - Liz Bunderson, 37
+Boiled Eggs - Grandma Grace, 38
+Breakfast Lists, 41
+Buttered Toast - Tawna Marsh, 39
+Camel’s Eyes– Sue Reber, 33
+Canyon Potatoes – Grace Fielding, 33
+Dutch Baby - Tawna Marsh, 36
+Fabulous Breakfast Casserole -Sammi Jo, 33
+Fabulous French Toast-Amy Badger, 36
+BREAKFAST FOODS CONT;
+Farmer’s Casserole -Amy Badger, 33
+German Pancakes - Michael Fielding, 35
+Granola  - Liz Bunderson, 37
+Ham&Cheese Omelette Roll–Amy Badger, 34
+Heavenly Syrup- Amy Badger, 39
+Home-Style Syrup –Becky Concoby, 39
+Kentucky Biscuits –Liz Bunderson, 37
+Light Wheat Biscuit Mix-Amy Badger, 34
+Mini Sausage Quiche –Amy Badger, 33
+Mormon Gravy - Grandma Grace, 37
+Never Fail Light Pancakes – Bonnie, 35
+Oatmeal pancakes –Jill Olsen, 35
+Peanut Butter & Jelly Oatmeal – Amy, 38
+Peanutty Granola – Amy Badger, 38
+Poached Eggs in Milk - Barbara Olsen, 38
+Rolly Pancakes – Jill Olsen, 35
+Sawmill Gravy - Tawna Marsh, 37
+Shelly’s Sweet Hot Cakes - Nate Reber, 35
+Simple Maple Syrup –Sue Reber, 39
+Stuffed French Toast –Liz Bunderson, 35
+Swedish Pancakes or (Flenchies), 34
+Ten Tips for Making Pancakes:, 39
+Turkey Sausage – Amy Badger, 38
+Vanilla Buttermilk Syrup –Tawna Marsh, 39
+Waffle tips and ideas:, 40
+Waffles – Sue Reber, 36
+Waffles - Tawna Marsh, 36
+Waffles - Trisha Olsen, 36
+Whole Wheat Pancakes - Sue Reber, 35
+
+CAKES & FROSTINGS:
+Alecia's Cream Cheese Frosting –Alecia, 54
+Any Old Fruit Cake - Grandma Grace, 47
+Apple Cake - Jill Olsen, 48
+Apple Cream Cake –Pam Reber Grange, 47
+Applesauce Cake - Barbara Olsen, 47
+Banana Cake - Laurie Fryatt, 48
+Better Than Sex Cake - Janine Hinkle, 51
+Better Than Sex Cake – Suzanne Reber, 51
+Bolo de Iogurte (Yogurt Cake)-              Justin Badger, 50
+Butter Cream Frosting, 55
+Cake "Bonnie" - Bonnie Chantry, 51
+Cake Roll - Sue Reber, 52
+Caramel Frosting, 55
+Carrot Cake-Low Fat – Amy Badger, 50
+Chocolate Molten Cakes with Mint Fudge Sauce - Amy Badger, 45
+Chocolate PB No-Bake Cake-Amy B., 54
+Chocolate Sheet Cake - Lion House, 44
+Chocolate Zucchini Cake-Amy Badger, 46
+Cocoa Fudge Frosting - Rachel Mitchell, 55
+Crazy Cake - Ruby Fielding, 50
+Devil’s Food Cake - Derlene Olsen, 44
+Double Fudge Pudding Cake - Tiffanie, 52
+Fluffy Chocolate Frosting, 55
+Frosting for Oatmeal Cake, 55
+German Chocolate Frosting, 55
+Grandma’s Plain Cake - Grandma Walker, 43
+Hot Milk Cake - Bonnie Chantry, 43
+Jell-O Cake - Diane Anderson, 52
+Jelly Roll - Sue Reber, 52
+Kenna’s Chocolate Chip Cake - Rachel M, 45
+Layer Party Cake - Sue Reber, 52
+Lion House Choco Sheet Cake Frosting, 55
+Milky Way Cake - Jill Olsen, 45
+Moist Chocolate Cake - Bonnie Chantry, 43
+Molasses Gingerbread Cake -4, 49
+Oatmeal Cake - Barbara & Bonnie, 47
+Picnic Cake - Barbara Olsen, 50
+Poppy Seed Cake - Diane Anderson, 51
+Pumpkin Cake –Liz Bunderson, 49
+Pumpkin Cake Roll - Alecia Bales, 49 
+Raspberry Swirl Coffee Cake-Amy B, 53
+Red Velvet Cake Icing - Tiffanie Olsen, 46
+Red Velvet Cake- Tiffanie Olsen, 46
+Rhubarb Cake – Amy Badger, 48
+Russian Christmas Coffee Cake –      Catarina Badger, 53
+Seven Minute Icing - Tiffanie Olsen, 54
+Sour Cream Chocolate Cake - Jill Olsen, 44
+Sour Cream Chocolate Frosting, 55
+Sour Cream Coffee Cake - Angela Olsen, 53
+Sponge Cake - Aunt Zeona Walker, 43
+Strawberry Filled Roll - Sue Reber, 52
+Strawberry Pound Cake – Amy Badger, 48
+Texas Sheet Cake - Lisa Olsen, 44
+Watergate Cake - Tiffanie Olsen, 51
+Zucchini Chocolate Cake – Bonnie, 46
+Zucchini Cupcakes -Amy Badger, 54
+
+
+
+
+
+
+
+CANDIES:
+7 Minute Caramels –Jill Olsen, 58
+Boston Creams - Bonnie Chantry, 58
+Caramel Corn – Sue Reber, 60
+Caramels-Electric Fry Pan Style –Jill, 58
+Carmel – Liz Bunderson, 58
+Carmel Turtles – Liz Bunderson, 58
+Chinese Noodle Fudge – Amy Badger, 57
+Cream Cheese Mints, 59
+Crisp Baked Caramel Corn, 60
+Divinity – Liz Bunderson, 59
+English Toffee – Bonnie Chantry, 57
+Expert Tips For Making Fudge, 56
+Gooey Caramel Popcorn –Kadie Allred, 60
+Holiday Almond Roca -                             Chris Reber Graham, 57
+Honey Candy - Bonnie Chantry, 59
+Magic Popcorn Balls - Chrissy Probst, 59
+Microwave Peanut Brittle–Bonnie, 57
+No Fail Fudge - Marjean Spencer, 56
+Nut Roll – Liz Bunderson, 60
+Old Fashioned Fudge -Bonnie Chantry, 56
+Peanut Brittle – Liz Bunderson, 57
+Peanut Butter Fudge - Laurie Fryatt, 56
+Pecan Crunch - Jill Olsen, 57
+Potato Candy - Laurie Fryatt, 59
+Simple Turtles – Amy Badger, 58
+Sticky Popcorn - Sue Reber, 59
+Suckers - Russell Olsen, 59
+Taffy - Bonnie Chantry, 58
+Water Tests For Candy Making , 56
+
+COOKIES, BARS & BROWNIES:
+Aggression Cookies - Bonnie Chantry, 65
+Applesauce Cookies - Bonnie Chantry, 69
+Banana Drop Cookies - Suzanne Reber, 68
+Best Gotta-Have-It Brownie- Amy Badger, 78
+Bit o’ Everything Cookies-Amy Badger, 64
+Black Bean Brownies –Jill Olsen, 79
+Brownies - Diane Anderson, 77
+Brownies - Grandma Reber, 77
+Butterscotch Brownies - Janine Hinkle, 80
+Cake Mix Choco Chip Cookies-Bonnie, 62
+Charlee's Chocolate Chip Cookies –, 62
+Cherry Chip Cookies – Sammi-Jo Stewart, 73
+Cherry Coconut Bars - Amy Badger, 74
+Chocolate Caramel Bars - Sarah Manis, 77
+Chocolate Chip Kiss Cookies- Laurie, 64
+Chocolate Chip, Oatmeal, Coconut Cookies - Janine Hinkle, 65
+Chocolate Nut Fingers – Liz Bunderson, 66
+Chocolate P. B. Chip Cookies-Liz, 71
+Chocolate-P. B. Fudge Bars –Amy Badger, 78
+Congo Bars - Grandma Reber, 63
+Cowboy Cookies - Carolee Fielding, 66
+Cranberry Bliss Bars, from Starbucks – Tiffanie Olsen, 74
+Cream Cheese Brownies – Tawna Marsh, 80
+Cream Cheese Cookies - Sarah Manis, 73
+Crunchy Birthday Sweets -                      Carolee Fielding, 65
+Daniel’s Brownies- Daniel Hinkle, 77
+Gingerbread Cookies - Sue Reber, 69
+Gingerbread Man Cookies - Jill Olsen, 69
+Hello Dolly Bars - Sue Reber, 76
+Homemade Fortune Cookies–Amy Badger, 70
+Lemon Bars - Diane Anderson, 75
+Lime Cookies - Sammi Jo Stewart, 72
+Macaroons - Sue Reber, 70
+Macaroons Made Easy - Tiffanie Olsen, 71
+Marbled Cheesecake Brownies - Tiffanie, 80
+Mexican Wedding Cookies–Bonnie, 72
+Microwave Brownies - Tiffanie Olsen, 78
+Mint Brownies - Sammi Jo Stewart, 79
+Monster Cookies - Sue Reber, 65
+Mrs. Field’s Oatmeal Chocolate Chip Cookies – Grandma Grace, 64
+No Bake Cookies - Ruby Fielding, 73
+No Bake Cookies –Sue Reber, 73
+No-Bake Nutty Oat Cookies –, 67
+Num-Nums - Amy Badger, 76
+Oatmeal Banana Chocolate Chips Cookies –Amy Badger, 68
+Oatmeal Chocolate Chip Cookies - Laurie, 64
+Oatmeal Cookies -  Bonnie Chantry, 68
+Oatmeal Cranberry White Chocolate Chunk Cookies – Jill Olsen, 70
+Orange Cookies – Tawna Marsh, 71
+Oreo Cookies - Grandma Grace, 70
+Peanut Butter Chocolate Chip Cookies -  Laurie Fryatt, 65
+Peanut Butter Cookies - Bonnie Chantry, 66
+Peanut Butter Cookies (In a Hurry)-Ruby, 67
+Peanut Butter Fingers- Coach Fielding, 76
+Peanut Butter Jammers – Amy Badger, 75
+Peanut Butter Oatmeal Cookies - Janine, 67
+Peanut Butter Rolo Cookies- Amy Badger, 67
+COOKIES, BARS & BROWNIES CONT:
+Peanut Cookies - Grandma Grace, 67
+Pineapple Coconut Cookies- Amy Badger, 72
+Pumpkin Bars - Devan Chantry, 75
+Pumpkin Chocolate Chip Cookies –Sue, 66
+Pumpkin Cookies - Tiffany Fielding, 68
+Raisin Filled Cookie Bars-Grand. Grace, 75
+Ranger Cookies - Jill Olsen, 66
+Raspberry Coconut Bars – Amy Badger, 73
+Refrigerator Cookies - Bonnie Chantry, 73
+Rocky Road Crunch Bars– Liz Bunderson, 77
+Root Beer Cookies - Amy Badger, 71
+Sally’s Favorite Chocolate Chip Cookies-, 62
+Salted Peanut Chews - Diane Anderson, 74
+Snickerdoodles - Sue Reber, 68
+Soft Sugar Cookies - Angela Olsen, 61
+Sour Cream-Milk Chocolate Chip Cookies-Justin Badger, 63
+Strawberry Filled Wedding Bells –Amy B, 72
+Stupid Cookies – Amy Badger, 73
+Sugar Cookies - Janine Hinkle, 61
+Sugar Cookies - Julie Chantry, 61
+Sugar Cookies - Laurie Fryatt, 61
+Sugar Cookies - Trisha Olsen, 61
+The Best Chocolate Chip Cookies Ever –Tawna Marsh, 63
+Touchdown Peanut Butter Marbled Brownie - Laurie Fryatt, 79
+Whole Wheat Brownies – Jill Olsen, 78
+Whole Wheat Choco Chip Cookies–Amy, 62
+Whole Wheat Snickerdoodles - Jill Olsen, 69
+Whole Wheat Sugar Cookies - Ruby, 62
+Zucchini Brownies - Amy Badger, 79
+Zucchini Cookies - Diane Anderson, 70
+
+CROCKPOT:
+Beans & Ham Hocks - Sue Reber, 81
+Beef Fajitas in Crockpot –Chrissy Probst, 82
+Cranberry Chicken –Grace Ann Skousen, 84
+Creamy Mac and Cheese in the Crockpot – Becky Concoby, 82
+Crock Pot Chicken Alfredo – Sammi Jo, 84
+Crock Pot Spare Ribs - Bonnie Chantry, 83
+Crockpot Beans –Grace Ann Skousen, 81
+Crockpot Chili – Kadie Allred, 85
+Crockpot Ham&Scalloped Potatoes–Amy, 84
+Crockpot Lasagna –Grace Ann Skousen, 83
+Hot Fudge Sundae Cake – Rachel M., 85
+Magic Meatloaf –Grace Ann Skousen, 82
+Maple Glazed Sweet Potatoes –Grace Ann, 82
+No-Fat Apple Cake – Rachel Mitchell, 85
+No-Fuss Potato Soup - Barbara Olsen, 85
+Santa Fe Chicken– Amy Badger, 83
+Slow Cooker Chicken Broth - Grace Ann, 81
+Slow-Cooked Paprika Chicken and Mashed Potatoes –Alecia Bales, 84
+Slow-Cooker Vegetable Broth–Grace Ann, 81
+Sweet Pork – Rachel Mitchell, 83
+Szechwan-Style Chicken & Broccoli –, 83
+Taco Soup-Amy Badger, 85
+Tasty Crockpot Chicken – Kadie Allred, 84
+Thyme & Garlic Chicken Breast –Liz B., 84
+To Die For Crockpot Roast –Grace Ann S, 82
+Yummy Beans - Grace Ann Skousen, 81
+
+DESSERTS:
+Angel Lush – Christine Fielding, 93
+Apple Crisp - Ruby Fielding, 87
+Apple Crisp –Emily Hammerstad, 88
+Apple Dumplings –Becky Concoby, 88
+Apple Pudding - Alecia Bales, 88
+Aunt Priscilla’s Carrot Pudding, 88
+Aunt Tawna’s Bugle Mix - Tawna Ballard, 99
+Becky's Favorite Rice Pudding –Becky C., 87
+Blueberry Dessert- Bonnie Chantry, 93
+Bread Pudding –Bonnie Chantry, 87
+Brownie Pizza - Amy Badger, 87
+Chantel’s Munchie Chex Mix –, 99
+Cheese Cake - Marjean Spencer, 94
+Cherry Cheesecake –Kadie Allred, 94
+Cherry Gomboo - Sarah Manis, 89
+Chex Mix with Glaze - Jill Olsen, 99
+Chocolate Chip Cookie Pizza - Amy B., 86
+Chocolate Dessert - Becky Concoby, 91
+Chocolate Éclair Dessert- Stephen Badger, 92
+Chocolate Passion Bowl –Liz Bunderson, 91
+Chocolate Scotcheroos -  Grandma Reber, 98
+Chocolate-Dipped Pretzel Rods –, 86
+Coconut Custard – Quinn Mitchell- 99
+Colette's Hot Fudge –Liz Bunderson, 89
+Corn Flake Candy - Grandma Myrl, 99
+Cran-Orange Ribbon Dessert–Amy B., 96
+Cream Cheese Clouds –Liz Bunderson, 96
+Cream Cheese Cupcakes - Alice Chantry, 95
+Cream Puffs - Sue Reber, 92
+Crumb Topped Gingerbread –Sue Reber, 91
+Cup-A-Cup-A-Cup-A - Amy Badger, 98
+Date Rolls - Grandma Grace, 86
+DESSERTS CONT:
+Éclair Dessert - Diane Anderson, 91
+Frost Orange Dream Squares –Suzanne R, 97
+Fruit Pizza - Marjean Spencer, 86
+Garth’s Doughnuts - Garth Ruby Fielding, 90
+German Chocolate Trifle Cake –Catarina, 94
+Ice Cream Crunch Dessert - Diane A., 97
+Ice Cream –Jill Olsen, 90
+Ice Cream Sandwich Dessert-Sarah Manis,97
+Joyce Fisher’s Pudding Cheesecake –, 95
+Krispie Ice Cream Dessert - Sue Reber, 98
+Lemon Dessert - Angela Olsen, 96
+Marbled Double Chocolate Cheesecake Squares - Laurie Fryatt, 96
+Marshmallow Delight - Bonnie Chantry, 92
+Microwave Apple Crisp –Sue Reber, 88
+Mini Cheese Cakes - Sarah Manis, 95
+Mini-Pumpkin Cheesecakes – Sue Reber, 95
+No Bake Cheesecake- Rachel Mitchell, 95
+Old Fashion Ice Cream - Barbara Olsen, 90
+Oreo Peppermint Dessert - Angela Olsen, 97
+Peach Cobbler -   Sue Reber, 89
+Peanut Butter Ball Chocolates – Bonnie, 98
+Peanut Butter Pudding Dessert–Sammi Jo,98
+Peanut Mallow Chews - Bonnie Chantry, 99
+Peppermint Dessert – Jill Olsen, 97
+Pineapple Delight - Liz Bunderson, 92
+Praline Cheesecake - Liz Bunderson, 94
+Pumpkin Crumble Dessert –Amy Badger, 89
+Pumpkin Twinkies –Rachel Mitchell, 89
+Rolo Turtles –Sue Reber, 86
+Ruby's Rice Pudding –Ruby Fielding, 87
+Soft Orange Custard – Sue Reber, 97
+Spudnuts - Grandma Grace, 90
+Strawberry Delight –Alecia Bales, 93
+Vanilla Ice Cream –Barbara Olsen, 90
+Yummy Strawberry Shortcake–Sue Reber,93
+
+DUTCH OVEN/OUTDOOR COOKING:
+Barbecued Ribs & Sauce - Laurie Fryatt, 105
+BBQ Chicken - Liz Bunderson, 103
+Dump Cake - Grandma Grace, 105
+Dutch Oven Basics, 100
+Dutch Oven Beef Stew - Barbara Olsen, 104
+Dutch Oven Chicken - Joe Olsen, 102
+Dutch Oven Chicken&Biscuits–                Gina Olsen, 103
+Dutch Oven Chicken & Rice -               Barbara Olsen, 102
+Dutch Oven Potatoes - Joe Olsen, 102
+Dutch Oven Potatoes –Coach Fielding, 102
+Dutch Oven Stir Fry with Beef –                     FFF Cookbook, 104
+Dutch Oven Sweet & Sour Chicken -          Tawna Marsh, 103
+Dutch Oven Veggies - Gina Olsen, 102
+Enchilada Pie - Gina Olsen, 104
+Four Bean Casserole – Barbara Olsen, 105
+Garden Medley - Jill Olsen, 102
+Hobo Dinners - Bonnie Chantry, 105
+Minestrone - Barbara Olsen, 104
+One Pot Chicken and Vegetables –                 Joe Olsen, 104
+Pancakes in a Bag - Rachel Mitchell, 105
+Pineapple Upside Down Cake -             Barbara Olsen, 106
+Rice In Dutch Oven - Joe Olsen, 101
+Slightly Sweet Dutch Oven Chicken & Rice – Amy Badger, 103
+Variations on S’mores-Joy of Camping, 106
+Wheat/White Dutch Oven Rolls –                 FFF Cookbook, 101
+
+GLUTEN FREE:
+most Hamburger Helper Mix–Barbara,113
+"Red Lobster" Style Biscuits– Barbara , 111
+“Sugar” Cookies –Barbara Olsen, 117
+Alfredo Sauce – Barbara Olsen, 115
+Almond Flour Biscuits – Amy Badger, 108
+Applesauce Cake–Barbara Olsen, 119
+Banana Bread – Barbara Olsen, 110
+Banana Nut Bread – Barbara Olsen, 113
+Beef and Potato Supper – Barbara Olsen, 113
+Beef Pot Pie – Barbara Olsen, 114
+Biscuits for Burger Buns – Laurie Fryatt, 109
+Breakfast Ring – Barbara Olsen, 112
+Caramel Pudding Cake, 120
+Cheese Soup or Sauce – Barbara Olsen, 114
+Chicken Enchilada’s – Barbara Olsen, 115
+Chicken Pot Pie – Barbara Olsen, 115
+Chili Mac – Barbara Olsen, 113
+Chocolate Cake, 118
+Chocolate Chip & Nut Cake –Barbara,119
+Chocolate Chip Cookies –Barbara Olsen, 117
+Chocolate Peanut Butter Bars - Laurie, 116
+Chocolate Sundae Cake–Barbara Olsen, 119
+Chocolate Zucchini Cake –Barbara , 119
+Cinnamon Swirl Cake –Barbara Olsen, 118
+GLUTEN FREE CONT:
+Clam Chowder – Barbara Olsen, 115
+Cream of Chicken, 114
+Cream of Mushroom Soup – Barbara, 114
+Cream of Tomato Soup – Barbara, 114
+Creamed Peas & Potatoes – Barbara, 115
+Creamed Soup Base – Barbara Olsen -, 114
+Doughnut Cake – Laurie Fryatt, 118
+Dumplings – Barbara Olsen, 112
+English Scones – Barbara Olsen, 111
+Featherlight Mix, 107
+Flourless Thunder Brownie –, 120
+French Bread/Pizza Mix, 107
+GF Bread Sticks – Barbara Olsen, 108
+GF Bread Stuffing – Barbara Olsen, 110
+GF Coconut Macaroons –Amy Badger, 116
+GF Scones or Fry Bread –Barbara Olsen, 109
+GF Tortillas- Barbara Olsen, 109
+Gluten Free Basic Cake Mix –Barbara, 118
+Gluten Free Basic Cookie –Barbara, 117
+Gluten Free Breakfast Bars –Amy B., 112
+Gluten Free Cheese Bread – Barbara O., 109
+Gluten Free Chocolate Cake –Barbara, 118
+Gluten Free Cream Puffs – Emily H., 120
+Gluten Free Flour Mixes, 107
+Gluten Free Pasta – Barbara Olsen, 116
+Gluten Free P. B. Cookies –Emily, 116
+Gluten Free Quick Mix– Barbara Olsen, 110
+Gluten Free Sandwich Bread – Amy B., 107
+Gluten-Free (GF) Mix, 107
+Gluten-Free Sandwich Bread – Laurie, 108
+Hamburger Stroganoff – Barbara Olsen, 114
+Ice Cream Sandwiches, 118
+Impossible Bacon Pie– Barbara Olsen, 113
+Impossible Cheeseburger Pie – Barbara, 113
+Impossible Custard Pie– Barbara Olsen, 112
+Impossible Pumpkin Pie – Barbara, 112
+Lemon Bars – Laurie Fryatt, 120
+Marble Cake –Barbara Olsen, 119
+Muffins – Barbara Olsen, 111
+Ohukaisets (Finnish Pancakes)–Barbara, 110
+One Bowl Macaroons - Laurie Fryatt, 116
+Oven Puff Pancakes – Barbara Olsen, 112
+Pancakes – Barbara Olsen, 111
+Peanut Butter Cookies –Barbara Olsen, 117
+Pecan Pumpkin Pie (Gluten Free) –, 120
+Pecan-Glazed Cake –Barbara Olsen, 119
+Plain Cake – Barbara Olsen, 118
+Pumpkin Cake Pie –Barbara Olsen, 119
+Pumpkin/Applesauce Cookies–Barbara, 117
+Quick Lasagna – Barbara Olsen, 114
+Raisin Pudding Cake –Barbara Olsen, 120
+Regular Biscuits – Barbara Olsen, 111
+Shepherd’s Pie – Barbara Olsen, 115
+Snickerdoodles –Barbara Olsen, 117
+Sorghum Flour Mix, 107
+Spice Drop Cookies –Barbara Olsen, 117
+Tasty Cream Sauce – Barbara Olsen, 114
+True Yeast Gluten Free Bread –Barbara, 107
+Waffles – Barbara Olsen, 111
+Weiner Roll-ups – Barbara Olsen, 113
+White Sauce – Barbara Olsen, 11
+
+HOLIDAY IDEAS:
+“Pita-Pita-Patter Goes my Heart” Pockets- Amy Badger, 121
+Almond-Macaroon Easter Nests– Tawna, 124
+Apple Pudding - Grandma Grace, 128
+Black Beans –Amy Badger, 126
+Breakfast Casserole –Angela Olsen -, 129
+Bubble Bread - Marjean Spencer, 121
+Candy Bar Cookies-on-a-Stick-, 122
+Candy Cane Coffee Cake –Amy Badger, 130
+Christmas Morning Casserole - Tawna , 129
+Christmas Potpourri – Kadie Allred, 129
+Christmas Punch - Clint Fielding, 129
+Cilantro-Lim Rice –Amy Badger, 125
+Cilantro-Lime dressing –Amy Badger, 125
+Cookie Turkeys – Amy Badger, 128
+Cranberry Salad - Jill Olsen, 127
+Cranberry Slush – Sue Reber, 129
+Cream Cheese Cookies – Amy Badger, 131
+Cream of Broccoli Soup- Sue Reber, 129
+Crispy Fried Chicken – Liz Bunderson, 126
+Crock Pot Cafe Rio Sweet Pork – Amy , 125
+Dennis' New Year's Eve Punch –          Dennis Concoby, 121
+Dinner In a Pumpkin - Scott & Donna, 127
+Flaming Thanksgiving Pumpkin Pie - Pam Reber Grange, 128
+Ghostly Shepherd’s Pie – Amy Badger, 126
+Gingerbread House - Bonnie Chantry, 132
+Holiday Wreath – Sue Reber, 131
+Irish Soda Bread- Amy Badger, 123
+Irish Soda Bread-Erin Callahan, 123
+Layered Meatloaf Cake – Amy Badger, 124
+Minty Mountain Cake – Amy Badger, 123
+Monster-Faced Pizza – Amy Badger, 127
+HOLIDAY IDEAS CONT:
+Mother’s Day Cinnamon Rolls –Tawna, 125
+Natural Easter Egg Dyes - Liz B., 124
+Not Fried Ice Cream –Amy Badger, 126
+Pecan Pie - Nancy Reber, 128
+President’s Day Crepes - Clint Fielding, 121
+Rice Krispy Kisses – Amy Badger, 121
+roccoli Rice Casserole - Scott & Donna, 130
+Royal Icing, 132
+Sausage Cheese Balls - Angela Olsen -, 129
+Soft Sugar Cookie Mix – Amy Badger, 122
+Stuffing Balls – Amy Badger, 128
+Thanksgiving Yams –Becky Concoby, 128
+Three Wise Men Christmas Salad -  Grandma Reber, 13
+Ultimate Brine for Turkey – Scott C., 127
+Valentine Cookies – Grandma Grace, 122
+Valentine’s Day Dessert – Amy Badger, 123
+
+JUST FOR KIDS;
+Applesauce Muffins – Rachel Mitchell , 135
+Bubble Blow – Becky Concoby, 133
+Chocolate Teddy Bears - Tiffanie Olsen, 137
+Finger Paint –Becky Concoby, 133
+Fudge in a Bag - Sarah Manis, 134
+Fudgesicles - Sarah Manis, 135
+Homemade Butter – Catarina Badger, 137
+Hot Mustard Pretzel Dip – Amy Badger, 136
+Ice Cream in a Bag –Sue Reber, 135
+Little Elvis Sandwiches– Stephen Badger, 137
+Mexican Top Hats-Dennis&Tina Chantry, 137
+Octopus & Seaweed – Amy Badger, 137
+Peanut Butter Fudge Dough–Becky C., 133
+Peanut Butter Fudge Play Dough –Jill O, 133
+Pizza Fish –Liz Bunderson, 137
+Play Dough – Kadie Allred, 133
+Playdough – Amy Badger, 133
+Playdough – Becky Concoby, 133
+Pretzels & Cheese Sauce –Amy Badger, 136
+Pretzels from the Bread Machine –, 136
+Quick and Quiet Fudge – Sammi Jo S.-, 134
+Rice Krispie Treats – Amy Badger, 134
+RolyPoly PB-ChocoBall–Catarina Badger135
+Salt Dough –Kadie Allred, 133
+Sorta Silly Putty - Tiffanie Olsen, 133
+Tin Can Ice Cream - Marjean Spencer, 135
+Tootsie Rolls – Sue Reber, 134
+Yummy Cookies - Tiffanie Olsen, 137
+
+MAIN DISHES:
+15 Minute Chicken & Rice Dinner -      Trisha Olsen, 155
+Apricot Glazed Chicken - Jill Olsen, 158
+Artichoke & Chicken Casserole –           Becky Concoby, 157
+Baked Beans - Barbara Olsen, 145
+Baked Chicken Chimichangas -             Tawna Marsh, 161
+Baked Chicken Enchilada - Sarah Manis, 160
+Baked Italian Sausage Rotini –Liz B., 169
+Baked Mac & Cheese - Grandma Reber, 174
+Barbecue Chicken - Grandma Grace, 155
+Barbecued Spare Ribs - Jolene Lundell, 166
+BBQ Chicken Pizza – Suzanne Reber, 163
+Beef Enchiladas – Liz Bunderson, 148
+Beef Enchiladas - Marjean Spencer, 148
+Beef Olé - Grandma Reber, 146
+Beef Pasties - Barbara Olsen, 139
+Block Party Baked Beans -                     Blaine Anderson, 153
+Bonnie’s Orignal Nachos – Bonnie, 169
+Burrito Bake –Liz Bunderson, 146
+Busy Day Casserole - Jill Olsen, 172
+Chicken & Broccoli Braid – Alecia Bales, 162
+Chicken & Rice - Barbara & Bonnie, 158
+Chicken & Rice - Janine Hinkle, 158
+Chicken & Stuffing Casserole –Amy B., 159
+Chicken & Stuffing Supreme  - Trisha O, 159
+Chicken Ala Crescent Rolls - Barbara O, 159
+Chicken –A-La-King - Tawna Marsh, 157
+Chicken Almond Casserole –Becky C, 155
+Chicken and Broccoli Bake - Marjean , 163
+Chicken Bacon Calzones – Amy Badger, 163
+Chicken Broccoli - Sue Reber, 163
+Chicken Enchiladas - Lisa Olsen, 160
+Chicken Fried Steak - Barbara Olsen, 140
+Chicken Garlic Noodles - Alice Chantry, 162
+Chicken Gumbo Sloppy Joe - Marjean, 142
+Chicken Nuggets - Liz Bunderson, 156
+Chicken Olé - Amy Badger, 160
+Chicken Parisienne - Delsa Laxton, 156
+Chicken Picatta –Liz Bunderson, 156
+Chicken Pot Pie - Trisha Olsen, 159
+Chicken Stir Fry - Liz Bunderson, 161
+Chili Beef Casserole - Annalisa Fielding, 143
+Chimichangas –Jill Olsen, 148
+Chinese Pepper Steak - Sue Reber, 139
+Chow Mein - Barbara Olsen, 156
+MAIN DISHES CONT:
+Chuck Wagon Filled Rolls –Becky, 142
+Colorful Kielbasa – Barbara Olsen, 167
+Come & Get it Casserole - Sue Reber, 150
+Corn Dog Batter - Pam Reber Grange, 166
+Cottage Cheese Lasagna – Bonnie, 152
+Cracked Pepper and Roasted Garlic Burger – Liz Bunderson, 140
+Creamed Tuna - Great Grandma Reber, 172
+Creamy Cranberry Turkey Terrific Sandwich - Liz Bunderson, 164
+Creamy Hamburger Enchiladas-Trisha , 148
+Cube Steak Casserole - Trisha Olsen, 140
+Deep Fried Cod - Grandma Reber, 170
+Easy Chili Rellenos –Barbara Olsen, 173
+Egg Fu Yung –Liz Bunderson, 173
+Egg Rolls - Amy Badger, 169
+Enchilada Pie - Sue Reber, 147
+Enchiladas –Chrissy Probst, 172
+Eva’s Macaroni Casserole -                       Lisa & Trisha Olsen's Mom, 143
+Fajita Pitas - Barbara Olsen, 161
+Fancy Macaroni – Annie Marsh, 174
+Feijoada (Brazilian Beans)-Amy Badger, 168
+GF Lazy Chile Rellenos – Barbara, 173
+Goo Burgers - Jill Olsen, 142
+Great Grandma Reber Casserole - Sue, 143
+Greek Grilled Chicken Amy Badger, 162
+Grilled Bruschetta Chicken – Liz, 157
+Grilled T- Bone with Chipotle Chili Rub & Cilantro-Lime Butter-, Liz, 138
+Ham Casserole - Jill Olsen, 167
+Ham Fried Rice – Sue Reber, 167
+Hamburger Stroganoff - Sue Reber, 140
+Hamburger-Potato Casserole -              Bonnie Rachea Hinkle, 144
+Hawaiian Haystacks Or Chinese Sundaes - Bonnie Chantry, 159
+Herbed Pot Roast - Liz Bunderson, 139
+Hidden Sloppy Joes - Barbara Olsen, 141
+Honey Lime Chicken Enchiladas – Amy, 160
+Hungry Boy Casserole - Bonnie Chantry, 145
+Italian Delights - Barbara Olsen, 143
+Italian Shrimp with Bowties - Liz, 171
+Jamazetta – Amy Badger, 143
+Japanese Fried Rice - Grandma Grace, 145
+Joyce’s Stroganoff - Grandma Grace, 139
+Kalua Pig (Hawaiian) - Alecia Bales, 166
+Kenna’s Chicken Taco Rich -                   Rachel Mitchell, 161
+Lasagna - Janine Hinkle, 153
+Lasagna - Russell Olsen, 152
+Lasagna Swirls - Tawna Marsh, 175
+Lemon Cream Chicken-Amy Badger, 157
+Lemon Herb Marinated Chicken - Liz, 155
+Lipton Pepper Steak - Barbara Olsen, 139
+Little Richard’s Pasta  - Barbara Olsen, 175
+Macaroni & Tomatoes - Grandma Grace, 143
+Macaroni and Cheese - Clint Fielding, 174
+Manicotti with Cheese –Emily H., 175
+Meat Loaf - Derlene Olsen, 143
+Meat Loaf - Grandma Grace, 142
+Meatballs in BBQ Sauce –Tawna Marsh, 149
+Meatloaf - Annalisa Fielding, 142
+Meatloaf&Spaghetti Meatballs -Chrissy, 149
+Mexican Casserole - Liz Bunderson, 147
+Mexican Chicken Lasagna – Amy B., 161
+Mexican Lasagna – Amy Badger, 147
+Microwave Chicken - Grandma Grace, 155
+Mini Pizza -  Barbara Olsen, 151
+Mormon Miracle Pageant Barbecued Turkey and Marinade, 164
+Navajo Tacos, 145
+Oh Boy Supper - Sue Reber, 153
+Olive&Cheese Casserole-G. Grace, 173
+Olsen’s Hash - Barbara Olsen, 144
+One Dish Chicken & Stuffing - Liz B., 159
+Outback Chicken –Becky Concoby, 154
+Oven Porcupines - Barbara Olsen, 142
+Pasta In Alfredo Sauce –Sue Reber, 174
+Perfect Pizza –Liz Bunderson, 150
+Pizza  -  Barbara Olsen, 151
+Pizza - Sue Reber, 151
+Pizza Burger - Barbara Olsen, 152
+Pizza Cups - Sue Reber, 151
+Pizza Pockets –Liz Bunderson, 176
+Pork Chop Skillet Meal – Barbara Olsen, 166
+Pork Chops & Rice - Angela Olsen, 166
+Portobello Pork Chops – Sue Reber, 166
+Portuguese Rice -Amy Badger, 169
+Pot Roast & Gravy - Bonnie Chantry, 138
+Pot Roast and Gravy - Barbara Olsen, 138
+Potatoes and Hamburger - G. Grace, 144
+Power Burger – Amy Badger, 140
+Principles of baking a casserole with, 176
+Ranch Chicken - Grace Ann Skousen, 160
+Reber Turkey Legs - Grandma Reber, 164
+MAIN DISHES CONT:
+Rice and Sausage Casserole – Becky C., 168
+Salmon Croquettes - Barbara Olsen, 170
+Salmon Patties - Amy Badger, 170
+Sammi's Salmon –Liz Bunderson, 170 
+Sauce Verde  - Liz Bunderson, 175
+Sausage & Broccoli Bake - Barbara, 169
+Sausage, Peppers & Potatoes - Liz B., 168
+Shelly's Spaghetti Sauce - Sammi Jo, 149
+Shepherd’s Pie - Barbara Olsen, 144
+Shrimp Scampi Verde –Amy Badger, 171
+Simple Lo-Mein - Amy Badger, 165
+Sloppy Joe – Suzanne Reber, 141
+Sloppy Joes - Bonnie Chantry, 141
+Sloppy Joes - Jill Olsen, 141
+Sloppy Joes – Liz Bunderson, 141
+Sloppy Joes –Chrissy Probst, 141
+Snow-White Pizza –Liz Bunderson, 176
+Sour Cream Enchiladas - Sarah Manis, 173
+Spaghetti Pie – Amy Badger, 150
+Spanish Casserole - Bonnie Chantry, 147
+Spanish Delights - Aunt Tawna, 176
+Spanish Rice Dinner – Chrissy Probst, 146
+Spicy Turkey Sausage Lasagna-Amy B., 165
+Spinach & Ham Twist – Amy Badger, 168
+Steakhouse Steaks –Kathy Brown, 138
+Stroganoff - Liz Bunderson, 139
+Sunday Chicken - Grandma Reber, 158
+Sunshine Chicken - Grace Ann Skousen -, 158
+Swedish Meatballs, 170
+Sweet & Sour Pork - Sue Reber, 167
+Sweet and Sour Chicken –Liz Bunderson, 155
+Sweet and Sour Meatballs –Liz B., 149
+Taco Casserole - Tawna Marsh, 147
+Taco Salad – Sue Reber, 145
+Tamale Pie - Bonnie Chantry, 146
+Tasty Tuna – Amy Badger, 172
+Tater Tot Casserole - Barbara & Bonnie, 144
+Teriyaki Seafood Kabobs  - Liz B., 171
+Texas Hash -   Bonnie Chantry, 146
+Thai Chicken Stir Fry – Sue Reber, 156
+The Surprise Casserole - Daneen Hinkle, 172
+Tuna Confetti Casserole - Kadie Olsen, 172
+Tuna Melts Provencal – Amy Badger, 171
+Turkey - Jill Olsen, 163
+Turkey Casserole - Jill Olsen, 164
+Turkey Enchilada Casserole –Sammi Jo, 164
+Turkey Enchiladas - Alecia Bales, 165
+Turkey Stuffing Casserole - Alecia Bales, 165
+Vegetable & Meat Dish – Barbara Olsen, 144
+Vermicelli w/ Sauce - Janine & Daniel, 153
+Wedding Luncheon Chicken –, 158
+Wienerschnitzel / Cordon Bleu - Dave M, 154
+Zucchini Boats-Amy Badger, 167
+Zucchini Casserole - Marjean Spencer, 153
+
+PIES:
+Banana Cream Pie - Liz Bunderson, 180
+Chocolate-Strawberry Peanut Butter Pie-Amy Badger, 182
+Cool Mint Grasshopper Pie –            Christine Fielding, 182
+Cream Cheese Brownie Pie – Amy B., 183
+Creamy Blackberry Pie –Becky Concoby, 179
+Creamy Orange Pie – Amy Badger, 181
+Crustless Pumpkin Pie - Grandpa Fay, 180
+Flat Apple Pie - Grandma Grace, 177
+French Apple Pie –Liz Bunderson, 177
+French Silk Pie - Liz Bunderson, 181
+Fresh Peach Pie –Kadie Allred, 178
+Graham Cracker Crust - Alice Chantry, 177
+Great Aunt Jennie’s Peach Pie –             Jenny Murdock, 179
+Impossible Pie – Quinn Mitchell, 183
+Impossible Pumpkin Pie - Alecia Bales, 180
+Kool-Aid Pie - Bonnie Chantry, 181
+Libby’s Pumpkin Pie - Bonnie Chantry, 179
+Light & Fruity - Bonnie Chantry, 181
+Lime Pie - Amy Badger, 182
+Mike’s Family Secret Recipe Raspberry Pie –Sammi Jo Stewart, 178
+Peanut Butter Pie - Liz Bunderson, 182
+Perc Newton’s Pie Crust - Bonnie C., 177
+Pie Crust - Sue Reber, 177
+Raisin Pie - Grandma Walker, 177
+Rich Pumpkin Pie - Christine Fielding, 180
+Royal Cream Pies - Alice Chantry, 181
+Strawberry Pie - Sue Reber, 179
+Sundae Brownie Pie - Laurie Fryatt, 183
+Super Peach Pie - Diane Anderson, 178
+
+
+
+
+
+
+
+
+SALADS & DRESSINGS:
+1000 Island Dressing - Grandma Grace, 191
+3 Bean Salad –Jill Olsen, 186
+Acini De Pepe Salad - Ruby Fielding, 189
+Ambrosia Salad - Amy Badger, 190
+Blueberry Jell-O Salad - Liz Bunderson, 190
+Britney’s Favorite Fruit Salad - Marjean, 189
+Broccoli Salad - Tiffanie Olsen, 186
+Canned Potato Salad- Amy Badger, 188
+Caramel Apple Salad - Stephen Badger, 190
+Cherry Salad - Trisha Olsen, 190
+Chicken Salad - Sue Reber, 184
+Chicken Salad –Grace Ann Skousen, 184
+Chinese Chicken Pasta Salad – Becky, 184
+Cottage Cheese Salad – Sue Reber, 189
+Creamy Tomatillo Salad Dressing –     Rachel Mitchell, 191
+Crunchy Bacon Coleslaw –Liz B., 185
+Dill Ranch Dressing – Amy Badger, 191
+Fielding Favorite Potato Salad -         Annalisa Fielding, 188
+Ginger’s Ranch Dressing – Liz B., 191
+Grape Salad –Kadie Allred, 190
+Greek Niocese Salad –Amy Badger, 185
+Greek Salad - Bonnie Chantry, 186
+Jell-O Salad –Jill Olsen, 190
+KFC Style Coleslaw –Bonnie Chantry, 185
+Kidney & Green Bean Salad-            Grandma Grace, 187
+Korean Chicken Salad –Becky Concoby, 184
+Lime Scented Strawberry Mango Salad –  Liz Bunderson, 189
+Low Fat Crab Salad - Sarah Manis, 185
+Low-fat Salad Dressing – Amy Badger, 191
+Monte Cristo Salad –Liz Bunderson, 185
+Panzanella Bread Salad – Amy Badger, 186
+Pistachio Salad - Marjean Spencer, 190
+Pizza Pasta – Stephen Badger, 188
+Poppy Seed Dressing - Grace Ann, 191
+Poppy Seed Dressing - Sue Reber, 191
+Potato Salad - Grandma Grace, 187
+Potato Salad Dressing - Jill Olsen, 187
+Ramen Noodle Salad - Tawna Marsh, 186
+Shirley’s Potato Salad – Liz Bunderson, 188
+Snickers Salad- Rachel Mitchell, 190
+Sunset Salad –Grandma Grace, 189
+Sweet Dressing – Amy Badger, 191
+Three Bean Salad –Sue Reberr, 187
+Tuna Sea Shell Salad – Liz Bunderson, 185
+Ukrainian Cracked Wheat Salad –           Amy Badger, 187
+Waldorf Salad - Grandma Grace, 189
+
+SAUCES, JAMS & CONDIMENTS:
+Alfredo Sauce  - Becky Concoby, 193
+Alfredo Sauce – Quinn Mitchell, 193
+Barbecue Sauce  - Grandma Grace, 192
+Barbeque Sauce – Jill Olsen, 192
+Basic White Sauce - Bonnie Chantry, 192
+Becky’s Salsa - Becky Concoby, 192
+Becky's Favorite Marinade of All Time, 194
+Bottled Fruits  - Liz Bunderson, 198
+Bottling Tips - Liz Bunderson, 198
+Chocolate Syrup - Grandma Grace, 195
+Enchilada Sauce  - Grace Ann Skousen, 192
+Enchilada Sauce - Sue Reber, 192
+Freezer Fruits - Liz Bunderson, 199
+Garlic Lime Chicken Marinade – Liz, 195
+Garth’s Gravy - Garth Fielding, 193
+Glaze for Salmon –Amy Badger, 195
+Green Tomato Sweet Relish –Bonnie, 196
+Hawaiian Teriyaki Chicken Marinade –    Liz Bunderson, 194
+Hot Sauce - Marjean Spencer, 193
+Marinara Sauce – Kathy Brown, 194
+Mormon Miracle Pageant Marinade –    Trish Olsen, 195
+Pickled Beets - Liz Bunderson, 197
+Prickly Pear Jelly –Amy Badger, 196
+Prickly Pear-Pineapple Jam –Amy B., 197
+Sweet & Sour Dipping Sauce - Sue R., 193
+Sweet & Sour Sauce – Sue Reber, 193
+Sweet Pickles - Liz Bunderson, 197
+Sweetened Condensed Milk - Derlene O., 195
+Sweetened Condensed Milk –Barbara O.195
+talian Spaghetti Sauce - Russell Olsen, 194
+Tartar Sauce - Grandma Reber, 195
+Teriyaki Sauce - Sue Reber, 193
+Vanilla Peach Jam – Amy Badger, 197
+Watermelon Rind Relish – Amy Badger, 196
+Wonton Dipping Sauce – Amy Badger, 193
+Zucchini Jam – Amy Badger, 197
+
+
+
+
+
+
+SIDE DISHES:
+Applesauce - Bonnie Chantry, 212
+Artichokes  -  Grandma Reber, 211
+Asparagus w/ Parsley Dip – Liz B., 204
+Baked Beans - Barbara Olsen, 204
+Baked Beans - Grandma Grace, 203
+Basic Rice –Sue Reber, 200
+Black Beans – Rachel Mitchell, 203
+Bonnie’s Best Baked Beans –Bonnie, 204
+Brazilian Beans & Rice – Bonnie, 203
+Brazilian Cauliflower - Becky Concoby, 204
+Charlee's Favorite Squash –Jill Olsen, 207
+Cheesy Cauliflower – Sue Reber, 204
+Cheesy Potato Bake - Amy Badger, 209
+Cheesy Potatoes –Liz Bunderson, 209
+Cheesy Sliced Potatoes –Sue Reber, 209
+Cilantro/Lime Rice – Rachel Mitchell, 201
+Cooking Guidelines for Beans, 202
+Cowboy Beans – Grace Ann Skousen, 203
+Creamed Onions - Grandma Grace, 206
+Creamed Peas and Potatoes -                Grandma Grace, 205 
+Dad's Gravy – Garth Fielding, 208
+Dressing - Grandma Grace, 202
+Edible Cooked Carrots - Sue Reber, 205
+Filled New Potatoes –Becky Concoby, 209
+Fried Squash Puffs –Amy Badger, 207
+Garlic Mashed Potatoes –Kathy Brown, 208
+Garth’s Gravy - Garth Fielding, 208
+Glazed Carrots – Sue Reber, 205
+Grandma Grace's Green Beans –, 205
+Green Bean Casserole –Sue Reber, 205
+Green Beans Almandine - Sue Reber, 205
+Green Beans with Cashews –Becky C. ,205
+Green Grits - Aunt Gladys Reber Olson, 201
+Gulliver’s Creamed Corn –Sue Reber, 206
+Ham Fried Rice - Marjean Spencer, 201
+Holiday Veggies –Sue Reber, 211
+Homemade Rice-A-Roni –Sue Reber, 200
+How To De-gas Beans: Bonnie Chantry, 202
+Infallible Rice - Grandma Grace, 200
+Marjean’s Yams - Marjean Spencer, 207
+Mashed Potatoes - Angela Olsen, 208
+Mashed Sweet Potatoes –Sue Reber, 208
+Melt in Mouth Spuds - Tawna Marsh, 209
+Mexican Beans - Grace Ann Skousen, 203
+Microwave Scalloped Potatoes -           Grandma Grace, 210
+Orange Yams - Grandma Reber, 207
+Oven Roasted Potatoes –Amy Badger, 210
+Oven Spanish Rice - Barbara Olsen, 201
+Portuguese Rice - Justin & Amy Badger, 201
+Pre-boiled Potatoes - Bonnie Chantry, 208
+Presto Potato Pancakes – Barbara Olsen, 210
+Rachel’s Popover Veggies -                    Rachel Mitchell, 211
+Refried Beans – Grace Ann Skousen, 203
+Rice - Julie Chantry, 200
+Rice Casserole - Sue Reber, 201
+Rice, Broccoli & Cheese Cups –Sue R., 200
+Roasted Asparagus –Amy Badger, 204
+Souper Rice - Liz Bunderson, 201
+Spicy Cucumbers - Marjean Spencer, 212
+Steamed asparagus –Kathy Brown, 204
+Stuffed Baked Potato - Sue Reber, 210
+Swiss Chard with Golden Raisins – Amy, 206
+Turkey Dressing - Bonnie Chantry, 202
+Vegetable Parmesan Bake – Amy Badger, 211
+Zesty Grilled Veggies –Liz Bunderson, 211
+Zesty Oven Baked Fries – Sue Reber, 210
+Zippy Rice Pilaf – Sue Reber, 200
+Zucchini - Barbara Olsen, 206
+Zucchini Patties – Amy Badger, 207
+Zucchini Squash Casserole – Jill Olsen, 206
+Zucchini Supreme – Sue Reber, 206
+
+SOUPS:
+Baked Beef Stew - Barbara Olsen, 218
+Beans and Ham Hocks - Sue Reber, 218
+Broccoli Soup - Grandma Grace, 222
+Butternut Squash Soup - Gina Olsen, 214
+Cheese Soup - Becky Concoby, 221
+Cheeseburger Chowder – Liz Bunderson, 215
+Cheesy Chowder - Sue Reber, 221
+Chicken Broth – FFF Cookbook, 213
+Chicken Noodle Soup – Barbara Olsen, 213
+Chicken Noodle Soup - Liz Bunderson, 213
+Chicken Noodle Soup - Sue Reber, 213
+Chili - Bonnie Chantry, 216
+Chili - Janine Hinkle, 216
+Chili Con Carne - Barbara Olsen, 216
+Clam Chowder - Barbara & Bonnie, 220
+Clam Chowder –Kadie Allred, 221
+Corn Chowder - Janine Hinkle, 221
+Cream of Anything Soup - Pam Reber, 222
+Cream of Broccoli Soup - Becky C., 222
+Cream of Potato Soup –Grace Ann S., 221
+Cream of Veggie Soup - Sue Reber, 222
+SOUPS CONT:
+Curried Pumpkin Soup – Amy Badger, 214
+Easy Chicken Noodle Soup –Becky C., 213
+Green Chili Chicken Stew - Jill Olsen, 217
+Hamburger Soup - Bonnie Chantry, 215
+Hamburger Soup - Kadie Allred, 219
+Hearty Tomato Soup - Barbara Olsen, 215
+Homemade Noodles - Grandma Grace, 213
+Jared's White Chili –Jared Bales, 217
+Kristi’s Clam Chowder - Rachel Mitchell, 220
+Lazy Soup - Marjean Spencer, 219
+Leftover Mashed Potato Soup - Barbara, 214
+Lentil Soup - Grace Ann Skousen, 218
+Liz's Clam Chowder –Liz Bunderson, 220
+Macaroni & Tomato Soup - Bonnie C., 215
+Midwest Chowder - Jill Olsen, 221
+Mixed Bean Soup –Jill Olsen, 217
+Nacho Potato Soup - Barbara Olsen, 222
+Old Fashioned Beef Stew –                        FFF Cookbook, 218
+Olive Garden Zuppa Toscana Soup –         Liz Bunderson, 220
+Onion and Potato Soup -                     Grandma Myrl Olsen, 214
+Oven Stew –Angela Olsen, 218
+Portuguese Soup-Amy Badger, 215
+Potato Leek Soup - Bonnie Chantry, 214
+Quick Chili - Barbara Olsen, 216
+Simple Pumpkin Soup -Tawna Marsh, 214
+Sosa 99 (Bean Soup) - Barbara Olsen, 218
+Taco Soup - Barbara Olsen, 219
+Taco Soup - Brianna Fielding, 219
+Tortilla Soup - Alice Chantry, 217
+Vegetarian Chili – Sue Reber, 216
+Whole Meal Soup - Barbara Olsen, 219
+Zucchini Garden Chowder – Liz B., 223
+
+

@@ -1,0 +1,69 @@
+<!DOCTYPE html>
+<html lang="en">
+  <head>
+    <meta charset="UTF-8" />
+    <meta name="viewport" content="width=device-width, initial-scale=1.0" />
+    <title>Family Recipe Archive</title>
+    <meta name="description" content="Family recipe collection with searchable dishes, categories, and family favorites." />
+    <link rel="stylesheet" href="assets/styles.css" />
+  </head>
+  <body>
+    <header>
+      <nav class="nav" aria-label="Main navigation">
+        <a href="index.html" class="brand">
+          <span class="brand-mark">🍽️</span>
+          Family Recipe Archive
+        </a>
+        <div class="nav-links">
+          <a href="index.html">Home</a>
+          <a href="recipes.html">Recipes</a>
+          <a href="family.html">Family</a>
+          <a href="about.html">About</a>
+        </div>
+      </nav>
+    </header>
+
+    <main>
+      <section class="hero">
+        <h1>The Family Recipe Collection</h1>
+        <p>
+          Recipes collected from the kitchens and tables of our family — easy to browse, easy to search, and ready to keep for the next generation.
+        </p>
+
+        <form class="search-form" action="recipes.html" method="GET">
+          <input type="search" name="search" placeholder="Search recipes, ingredients, family names, or holiday tags..." aria-label="Search recipes" />
+          <button type="submit" class="button">Search recipes</button>
+        </form>
+
+        <div class="hero-actions">
+          <a href="recipes.html" class="button-secondary">Browse all recipes</a>
+          <a href="family.html" class="button-secondary">Browse by family</a>
+        </div>
+      </section>
+
+      <section>
+        <div class="section-header">
+          <h2>Browse by category</h2>
+          <p>Quick access to the dishes you are in the mood for.</p>
+        </div>
+        <div id="category-links" class="category-grid"></div>
+      </section>
+
+      <section>
+        <div class="section-header">
+          <h2>Recently added favorites</h2>
+          <a href="recipes.html" class="button-link">View all recipes</a>
+        </div>
+        <div id="featured-recipes" class="featured-grid"></div>
+      </section>
+    </main>
+
+    <div id="recipe-detail-dialog" class="detail-dialog" aria-live="polite">
+      <div class="detail-panel">
+        <div id="detail-body"></div>
+      </div>
+    </div>
+
+    <script src="assets/site.js"></script>
+  </body>
+</html>
