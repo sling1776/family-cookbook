@@ -7,7 +7,7 @@ Usage:
 
 Default INPUT_DIR is the repository root (current working directory when run).
 Default PATTERN is "recipe-sec-*.md".
-Default OUT_DIR is "recipes_split" under the input dir.
+Default OUT_DIR is "recipes" under the input dir.
 
 Behavior:
   - Detects recipe titles (lines starting with '#') and section headers for
@@ -248,7 +248,7 @@ def main(argv: Optional[List[str]] = None) -> int:
     parser = argparse.ArgumentParser(description='Split recipe markdown files into individual recipe files')
     parser.add_argument('--input-dir', '-i', default='.', help='Input directory (default: current dir)')
     parser.add_argument('--pattern', '-p', default='recipe-sec-*.md', help='Glob pattern for input files (default: recipe-sec-*.md)')
-    parser.add_argument('--out-dir', '-o', default='recipes_split', help='Output directory (default: recipes_split)')
+    parser.add_argument('--out-dir', '-o', default='recipes', help='Output directory (default: recipes)')
     parser.add_argument('--dry-run', action='store_true', help='Do not write files, just show what would be done')
     parser.add_argument('--interactive', action='store_true', help='Prompt when a recipe is missing required sections')
     args = parser.parse_args(argv)
