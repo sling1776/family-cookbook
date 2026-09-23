@@ -52,6 +52,16 @@ function groupsForRecipes(recipes) {
   return [...map.entries()].sort((a, b) => b[1] - a[1]);
 }
 
+function getRecipeSummary(recipe) {
+  const lines = [
+    ...(recipe.procedure || []),
+    ...(recipe.notes || []),
+    ...(recipe.ingredients || [])
+  ].filter((value) => value && String(value).trim());
+
+  return lines.length ? lines[0] : 'A family favorite with a rich history and homemade comfort.';
+}
+
 function cardMarkup(recipe) {
   const tags = (recipe.tags || []).slice(0, 4).map((tag) => `<span class="tag">${escapeHtml(tag)}</span>`).join('');
   const category = recipe.category || 'Other';
@@ -64,7 +74,7 @@ function cardMarkup(recipe) {
         <span class="tiny-label">From: ${escapeHtml(author)}</span>
       </div>
       <h3>${escapeHtml(recipe.title)}</h3>
-      <p>${escapeHtml(recipe.excerpt || 'A family favorite with a rich history and homemade comfort.')}</p>
+      <p>${escapeHtml(getRecipeSummary(recipe))}</p>
       <div class="tag-row">${tags}</div>
       <button class="button-secondary" data-action="details" data-id="${escapeHtml(recipe.id)}">View recipe</button>
     </article>
@@ -115,11 +125,23 @@ function buildFilterOptions() {
   }
 }
 
+function flattenRecipeText(recipe) {
+  return [
+    recipe.title,
+    recipe.author,
+    recipe.category,
+    ...(recipe.tags || []),
+    ...(recipe.ingredients || []),
+    ...(recipe.procedure || []),
+    ...(recipe.notes || [])
+  ].join(' ');
+}
+
 function applyRecipeFilters() {
   const searchText = normalizeText(state.search);
 
   const filtered = state.recipes.filter((recipe) => {
-    const haystack = normalizeText(`${recipe.title} ${recipe.author} ${recipe.category} ${(recipe.tags || []).join(' ')} ${recipe.body}`);
+    const haystack = normalizeText(flattenRecipeText(recipe));
     const matchesText = !searchText || haystack.includes(searchText);
     const matchesCategory = state.category === 'All' || recipe.category === state.category;
     const matchesPerson = state.person === 'All' || (recipe.author || 'Unknown') === state.person;
@@ -230,6 +252,36 @@ function renderCategories() {
   `).join('');
 }
 
+function renderSectionList(title, values) {
+  const safeValues = Array.isArray(values) ? values : [];
+  if (!safeValues.length) {
+    return `
+      <section class="detail-section">
+        <h3>${escapeHtml(title)}</h3>
+        <p>None listed.</p>
+      </section>
+    `;
+  }
+
+  return `
+    <section class="detail-section">
+      <h3>${escapeHtml(title)}</h3>
+      <ul>
+        ${safeValues.map((value) => {
+          const clean = String(value).trim();
+          if (!clean) {
+            return '';
+          }
+          if (clean.startsWith('### ')) {
+            return `<li class="subheader">${escapeHtml(clean.replace(/^###\s+/, ''))}</li>`;
+          }
+          return `<li>${escapeHtml(clean)}</li>`;
+        }).join('')}
+      </ul>
+    </section>
+  `;
+}
+
 function openRecipeDetail(recipe) {
   const dialog = document.querySelector('#recipe-detail-dialog');
   const body = document.querySelector('#detail-body');
@@ -237,7 +289,10 @@ function openRecipeDetail(recipe) {
     return;
   }
 
-  const lines = (recipe.body || '').split('\n').filter((line) => line.trim());
+  const ingredients = recipe.ingredients || [];
+  const procedure = recipe.procedure || [];
+  const notes = recipe.notes || [];
+
   body.innerHTML = `
     <div class="detail-header">
       <div>
@@ -247,11 +302,13 @@ function openRecipeDetail(recipe) {
       <button class="close-button" data-close="detail">Close</button>
     </div>
     <div class="detail-meta">
-      <span>Submitted by: ${escapeHtml(recipe.author || 'Family recipe')}</span>
+      <span>By: ${escapeHtml(recipe.author || 'Family recipe')}</span>
       <span>Tags: ${escapeHtml((recipe.tags || []).join(', ') || 'None listed')}</span>
     </div>
     <div class="detail-copy">
-      ${lines.map((line) => `<p>${escapeHtml(line)}</p>`).join('')}
+      ${renderSectionList('Ingredients', ingredients)}
+      ${renderSectionList('Procedure', procedure)}
+      ${renderSectionList('Notes', notes)}
     </div>
   `;
 

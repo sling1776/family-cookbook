@@ -2,9 +2,8 @@ const fs = require('fs');
 const path = require('path');
 
 const rootDir = path.resolve(__dirname, '..');
-const sourcePath = path.join(rootDir, 'recipes.md');
+const sourceDir = path.join(rootDir, 'recipes');
 const outputPath = path.join(rootDir, 'data', 'recipes.json');
-const recipesDir = path.join(rootDir, 'recipes');
 
 function trimAndNormalize(value) {
   return value.replace(/\s+/g, ' ').trim();
@@ -167,71 +166,104 @@ function shouldDiscardRecipe(title) {
   return false;
 }
 
-function parseRecipes(markdown) {
-  const recipes = [];
-  const blocks = markdown.replace(/\r/g, '').split(/\n\s*\n+/);
+function parseRecipeFile(filePath) {
+  const markdown = fs.readFileSync(filePath, 'utf8').replace(/\r/g, '');
+  const lines = markdown.split('\n');
 
-  for (const block of blocks) {
-    const lines = block.split('\n').map((line) => line.trim()).filter((line) => line && !line.startsWith('#'));
-    let current = null;
+  let title = '';
+  let author = '';
+  let currentSection = null;
+  const sections = {
+    author: [],
+    ingredients: [],
+    procedure: [],
+    notes: []
+  };
 
-    for (let i = 0; i < lines.length; i += 1) {
-      const line = lines[i];
+  for (let index = 0; index < lines.length; index += 1) {
+    const line = lines[index];
+    const trimmed = line.trim();
 
-      if (!current) {
-        const parsed = parseTitleAndAuthor(line);
-        current = {
-          title: parsed.title || line,
-          author: parsed.author,
-          body: [line]
-        };
-        continue;
-      }
-
-      if (isRecipeTitleLine(line, lines.slice(i + 1))) {
-        const body = current.body.join('\n').trim();
-        if (!shouldDiscardRecipe(current.title)) {
-          const recipe = {
-            id: (current.title.toLowerCase().replace(/[^a-z0-9]+/g, '-').replace(/^-|-$/g, '') || `recipe-${recipes.length + 1}`),
-            title: current.title,
-            author: current.author,
-            category: getCategory(current.title, body),
-            tags: getTags(current.title, body),
-            submittedBy: current.author,
-            excerpt: body.slice(0, 180).replace(/\s+/g, ' '),
-            body,
-            source: 'recipes.md'
-          };
-
-          recipes.push(recipe);
-        }
-
-        const nextParsed = parseTitleAndAuthor(line);
-        current = {
-          title: nextParsed.title || line,
-          author: nextParsed.author,
-          body: [line]
-        };
-        continue;
-      }
-
-      current.body.push(line);
+    if (!trimmed) {
+      continue;
     }
 
-    if (current && !shouldDiscardRecipe(current.title)) {
-      const body = current.body.join('\n').trim();
-      const recipe = {
-        id: (current.title.toLowerCase().replace(/[^a-z0-9]+/g, '-').replace(/^-|-$/g, '') || `recipe-${recipes.length + 1}`),
-        title: current.title,
-        author: current.author,
-        category: getCategory(current.title, body),
-        tags: getTags(current.title, body),
-        submittedBy: current.author,
-        excerpt: body.slice(0, 180).replace(/\s+/g, ' '),
-        body,
-        source: 'recipes.md'
-      };
+    const titleMatch = trimmed.match(/^#\s+(.+)$/);
+    if (titleMatch && !trimmed.startsWith('##')) {
+      title = titleMatch[1].trim();
+      currentSection = null;
+      continue;
+    }
 
+    const sectionMatch = trimmed.match(/^##\s+(Author|Ingredients|Procedure|Notes)\s*:?(.*)$/i);
+    if (sectionMatch) {
+      currentSection = sectionMatch[1].toLowerCase();
+      const inlineValue = sectionMatch[2].trim();
+      if (inlineValue) {
+        if (currentSection === 'author') {
+          author = inlineValue;
+        } else {
+          sections[currentSection].push(inlineValue);
+        }
+      }
+      continue;
+    }
+
+    if (currentSection === 'author') {
+      if (!author) {
+        author = trimmed;
+      }
+      continue;
+    }
+
+    if (currentSection) {
+      sections[currentSection].push(trimmed);
+    }
+  }
+
+  const ingredients = sections.ingredients.filter(Boolean);
+  const procedure = sections.procedure.filter(Boolean);
+  const notes = sections.notes.filter(Boolean);
+  const searchableText = [title, author, ...ingredients, ...procedure, ...notes].join('\n');
+  const hasMeaningfulContent = !![author, ...ingredients, ...procedure, ...notes].filter(Boolean).length;
+
+  if (!title || !hasMeaningfulContent) {
+    return null;
+  }
+
+  return {
+    id: toSlug(title),
+    title,
+    author: author || 'Unknown Author',
+    category: getCategory(title, searchableText),
+    tags: getTags(title, searchableText),
+    ingredients,
+    procedure,
+    notes,
+    source: `recipes/${path.basename(filePath)}`
+  };
+}
+
+function parseRecipesFromDirectory(dirPath) {
+  if (!fs.existsSync(dirPath)) {
+    return [];
+  }
+
+  const files = fs.readdirSync(dirPath)
+    .filter((fileName) => fileName.toLowerCase().endsWith('.md'))
+    .sort();
+
+  const recipes = [];
+
+  for (const fileName of files) {
+    const filePath = path.join(dirPath, fileName);
+    const stat = fs.statSync(filePath);
+    if (!stat.isFile()) {
+      continue;
+    }
+
+    const recipe = parseRecipeFile(filePath);
+    if (recipe) {
       recipes.push(recipe);
     }
   }
@@ -317,14 +349,12 @@ function writeRecipeFiles(recipes) {
   }
 }
 
-if (!fs.existsSync(sourcePath)) {
-  console.error(`Missing source file at ${sourcePath}`);
+if (!fs.existsSync(sourceDir)) {
+  console.error(`Missing source directory at ${sourceDir}`);
   process.exit(1);
 }
 
-const markdown = fs.readFileSync(sourcePath, 'utf8');
-const recipes = parseRecipes(markdown);
+const recipes = parseRecipesFromDirectory(sourceDir);
 fs.mkdirSync(path.dirname(outputPath), { recursive: true });
 fs.writeFileSync(outputPath, JSON.stringify(recipes, null, 2));
-writeRecipeFiles(recipes);
-console.log(`Built ${recipes.length} recipes into ${outputPath} and ${recipesDir}`);
+console.log(`Built ${recipes.length} recipes into ${outputPath} from ${sourceDir}`);

@@ -18,9 +18,9 @@ A static website for a family recipe collection, hosted on GitHub Pages.
 - `about.html` — site overview
 - `assets/styles.css` — styling
 - `assets/site.js` — search/filter functionality
-- `recipes.md` — original recipe source text
+- `recipes/` — parsed individual recipe markdown files used as the source of truth
 - `data/recipes.json` — generated recipe data used by the site
-- `scripts/build-recipes.js` — builds the JSON from markdown
+- `scripts/build-recipes.js` — builds the JSON from the split markdown recipe files
 
 ## Run locally
 
