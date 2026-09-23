@@ -52,11 +52,21 @@ function groupsForRecipes(recipes) {
   return [...map.entries()].sort((a, b) => b[1] - a[1]);
 }
 
+function flattenSectionMap(sectionMap) {
+  if (!sectionMap || typeof sectionMap !== 'object') {
+    return [];
+  }
+
+  return Object.entries(sectionMap)
+    .flatMap(([key, values]) => (key === 'none' ? values : values))
+    .filter((value) => value && String(value).trim());
+}
+
 function getRecipeSummary(recipe) {
   const lines = [
-    ...(recipe.procedure || []),
+    ...flattenSectionMap(recipe.procedure || {}),
     ...(recipe.notes || []),
-    ...(recipe.ingredients || [])
+    ...flattenSectionMap(recipe.ingredients || {})
   ].filter((value) => value && String(value).trim());
 
   return lines.length ? lines[0] : 'A family favorite with a rich history and homemade comfort.';
@@ -131,8 +141,8 @@ function flattenRecipeText(recipe) {
     recipe.author,
     recipe.category,
     ...(recipe.tags || []),
-    ...(recipe.ingredients || []),
-    ...(recipe.procedure || []),
+    ...flattenSectionMap(recipe.ingredients || {}),
+    ...flattenSectionMap(recipe.procedure || {}),
     ...(recipe.notes || [])
   ].join(' ');
 }
@@ -252,8 +262,39 @@ function renderCategories() {
   `).join('');
 }
 
-function renderSectionList(title, values) {
-  const safeValues = Array.isArray(values) ? values : [];
+function renderGroupedSectionList(title, sectionMap) {
+  const entries = Object.entries(sectionMap || {}).filter(([key, values]) => key && values && values.length);
+
+  if (!entries.length) {
+    return `
+      <section class="detail-section">
+        <h3>${escapeHtml(title)}</h3>
+        <p>None listed.</p>
+      </section>
+    `;
+  }
+
+  return `
+    <section class="detail-section">
+      <h3>${escapeHtml(title)}</h3>
+      ${entries.map(([key, values]) => {
+        const listItems = values.map((value) => `<li>${escapeHtml(String(value).trim())}</li>`).join('');
+        if (key === 'none') {
+          return `<ul>${listItems}</ul>`;
+        }
+        return `
+          <div class="detail-subsection">
+            <h4>${escapeHtml(key)}</h4>
+            <ul>${listItems}</ul>
+          </div>
+        `;
+      }).join('')}
+    </section>
+  `;
+}
+
+function renderSimpleListSection(title, values) {
+  const safeValues = Array.isArray(values) ? values.filter((value) => value && String(value).trim()) : [];
   if (!safeValues.length) {
     return `
       <section class="detail-section">
@@ -267,16 +308,7 @@ function renderSectionList(title, values) {
     <section class="detail-section">
       <h3>${escapeHtml(title)}</h3>
       <ul>
-        ${safeValues.map((value) => {
-          const clean = String(value).trim();
-          if (!clean) {
-            return '';
-          }
-          if (clean.startsWith('### ')) {
-            return `<li class="subheader">${escapeHtml(clean.replace(/^###\s+/, ''))}</li>`;
-          }
-          return `<li>${escapeHtml(clean)}</li>`;
-        }).join('')}
+        ${safeValues.map((value) => `<li>${escapeHtml(String(value).trim())}</li>`).join('')}
       </ul>
     </section>
   `;
@@ -289,8 +321,8 @@ function openRecipeDetail(recipe) {
     return;
   }
 
-  const ingredients = recipe.ingredients || [];
-  const procedure = recipe.procedure || [];
+  const ingredients = recipe.ingredients || { none: [] };
+  const procedure = recipe.procedure || { none: [] };
   const notes = recipe.notes || [];
 
   body.innerHTML = `
@@ -306,9 +338,9 @@ function openRecipeDetail(recipe) {
       <span>Tags: ${escapeHtml((recipe.tags || []).join(', ') || 'None listed')}</span>
     </div>
     <div class="detail-copy">
-      ${renderSectionList('Ingredients', ingredients)}
-      ${renderSectionList('Procedure', procedure)}
-      ${renderSectionList('Notes', notes)}
+      ${renderGroupedSectionList('Ingredients', ingredients)}
+      ${renderGroupedSectionList('Procedure', procedure)}
+      ${renderSimpleListSection('Notes', notes)}
     </div>
   `;
 

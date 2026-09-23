@@ -166,6 +166,35 @@ function shouldDiscardRecipe(title) {
   return false;
 }
 
+function parseSectionMap(lines) {
+  const groups = { none: [] };
+  let currentKey = 'none';
+
+  for (const line of lines) {
+    const trimmed = line.trim();
+    if (!trimmed) {
+      continue;
+    }
+
+    const subheaderMatch = trimmed.match(/^###\s+(.+)$/);
+    if (subheaderMatch) {
+      const key = subheaderMatch[1].trim();
+      if (!groups[key]) {
+        groups[key] = [];
+      }
+      currentKey = key;
+      continue;
+    }
+
+    if (!groups[currentKey]) {
+      groups[currentKey] = [];
+    }
+    groups[currentKey].push(trimmed);
+  }
+
+  return groups;
+}
+
 function parseRecipeFile(filePath) {
   const markdown = fs.readFileSync(filePath, 'utf8').replace(/\r/g, '');
   const lines = markdown.split('\n');
@@ -221,11 +250,11 @@ function parseRecipeFile(filePath) {
     }
   }
 
-  const ingredients = sections.ingredients.filter(Boolean);
-  const procedure = sections.procedure.filter(Boolean);
+  const ingredients = parseSectionMap(sections.ingredients);
+  const procedure = parseSectionMap(sections.procedure);
   const notes = sections.notes.filter(Boolean);
-  const searchableText = [title, author, ...ingredients, ...procedure, ...notes].join('\n');
-  const hasMeaningfulContent = !![author, ...ingredients, ...procedure, ...notes].filter(Boolean).length;
+  const searchableText = [title, author, ...Object.values(ingredients).flat(), ...Object.values(procedure).flat(), ...notes].join('\n');
+  const hasMeaningfulContent = !![author, ...Object.values(ingredients).flat(), ...Object.values(procedure).flat(), ...notes].filter(Boolean).length;
 
   if (!title || !hasMeaningfulContent) {
     return null;
