@@ -1,0 +1,22 @@
+# Tartar Sauce
+
+## Author
+
+Grandma Reber
+
+## Ingredients
+
+1 cup mayonnaise
+1 tsp. grated onion
+1 tsp. minced parsley
+2 Tbsp. minced dill pickle
+1 Tbsp. pimento
+dash of Tabasco sauce
+
+## Procedure
+
+
+
+## Notes
+
+
